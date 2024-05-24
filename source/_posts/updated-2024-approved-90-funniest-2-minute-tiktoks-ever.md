@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  90 Funniest 2-Minute TikToks Ever\""
-date: 2024-05-20 14:39:30
-updated: 2024-05-23 12:16:46
+date: 2024-05-23T07:07:18.418Z
+updated: 2024-05-24T07:07:18.419Z
 tags:
   - ai video
   - ai tiktok
@@ -883,3 +883,68 @@ Follow @Shanoon Cox
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-global-gastronomy-guide-iconic-dishes-and-recipes/"><u>[Updated] 2024 Approved  Global Gastronomy Guide  Iconic Dishes and Recipes</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-leading-10-innovative-tiktok-filters-for-creators/"><u>[New] 2024 Approved  Leading 10 Innovative TikTok Filters For Creators</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/the-ultimate-collection-top-10-trends-in-tiktok-reaction-videos/"><u>The Ultimate Collection  Top 10 Trends in TikTok Reaction Videos</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-navigating-tiktok-your-essential-toolbox-for-2024/"><u>[New] Navigating TikTok  Your Essential Toolbox for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-troubleshoot-and-fix-stuck-or-crashed-tiktok-app-iosandroid/"><u>2024 Approved  Troubleshoot and Fix Stuck or Crashed TikTok App (iOS/Android)</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-gourmet-grub-gurus-on-social-media/"><u>2024 Approved  Gourmet Grub Gurus on Social Media</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-the-hot-new-tiktok-moves-to-watch/"><u>[Updated] 2024 Approved  The Hot New TikTok Moves to Watch</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-exploring-tiktoks-world-dance-music-and-viral-trends/"><u>[New] 2024 Approved  Exploring TikTok's World  Dance, Music & Viral Trends</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-the-comparison-guide-triller-vs-tiktoks-features-max-156-chars-for-2024/"><u>[Updated] The Comparison Guide  Triller VS TikTok's Features (Max 156 Chars) for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-elevate-your-edits-creating-stellar-tiktok-react-videos-in-filmoras-pro-features-for-2024/"><u>[Updated] Elevate Your Edits  Creating Stellar TikTok React Videos in Filmora's Pro Features for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-amplify-your-content-mastering-trending-tiktok-hashtags/"><u>[Updated] 2024 Approved  Amplify Your Content  Mastering Trending TikTok HashTags</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/fast-track-fame-on-tiktok-crucial-steps-for-expansion-for-2024/"><u>Fast Track Fame on TikTok  Crucial Steps for Expansion for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-upset-timeline-trail-on-tiktok-undo-recent-loadout-for-2024/"><u>[New] Upset Timeline Trail on TikTok – Undo Recent Loadout for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-reimagine-your-visuals-three-effective-techniques-for-backdrop-alteration-on-tiktok/"><u>[New] Reimagine Your Visuals  Three Effective Techniques for Backdrop Alteration on TikTok</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/the-complete-tiktok-user-manual-for-pc-and-apple-devices/"><u>The Complete TikTok User Manual for PC & Apple Devices</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-essential-10-tikfilters-for-striking-tiktok-videos/"><u>[Updated] Essential 10 TikFilters for Striking TikTok Videos</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-swiftly-solve-tiktok-app-freeze-glitches-on-iosandroid/"><u>[New] 2024 Approved  Swiftly Solve TikTok App Freeze, Glitches on iOS/Android</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-the-ultimate-guide-to-top-reads-popularized-by-booktok-enthusiasts/"><u>[Updated] In 2024, The Ultimate Guide to Top Reads Popularized by BookTok Enthusiasts</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-step-up-with-tiktoks-most-popular-creative-filters/"><u>[New] 2024 Approved  Step Up with TikTok's Most Popular Creative Filters</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-weekly-hits-cant-skip-these-tiktok-tests-for-2024/"><u>[Updated] Weekly Hits  Can't Skip These TikTok Tests for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-direct-to-the-bottom-of-the-feed-no-watermark-on-iphone-for-2024/"><u>[New] Direct to the Bottom of the Feed, No Watermark on iPhone for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/in-2024-quickly-convert-to-gif-best-practices-for-tiktok-video-artistry/"><u>In 2024, Quickly Convert to GIF  Best Practices for TikTok Video Artistry</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-unleashing-your-monetary-potential-a-filmmakers-guide-to-tiktok-wealth/"><u>2024 Approved  Unleashing Your Monetary Potential  A Filmmaker's Guide to TikTok Wealth</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-a-journey-through-tiktoks-viral-moments/"><u>[New] A Journey Through TikTok's Viral Moments</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-innovative-approaches-to-customizing-your-tiktok-videos/"><u>[New] Innovative Approaches to Customizing Your TikTok Videos</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-sizzling-screens-to-serving-tables-15-popular-tiktok-recipes/"><u>[Updated] 2024 Approved  Sizzling Screens to Serving Tables  15 Popular TikTok Recipes</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-dive-into-digital-assets-filmmoras-route-to-profit-on-tiktok-for-2024/"><u>[New] Dive Into Digital Assets  Filmmora's Route to Profit on TikTok for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/in-2024-15-books-that-have-conquered-social-media-with-booktok-flair/"><u>In 2024, 15 Books That Have Conquered Social Media with BookTok Flair</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-the-silencers-guide-banishing-background-buzz/"><u>[Updated] The Silencer's Guide  Banishing Background Buzz</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/in-2024-how-to-drive-engagement-and-reach-on-tiktok-through-innovative-advertising/"><u>In 2024, How to Drive Engagement and Reach on TikTok Through Innovative Advertising</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-unveiling-the-artistry-in-tiktoks-anime-culture-from-choreographies-to-memes/"><u>[Updated] Unveiling the Artistry in TikTok's Anime Culture  From Choreographies to Memes</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-step-by-step-to-an-elevated-tiktok-identity-for-2024/"><u>[Updated] Step by Step to an Elevated TikTok Identity for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/77-hilarious-tiktok-quiz-time-for-2024/"><u>77 Hilarious TikTok Quiz Time for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-exploring-popular-alternatives-to-tiktok-updated-edition-for-2024/"><u>[New] Exploring Popular Alternatives to TikTok - Updated Edition for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-step-by-step-fabric-fixing-with-tiktok-tips/"><u>2024 Approved  Step-by-Step Fabric Fixing with TikTok Tips</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-top-15-viral-phenomena-on-todays-tiktok-stage-for-2024/"><u>[New] Top 15 Viral Phenomena on Today's TikTok Stage for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-become-an-instant-contributor-at-a-tiktok-gathering/"><u>[New] 2024 Approved  Become an Instant Contributor at a TikTok Gathering</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-dive-right-in-the-art-of-entering-a-tiktok-stream/"><u>[Updated] 2024 Approved  Dive Right In  The Art of Entering a TikTok Stream</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/streamlining-the-process-simplified-setup-of-tiktok-livestreams-from-desktop/"><u>Streamlining the Process  Simplified Setup of TikTok Livestreams From Desktop</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-pulse-pounding-perfection-create-compelling-tiktok-videos-with-templates/"><u>[New] In 2024, Pulse-Pounding Perfection  Create Compelling TikTok Videos with Templates</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-android-and-iphone-the-ultimate-guide-to-saving-tiktok-for-2024/"><u>[New] Android & iPhone  The Ultimate Guide to Saving TikTok for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-unlocking-creative-potential-on-tiktok-through-voiceovers/"><u>[Updated] In 2024, Unlocking Creative Potential on TikTok Through Voiceovers</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/unlocking-tiktoks-1-gamer-list/"><u>Unlocking TikTok's #1 Gamer List</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-navigating-15-of-tiktoks-hottest-innovations/"><u>[New] Navigating 15 of TikTok's Hottest Innovations</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-leading-mp3-to-text-conversion-tools-unveiled-for-2024/"><u>New Leading MP3-to-Text Conversion Tools Unveiled for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-data-from-iphone-13-mini-to-other-iphone-13-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone 13 mini To Other iPhone 13 devices? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-your-samsung-galaxy-s24-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>In 2024, How to Mirror Your Samsung Galaxy S24 Screen to PC with Chromecast | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-oppo-reno-11-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Oppo Reno 11 5G | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-mirroring-xiaomi-redmi-note-13-proplus-5g-to-pc-drfone-by-drfone-android/"><u>In 2024, How to Screen Mirroring Xiaomi Redmi Note 13 Pro+ 5G to PC? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-process-of-screen-sharing-itel-p40-to-pc-detailed-steps-drfone-by-drfone-android/"><u>In 2024, Process of Screen Sharing Itel P40 to PC- Detailed Steps | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-can-i-get-more-stardust-in-pokemon-go-on-motorola-moto-g84-5g-drfone-by-drfone-virtual-android/"><u>How can I get more stardust in pokemon go On Motorola Moto G84 5G? | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-the-ultimate-toolkit-facebook-live-recording-conversion/"><u>[Updated] 2024 Approved  The Ultimate Toolkit  Facebook Live Recording Conversion</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-2024-approved-direct-connection-navigating-desktop-display-integration-on-facebook/"><u>[New] 2024 Approved  Direct Connection  Navigating Desktop Display Integration on Facebook</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-unleash-your-fb-potential-a-strategic-plan-for-more-likes-and-shares/"><u>[Updated] Unleash Your FB Potential  A Strategic Plan for More Likes and Shares</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-7-top-ways-to-resolve-apple-id-not-active-issue-for-iphone-xs-max-by-drfone-ios/"><u>In 2024, 7 Top Ways To Resolve Apple ID Not Active Issue For iPhone XS Max</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-unlock-your-visual-potential-the-leading-ten-tools-for-instagram-grids/"><u>[New] Unlock Your Visual Potential  The Leading Ten Tools for Instagram Grids</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-google-frp-lock-from-vivo-y27s-devices-by-drfone-android/"><u>How to Bypass Google FRP Lock from Vivo Y27s Devices</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-the-best-free-video-editors-for-windows-beyond-movie-maker-for-2024/"><u>New The Best Free Video Editors for Windows (Beyond Movie Maker) for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-premier-hashtags-monitoring-on-facebook-twitter-and-instagram/"><u>[New] In 2024, Premier Hashtags Monitoring on Facebook, Twitter & Instagram</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-in-2024-the-best-video-editing-software-for-windows-10-top-6-options/"><u>Updated In 2024, The Best Video Editing Software for Windows 10 Top 6 Options</u></a></li>
+</ul></div>
+
