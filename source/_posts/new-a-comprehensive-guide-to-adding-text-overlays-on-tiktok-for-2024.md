@@ -1,7 +1,7 @@
 ---
 title: "[New] A Comprehensive Guide to Adding Text Overlays on TikTok for 2024"
-date: 2024-05-23T07:07:32.017Z
-updated: 2024-05-24T07:07:32.017Z
+date: 2024-06-10T11:09:53.537Z
+updated: 2024-06-11T11:09:53.537Z
 tags:
   - ai video
   - ai tiktok
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] A Comprehensive Guide to Adding Text Overlays on TikTok for 2024"
 excerpt: "This Article Describes [New] A Comprehensive Guide to Adding Text Overlays on TikTok for 2024"
 keywords: "TikTok Text Overlay Guide,Text Overlays in Videos,Adding Text to TikToks,TikTok Video Editing,Overlay Text on TikTok,Text Effects on Social Media,Social Media Text Enhancement"
-thumbnail: https://www.lifewire.com/thmb/K0DwKelWej40GlQ5GG81_hN0-Nk=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-607477463-04c14d0af0554e4dbc78475df1409e5e.jpg
+thumbnail: https://thmb.techidaily.com/d2b7e4746fe693895b4178e4d3a3d7272df65f201ddb10f4f23b159b9a8a8a69.jpg
 ---
 
 ## A Comprehensive Guide to Adding Text Overlays on TikTok

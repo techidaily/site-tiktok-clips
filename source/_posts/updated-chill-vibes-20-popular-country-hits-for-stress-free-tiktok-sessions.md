@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Chill Vibes  20 Popular Country Hits for Stress-Free TikTok Sessions\""
-date: 2024-05-23T06:12:21.977Z
-updated: 2024-05-24T06:12:21.977Z
+date: 2024-06-10T11:09:49.391Z
+updated: 2024-06-11T11:09:49.391Z
 tags:
   - ai video
   - ai tiktok
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] Chill Vibes: 20 Popular Country Hits for Stress-Free TikTok Sessions\""
 excerpt: "\"This Article Describes [Updated] Chill Vibes: 20 Popular Country Hits for Stress-Free TikTok Sessions\""
 keywords: "\"Stress-Free Country Tunes,TikTok Chill Playlist,Relaxing Country Songs,Country Hits for Zen,Pop Countrysong Calm,TikTok Relaxation Music,Countrypolka Zen Vibes\""
-thumbnail: https://www.lifewire.com/thmb/hofjzwWxFXQOP-TMMBgrBGFlUvQ=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/why-does-car-battery-die-4140227-ad907eef646446d6a1306940af16410a.jpg
+thumbnail: https://thmb.techidaily.com/7fab9a6185158d097b206408c1b02e98fd2b514b00431bdf0c9ec5881d711d0e.jpg
 ---
 
 ## Chill Vibes: 20 Popular Country Hits for Stress-Free TikTok Sessions

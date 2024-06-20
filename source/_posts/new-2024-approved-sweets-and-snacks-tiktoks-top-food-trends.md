@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Sweets & Snacks  TikTok's Top Food Trends\""
-date: 2024-05-23T07:58:08.110Z
-updated: 2024-05-24T07:58:08.110Z
+date: 2024-06-10T11:09:44.124Z
+updated: 2024-06-11T11:09:44.124Z
 tags:
   - ai video
   - ai tiktok
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] 2024 Approved: Sweets & Snacks: TikTok's Top Food Trends\""
 excerpt: "\"This Article Describes [New] 2024 Approved: Sweets & Snacks: TikTok's Top Food Trends\""
 keywords: "TikTokFoodTrends,SnackRecipes,SweetTreats,TopEatingTrends,FoodieTikTok,SocialMediaCuisine,OnlineCookingTrend"
-thumbnail: https://www.lifewire.com/thmb/bEojajcVOmaMDVv4xG-kC_soHHk=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-81522363-5683a5573df78ccc15cabf56.jpg
+thumbnail: https://thmb.techidaily.com/58d1c82f33ff87a2a49ef482dc26ca840416cdee7dcea0bf9addd82da02902e0.jpg
 ---
 
 ## Sweets & Snacks: TikTok's Top Food Trends

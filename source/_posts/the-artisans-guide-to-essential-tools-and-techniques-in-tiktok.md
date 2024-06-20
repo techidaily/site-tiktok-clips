@@ -1,7 +1,7 @@
 ---
 title: "The Artisan's Guide to Essential Tools and Techniques in TikTok"
-date: 2024-05-23T06:00:44.572Z
-updated: 2024-05-24T06:00:44.572Z
+date: 2024-06-10T11:09:50.092Z
+updated: 2024-06-11T11:09:50.092Z
 tags:
   - ai video
   - ai tiktok
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes The Artisan's Guide to Essential Tools and Techniques in TikTok"
 excerpt: "This Article Describes The Artisan's Guide to Essential Tools and Techniques in TikTok"
 keywords: "TikTok Crafting Basics,Social Media Creator Toolkit,DIY Content Production,Video Artisan Guide,Essential TikTok Tools,Mastering TikTok Techniques,Digital Craftsman Tips"
-thumbnail: https://www.lifewire.com/thmb/M_X1ma-kuwmeQ-kg-ITiIY4tMQQ=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/ScreenShot2023-03-14at12.27.14PM-07cb4c0039e84004a9918ecb5dee60ec.jpg
+thumbnail: https://thmb.techidaily.com/c29c22f9ff431826e0b45507bb8fd6710d810a2c350e0ba60cc8399b6967ad03.jpg
 ---
 
 ## The Artisan's Guide to Essential Tools and Techniques in TikTok

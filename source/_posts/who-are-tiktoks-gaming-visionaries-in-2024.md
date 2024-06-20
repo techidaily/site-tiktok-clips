@@ -1,7 +1,7 @@
 ---
 title: "Who Are TikTok’s Gaming Visionaries, In 2024"
-date: 2024-05-23T07:05:05.565Z
-updated: 2024-05-24T07:05:05.565Z
+date: 2024-06-10T11:09:46.804Z
+updated: 2024-06-11T11:09:46.804Z
 tags:
   - ai video
   - ai tiktok
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes Who Are TikTok’s Gaming Visionaries, In 2024"
 excerpt: "This Article Describes Who Are TikTok’s Gaming Visionaries, In 2024"
 keywords: "TikTok Gamers,TikTok Influencers,Gaming TikTok Stars,TikTok Video Gaming,Digital Game Creators,TikTok Gamification,Visionary TikTokers"
-thumbnail: https://www.lifewire.com/thmb/VMPWrpjVgFPc7xmvdAxDfHhWGtw=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/12-pc.jpg.thumb-3e7162f1a64a47938ab2b8ffa5d6b02e.jpeg
+thumbnail: https://thmb.techidaily.com/669bc1413d235f8908afbf69f357ad5578fda1c3066e7cdb610eb41a93c8a8ff.jpeg
 ---
 
 ## Who Are TikTok’s Gaming Visionaries?

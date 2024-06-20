@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Sketching the Perfect End-Credits Scene for Your TikTok\""
-date: 2024-05-23T06:44:44.590Z
-updated: 2024-05-24T06:44:44.590Z
+date: 2024-06-10T11:09:44.152Z
+updated: 2024-06-11T11:09:44.152Z
 tags:
   - ai video
   - ai tiktok
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] Sketching the Perfect End-Credits Scene for Your TikTok\""
 excerpt: "\"This Article Describes [New] Sketching the Perfect End-Credits Scene for Your TikTok\""
 keywords: "\"TikTok End-Credits,TikTok Video Finale,TikTok Scene Sketching,Perfect TikTok Credits,End-Credit TikTok Art,Sketching TikTok Credits,TikTok Credits Design\""
-thumbnail: https://www.lifewire.com/thmb/eS1YD0LsEQhVuAP3cxZA8t-_eDU=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/iPad-Pro_creative-sketch_10302018-5be0773ac9e77c0051d5d51c.jpg
+thumbnail: https://thmb.techidaily.com/a74c765fb6818efdc56bfc7805aa17daf214ba70cf5906bbca11c158a428c514.jpg
 ---
 
 ## Sketching the Perfect End-Credits Scene for Your TikTok

@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Live Dance Performances on Xigua Video\""
-date: 2024-05-23T06:33:39.506Z
-updated: 2024-05-24T06:33:39.506Z
+date: 2024-06-10T11:09:53.306Z
+updated: 2024-06-11T11:09:53.306Z
 tags:
   - ai video
   - ai tiktok
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes 2024 Approved: Live Dance Performances on Xigua Video\""
 excerpt: "\"This Article Describes 2024 Approved: Live Dance Performances on Xigua Video\""
 keywords: "\"Dance Performances Live,Xigua Dance Videos,Urban Dance Shows,Real-Time Dance Events,Contemporary Dance Streams,Global Dance Viewing,Flexible Dance Schedule\""
-thumbnail: https://www.lifewire.com/thmb/tZs_6qGSNryQsbN529GCP9qyrX4=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/LedePhoto-Photobyrawpixel.comfromPexels-5c6f47fccff47e0001b1e2b6.jpg
+thumbnail: https://thmb.techidaily.com/f039a729b962f9ef9ca84af335ac6a5c033da72e1971abe6cb320e3e4a83ec5c.jpg
 ---
 
 ## Live Dance Performances on Xigua Video

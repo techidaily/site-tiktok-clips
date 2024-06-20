@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Zen-Like Jams  Top 20 Relaxing Country Anthems for Stress-Free Dancing (TikTok)\""
-date: 2024-05-23T08:19:10.214Z
-updated: 2024-05-24T08:19:10.214Z
+date: 2024-06-10T11:09:59.254Z
+updated: 2024-06-11T11:09:59.254Z
 tags:
   - ai video
   - ai tiktok
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] 2024 Approved: Zen-Like Jams: Top 20 Relaxing Country Anthems for Stress-Free Dancing (TikTok)\""
 excerpt: "\"This Article Describes [New] 2024 Approved: Zen-Like Jams: Top 20 Relaxing Country Anthems for Stress-Free Dancing (TikTok)\""
 keywords: "\"Country Relaxation Music,Zen Country Tunes,Tranquil Country Dance,Relaxing Country Anthems,Stress-Free Country Playlist,Serene Country Songs,Calm Country Melodies\""
-thumbnail: https://www.lifewire.com/thmb/yVMmC6tCZRHR2am7ewQ_-YI7VsM=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-1391239642-072f579613f7404e9a0ea6ff66e70b74.jpg
+thumbnail: https://thmb.techidaily.com/e0dd15b42e7cb5414bdb7af5c281fcfdfef62e342cd4798dfe7202dea8939dfe.jpg
 ---
 
 ## Zen-Like Jams: Top 20 Relaxing Country Anthems for Stress-Free Dancing (TikTok)

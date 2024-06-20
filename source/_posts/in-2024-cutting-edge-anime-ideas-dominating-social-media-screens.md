@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Cutting-Edge Anime Ideas Dominating Social Media Screens\""
-date: 2024-05-23T06:15:32.364Z
-updated: 2024-05-24T06:15:32.364Z
+date: 2024-06-10T11:09:47.946Z
+updated: 2024-06-11T11:09:47.946Z
 tags:
   - ai video
   - ai tiktok
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes In 2024, Cutting-Edge Anime Ideas Dominating Social Media Screens\""
 excerpt: "\"This Article Describes In 2024, Cutting-Edge Anime Ideas Dominating Social Media Screens\""
 keywords: "Anime Trendsetters,Social Anime Fame,Modern Anime Wave,Viral Anime Concepts,Innovative Anime Ideas,Popular Anime Themes,Social Media Anime Impact"
-thumbnail: https://www.lifewire.com/thmb/kVKv2QKJ0fj1h6wdr_yYFvrF7Ck=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/twitter-5b30fe0b119fa8003695f19c-f3ec947651c04c208605769044146fe3.jpg
+thumbnail: https://thmb.techidaily.com/bbcc4a007f0a07614972fe24eb730165421ff81b1eea5d7fad50043a76fd78c0.jpg
 ---
 
 ## Cutting-Edge Anime Ideas Dominating Social Media Screens

@@ -1,7 +1,7 @@
 ---
 title: "Enabling Screenshots and Recordings of Snaps"
-date: 2024-05-23T05:47:40.752Z
-updated: 2024-05-24T05:47:40.752Z
+date: 2024-06-10T11:09:55.422Z
+updated: 2024-06-11T11:09:55.422Z
 tags:
   - ai video
   - ai snapchat
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes Enabling Screenshots and Recordings of Snaps"
 excerpt: "This Article Describes Enabling Screenshots and Recordings of Snaps"
 keywords: "Snap Screen Recording,Capture Snap Video,Share Snap Features,Snapchat Recording Tools,Enable Snap Content,Snap Record Functions,Use Snaps for Videos"
-thumbnail: https://www.lifewire.com/thmb/ZoFksP-ijfTY1R_eJS-zfSIgOQc=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/the-12-best-group-video-call-apps-in-2020-bd94fd657b5643088166b1df441b8614.jpg
+thumbnail: https://thmb.techidaily.com/a770835b076eb6b9f15ef9eaa24a0d7865dfb16a5caaa3e52196c91037b09546.jpg
 ---
 
 ## Enabling Screenshots and Recordings of Snaps

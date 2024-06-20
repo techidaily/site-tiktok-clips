@@ -1,7 +1,7 @@
 ---
 title: "Dance Away Worries with These 20 Soothing Country Hits (TikTok Edition) for 2024"
-date: 2024-05-23T06:15:47.176Z
-updated: 2024-05-24T06:15:47.176Z
+date: 2024-06-10T11:09:49.197Z
+updated: 2024-06-11T11:09:49.197Z
 tags:
   - ai video
   - ai tiktok
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes Dance Away Worries with These 20 Soothing Country Hits (TikTok Edition) for 2024"
 excerpt: "This Article Describes Dance Away Worries with These 20 Soothing Country Hits (TikTok Edition) for 2024"
 keywords: "Dance Relief Country Music,TikTok Calming Songs,Country Tunes Ease Worries,Soothing Hits Country EDM,Peaceful Country Playlists,Serene Country Soundtracks,Harmonious Country Trance"
-thumbnail: https://www.lifewire.com/thmb/Io31dsLA5x59AerOl1OVgtsSCrU=/540x405/filters:no_upscale():max_bytes(150000):strip_icc()/JasonBourne2-578fd3ac3df78c09e9741172.jpg
+thumbnail: https://thmb.techidaily.com/dccb34317888d85bf5b03242f6ff077822b2720dd93141b57f6f0f2fbe555fd1.jpg
 ---
 
 ## Dance Away Worries with These 20 Soothing Country Hits (TikTok Edition)

@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Yummy Yields  The 10 Most Popular Food Trends on Social Media\""
-date: 2024-05-23T07:05:33.912Z
-updated: 2024-05-24T07:05:33.912Z
+date: 2024-06-10T11:09:51.638Z
+updated: 2024-06-11T11:09:51.638Z
 tags:
   - ai video
   - ai tiktok
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes In 2024, Yummy Yields: The 10 Most Popular Food Trends on Social Media\""
 excerpt: "\"This Article Describes In 2024, Yummy Yields: The 10 Most Popular Food Trends on Social Media\""
 keywords: "Food Trends Social,Social Media Eats,Tasty Fads Now,Culinary Hits,Yum Yields Growth,Top Food Fashions,Popular Dining Sets"
-thumbnail: https://www.lifewire.com/thmb/n9iwgsUaqixGCfd3WwG5mVHUeCM=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/samsung-smart-hub-home-screen-amazon-a878f50f6134442b843b7678d5356cae.jpg
+thumbnail: https://thmb.techidaily.com/6e5f95b25124810982ee054b31aff132061c491b9479b9ba216941d7d9600153.jpg
 ---
 
 ## Yummy Yields: The 10 Most Popular Food Trends on Social Media

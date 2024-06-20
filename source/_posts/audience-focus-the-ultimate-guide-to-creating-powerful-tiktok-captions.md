@@ -1,7 +1,7 @@
 ---
 title: "\"Audience Focus  The Ultimate Guide to Creating Powerful TikTok Captions\""
-date: 2024-05-23T05:52:03.652Z
-updated: 2024-05-24T05:52:03.652Z
+date: 2024-06-10T11:09:59.779Z
+updated: 2024-06-11T11:09:59.779Z
 tags:
   - ai video
   - ai tiktok
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes Audience Focus: The Ultimate Guide to Creating Powerful TikTok Captions\""
 excerpt: "\"This Article Describes Audience Focus: The Ultimate Guide to Creating Powerful TikTok Captions\""
 keywords: "TikTok Captioning Basics,Effective TikTok Copywriting,Engaging TikTok Videos,Crafting Powerful TikTok Lyrics,TikTok Content Strategy Guide,Mastering TikTok Copytalk,TikTok Audience Connection Techniques"
-thumbnail: https://www.lifewire.com/thmb/bbeiFr7M7Hblm82AcPyl3Z3IAu4=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/001_how-to-fix-it-when-roku-tv-sound-is-not-working-5198644-bc2ace5bd66c4dcb9ba516eac5fc3df8.jpg
+thumbnail: https://thmb.techidaily.com/9b3d4059cce82d617824aff75bbe2c1cfb1dda056b7a7373daee332b511aa58b.jpg
 ---
 
 ## Audience Focus: The Ultimate Guide to Creating Powerful TikTok Captions

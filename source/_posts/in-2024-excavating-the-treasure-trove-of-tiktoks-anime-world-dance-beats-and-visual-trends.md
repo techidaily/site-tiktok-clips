@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Excavating the Treasure Trove of TikTok's Anime World  Dance Beats & Visual Trends\""
-date: 2024-05-23T06:23:03.797Z
-updated: 2024-05-24T06:23:03.797Z
+date: 2024-06-10T11:09:46.864Z
+updated: 2024-06-11T11:09:46.864Z
 tags:
   - ai video
   - ai tiktok
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes In 2024, Excavating the Treasure Trove of TikTok's Anime World: Dance Beats & Visual Trends\""
 excerpt: "\"This Article Describes In 2024, Excavating the Treasure Trove of TikTok's Anime World: Dance Beats & Visual Trends\""
 keywords: "Anime on TikTok,TikTok Dance Trends,TikTok Anime Beats,TikTok Visual Culture,Dance TikTok Content,Trending TikTok Dances,Visual Anime TikTok"
-thumbnail: https://www.lifewire.com/thmb/uT-JrexZYyu0j4zBmYw9mc5APb0=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/elisa-ventur-bmJAXAz6ads-unsplash-66563177490249cd8a8c896e48ff4d8e.jpg
+thumbnail: https://thmb.techidaily.com/14595ce84d31d38abb3ed2fa0891687712e003ea9a69810e6bfa5725263bbf33.jpg
 ---
 
 ## Excavating the Treasure Trove of TikTok's Anime World: Dance Beats & Visual Trends

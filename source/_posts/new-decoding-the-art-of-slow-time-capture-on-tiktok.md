@@ -1,7 +1,7 @@
 ---
 title: "[New] Decoding the Art of Slow Time Capture on TikTok"
-date: 2024-05-23T06:16:13.371Z
-updated: 2024-05-24T06:16:13.371Z
+date: 2024-06-10T11:09:44.375Z
+updated: 2024-06-11T11:09:44.375Z
 tags:
   - ai video
   - ai tiktok
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] Decoding the Art of Slow Time Capture on TikTok"
 excerpt: "This Article Describes [New] Decoding the Art of Slow Time Capture on TikTok"
 keywords: "\"Slow Time TikTok Technique,TikTok Video Pacing,Creative Slow Motion TikTok,TikTok Time-Lapse Artistry,Mastering Slow Edits on TikTok,Innovative TikTok Slow Capture,TikTok Timelapse Creation Skills\""
-thumbnail: https://www.lifewire.com/thmb/asCAao3Tfs8ZxVZumyLz52-mVek=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/how-to-increase-internet-speed-5181475-b6fd84098c634a04a6934302184c5b1b.jpg
+thumbnail: https://thmb.techidaily.com/84aaf27f955a6ba5c37b777f8ab3f4dc75b3cebc10a8c5dcc535bfa16bc60ba0.jpg
 ---
 
 ## Decoding the Art of Slow Time Capture on TikTok

@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, TikTok Basics for Mac/Windows Computers Explained"
-date: 2024-05-23T08:05:29.452Z
-updated: 2024-05-24T08:05:29.452Z
+date: 2024-06-10T11:09:59.077Z
+updated: 2024-06-11T11:09:59.077Z
 tags:
   - ai video
   - ai tiktok
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] In 2024, TikTok Basics for Mac/Windows Computers Explained"
 excerpt: "This Article Describes [New] In 2024, TikTok Basics for Mac/Windows Computers Explained"
 keywords: "TikTok on PC,Mac TikTok Guide,Windows TikTok Use,TikTok PC Basics,Learn TikTok (Mac/Windows),TikTok PC Explained,TikTok Platform PC"
-thumbnail: https://www.lifewire.com/thmb/sWAYEcqZpKywaSsbPZ2ngyPJTHA=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-488000125-58b6dea85f9b586046485413-5c659d39c9e77c0001755243.jpg
+thumbnail: https://thmb.techidaily.com/e8596feeaa10b5decf0ac423846001bcbe9ce2de917f68ea7f6f367d6a2483c3.jpg
 ---
 
 ## TikTok Basics for Mac/Windows Computers Explained

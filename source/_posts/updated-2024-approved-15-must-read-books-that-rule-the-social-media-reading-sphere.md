@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  15 Must-Read Books that Rule the Social Media Reading Sphere\""
-date: 2024-05-23T07:06:11.916Z
-updated: 2024-05-24T07:06:11.916Z
+date: 2024-06-10T11:10:03.646Z
+updated: 2024-06-11T11:10:03.646Z
 tags:
   - ai video
   - ai tiktok
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] 2024 Approved: 15 Must-Read Books that Rule the Social Media Reading Sphere\""
 excerpt: "\"This Article Describes [Updated] 2024 Approved: 15 Must-Read Books that Rule the Social Media Reading Sphere\""
 keywords: "\"SocialMediaBooks,InfluencerReads,TopBookList,OnlineSphereRules,DigitalBookTrends,ReadingCulture,E-ReadingGuide\""
-thumbnail: https://www.lifewire.com/thmb/DdypE3IFlSjfet1uIEYdsYO39G8=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/usingbingai-66291c204fc442b3a2c3bf504dc7af68.jpg
+thumbnail: https://thmb.techidaily.com/9c54005e696cd2ed7b70760eb63ef402583a5567abcd354a24f074d4d0059be5.jpg
 ---
 
 ## 15 Must-Read Books that Rule the Social Media Reading Sphere

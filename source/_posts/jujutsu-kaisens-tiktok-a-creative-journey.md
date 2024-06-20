@@ -1,7 +1,7 @@
 ---
 title: "\"Jujutsu Kaisen's TikTok  A Creative Journey\""
-date: 2024-05-23T05:57:16.796Z
-updated: 2024-05-24T05:57:16.796Z
+date: 2024-06-10T11:10:01.650Z
+updated: 2024-06-11T11:10:01.650Z
 tags:
   - ai video
   - ai tiktok
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes Jujutsu Kaisen's TikTok: A Creative Journey\""
 excerpt: "\"This Article Describes Jujutsu Kaisen's TikTok: A Creative Journey\""
 keywords: "JujutsuKaisenCreative,TikTokJujutsuCinema,KaisenJourneyContent,JujutsuArtformOnline,TikTokSpectacleShowcase,CreativityInKaisenMedia,JujutsuNarrativeTikTok"
-thumbnail: https://www.lifewire.com/thmb/XA451cx1FYvpcmr9v67cHXy-zDg=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/PortableCarHeater_534759-b31dbf8ec1a2491ea8ee248280de9f55.png
+thumbnail: https://thmb.techidaily.com/89da125ea493abc275649c1f57ef017273ab0d0d83c11a51da5e1af69c65adca.png
 ---
 
 ## Jujutsu Kaisen's TikTok: A Creative Journey

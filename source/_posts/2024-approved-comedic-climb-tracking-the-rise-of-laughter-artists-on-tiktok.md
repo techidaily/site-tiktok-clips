@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Comedic Climb  Tracking the Rise of Laughter Artists on TikTok\""
-date: 2024-05-23T06:12:52.824Z
-updated: 2024-05-24T06:12:52.824Z
+date: 2024-06-10T11:09:45.056Z
+updated: 2024-06-11T11:09:45.056Z
 tags:
   - ai video
   - ai tiktok
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes 2024 Approved: Comedic Climb: Tracking the Rise of Laughter Artists on TikTok\""
 excerpt: "\"This Article Describes 2024 Approved: Comedic Climb: Tracking the Rise of Laughter Artists on TikTok\""
 keywords: "TikTok Comedy Stars,Laugh On TikTok,Funny TikTok Creators,Humor TikToks Rise,Chuckle Clips TikTok,Giggle Gang TikTok,Mirth Makers on TikTok"
-thumbnail: https://www.lifewire.com/thmb/WhrmiR8TVuBdOygGd-QTOPgMI8c=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-880446958-cfc12fc7b7144483a6334a1bf7c8cd62.jpg
+thumbnail: https://thmb.techidaily.com/ecd5393b4b11cd27ce9b151fec19432ec4c563d2b818d2405502179fc7ce1c3d.jpg
 ---
 
 ## Comedic Climb: Tracking the Rise of Laughter Artists on TikTok

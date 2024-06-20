@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Gastronomic Geniuses on TikTok\""
-date: 2024-05-23T06:27:10.180Z
-updated: 2024-05-24T06:27:10.180Z
+date: 2024-06-10T11:09:57.813Z
+updated: 2024-06-11T11:09:57.813Z
 tags:
   - ai video
   - ai tiktok
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes 2024 Approved: Gastronomic Geniuses on TikTok\""
 excerpt: "\"This Article Describes 2024 Approved: Gastronomic Geniuses on TikTok\""
 keywords: "Gourmet Chefs TikTok,Food Masters TikTok,Culinary Stars TikTok,Top Chef TikToks,Cooking Sensations TikTok,Flavor Innovators TikTok,Tasty Talent TikTok"
-thumbnail: https://www.lifewire.com/thmb/nqSALb7zNdT8nFxf209ImwIDLX0=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/ScreenShot2021-06-10at11.00.05AM-54419e7f430d4753971645b6e3580923.png
+thumbnail: https://thmb.techidaily.com/124b72dbf62c2315133422a27b4166aca8de938c7b4431d8ccd93ecf0eac5efe.png
 ---
 
 ## Gastronomic Geniuses on TikTok

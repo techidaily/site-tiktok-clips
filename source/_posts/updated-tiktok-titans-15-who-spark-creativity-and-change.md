@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] TikTok Titans  15 Who Spark Creativity and Change\""
-date: 2024-05-23T06:55:11.039Z
-updated: 2024-05-24T06:55:11.039Z
+date: 2024-06-10T11:09:45.466Z
+updated: 2024-06-11T11:09:45.466Z
 tags:
   - ai video
   - ai tiktok
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] TikTok Titans: 15 Who Spark Creativity and Change\""
 excerpt: "\"This Article Describes [Updated] TikTok Titans: 15 Who Spark Creativity and Change\""
 keywords: "\"TikTok Creators,Viral Content Makers,Social Media Innovators,Creative TikTokers,TikTok Change-Makers,Trendsetters on TikTok,Generation Z Video Stars\""
-thumbnail: https://www.lifewire.com/thmb/mK-HmnWarrLiD8ffOlJlcSgm-2U=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/unnamed-6870a02faf0b4509a94bb66c2b174d72.jpg
+thumbnail: https://thmb.techidaily.com/6f24909f969f84628da7cca908a8ecbcf1f1310799ac0e990b393370971b6be4.jpg
 ---
 
 ## TikTok Titans: 15 Who Spark Creativity and Change

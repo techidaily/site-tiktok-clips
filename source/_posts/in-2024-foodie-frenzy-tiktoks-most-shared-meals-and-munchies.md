@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Foodie Frenzy  TikTok's Most Shared Meals and Munchies\""
-date: 2024-05-23T06:25:26.307Z
-updated: 2024-05-24T06:25:26.307Z
+date: 2024-06-10T11:09:44.300Z
+updated: 2024-06-11T11:09:44.300Z
 tags:
   - ai video
   - ai tiktok
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes In 2024, Foodie Frenzy: TikTok's Most Shared Meals and Munchies\""
 excerpt: "\"This Article Describes In 2024, Foodie Frenzy: TikTok's Most Shared Meals and Munchies\""
 keywords: "TikTok Food Trends,Viral Eating Challenges,Popular Culinary TikToks,Social Media Gourmet Hits,Shared Meal Videos,Munchies on TikTok,Top TikTok Flavors"
-thumbnail: https://www.lifewire.com/thmb/u_weu7VlzfaCNynbz926Bw2Eank=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-1235391240-4215b7c52f5441ab827bfdde8eb4b1c1.jpg
+thumbnail: https://thmb.techidaily.com/b89bc76dab2d2da8b94cbca20640b5005a7d287429d61f6d3112ce6c1768b0a9.jpg
 ---
 
 ## Foodie Frenzy: TikTok's Most Shared Meals and Munchies

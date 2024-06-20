@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Anime Emojis & Animations  Sprucing Up Your TikTok Videos\""
-date: 2024-05-23T06:07:47.506Z
-updated: 2024-05-24T06:07:47.506Z
+date: 2024-06-10T11:09:52.296Z
+updated: 2024-06-11T11:09:52.296Z
 tags:
   - ai video
   - ai tiktok
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes In 2024, Anime Emojis & Animations: Sprucing Up Your TikTok Videos\""
 excerpt: "\"This Article Describes In 2024, Anime Emojis & Animations: Sprucing Up Your TikTok Videos\""
 keywords: "Anime TikTok Trends,Emoji in TikTok,Animation Video Art,TikTok Emoji Use,TikTok Animated Snippets,Spruce Up TikTok Videos,Anime Content for TikTok"
-thumbnail: https://www.lifewire.com/thmb/mG1jEzWorlq7_ZhXbAoV8fWxZ_g=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/481205627-5804f62c3df78cbc289797fb.jpg
+thumbnail: https://thmb.techidaily.com/de1e2dcf5aeceec6efa479819bb7032cddf48c94924e3a65a00624e5b7030be4.jpg
 ---
 
 ## Anime Emojis & Animations: Sprucing Up Your TikTok Videos

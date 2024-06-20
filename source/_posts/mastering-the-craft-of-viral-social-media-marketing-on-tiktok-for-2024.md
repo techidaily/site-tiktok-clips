@@ -1,7 +1,7 @@
 ---
 title: "Mastering the Craft of Viral Social Media Marketing on TikTok for 2024"
-date: 2024-05-23T06:35:43.380Z
-updated: 2024-05-24T06:35:43.380Z
+date: 2024-06-10T11:09:56.699Z
+updated: 2024-06-11T11:09:56.699Z
 tags:
   - ai video
   - ai tiktok
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes Mastering the Craft of Viral Social Media Marketing on TikTok for 2024"
 excerpt: "This Article Describes Mastering the Craft of Viral Social Media Marketing on TikTok for 2024"
 keywords: "TikTok Marketing,Viral Content Strategies,Social Media Influencing,Crafting Memes Effectively,Engaging TikTok Audiences,Video SEO for TikTok,Building Brand on TikTok"
-thumbnail: https://www.lifewire.com/thmb/ptJRWjuxgGi4z_RocHeofAowbvw=/540x405/filters:no_upscale():max_bytes(150000):strip_icc()/kilian-seiler-PZLgTUAhxMM-unsplash-3c3f238654c44171a5febe7a0f5749c5.jpg
+thumbnail: https://thmb.techidaily.com/a8dc09aa00b57fb659621da31b365534682fa3f06b50eb65c4dc48b9a72515ec.jpg
 ---
 
 ## Mastering the Craft of Viral Social Media Marketing on TikTok

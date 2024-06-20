@@ -1,7 +1,7 @@
 ---
 title: "[New] Top Relaxing Country Bops & Beats for Dance Parties on TikTok for 2024"
-date: 2024-05-23T08:09:49.458Z
-updated: 2024-05-24T08:09:49.458Z
+date: 2024-06-10T11:09:52.430Z
+updated: 2024-06-11T11:09:52.430Z
 tags:
   - ai video
   - ai tiktok
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] Top Relaxing Country Bops & Beats for Dance Parties on TikTok for 2024"
 excerpt: "This Article Describes [New] Top Relaxing Country Bops & Beats for Dance Parties on TikTok for 2024"
 keywords: "Country Bop Music,Relaxing Bops,Country Dance Beats,TikTok Party Hits,Bouncy Country Tunes,Serene Country Rhythms,TikTok Dance Grooves"
-thumbnail: https://www.lifewire.com/thmb/r3jpq9ROQxLDw5jkzVWst0zLBF0=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-1257729194-27ecd3f4d103424a8ece636fc6e2efbd.jpg
+thumbnail: https://thmb.techidaily.com/647ef78b4d08f0529cf98c1ddda37990b536ba3daaeb866103686a0f1d6cb404.jpg
 ---
 
 ## Top Relaxing Country Bops & Beats for Dance Parties on TikTok

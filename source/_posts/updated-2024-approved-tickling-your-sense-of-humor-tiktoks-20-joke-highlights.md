@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Tickling Your Sense of Humor  TikTok's 20 Joke Highlights\""
-date: 2024-05-23T08:05:17.805Z
-updated: 2024-05-24T08:05:17.805Z
+date: 2024-06-10T11:09:42.573Z
+updated: 2024-06-11T11:09:42.573Z
 tags:
   - ai video
   - ai tiktok
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] 2024 Approved: Tickling Your Sense of Humor: TikTok's 20 Joke Highlights\""
 excerpt: "\"This Article Describes [Updated] 2024 Approved: Tickling Your Sense of Humor: TikTok's 20 Joke Highlights\""
 keywords: "\"TikTok Funny Moments,Comedy on TikTok,TikTok Laughter Hits,Jokes in Short Video,Social Media Humor,Viral TikTok Joke,Light-Hearted TikToks\""
-thumbnail: https://www.lifewire.com/thmb/cYWko2t9itR_ENyceDuRtljqnZ4=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/jens-kreuter-85328-c5ada5fb87224444a49aaa4ad1e16897.jpg
+thumbnail: https://thmb.techidaily.com/e238ad00eb0e97c8dd57c3ad56e056f669853f2127f27582290858df483758e7.jpg
 ---
 
 ## Tickling Your Sense of Humor: TikTok's 20 Joke Highlights

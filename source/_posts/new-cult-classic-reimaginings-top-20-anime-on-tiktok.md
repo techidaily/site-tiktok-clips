@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Cult Classic Reimaginings  Top 20 Anime on TikTok\""
-date: 2024-05-23T06:15:24.876Z
-updated: 2024-05-24T06:15:24.876Z
+date: 2024-06-10T11:09:45.781Z
+updated: 2024-06-11T11:09:45.781Z
 tags:
   - ai video
   - ai tiktok
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] Cult Classic Reimaginings: Top 20 Anime on TikTok\""
 excerpt: "\"This Article Describes [New] Cult Classic Reimaginings: Top 20 Anime on TikTok\""
 keywords: "Anime Trends TikTok,Cult Anime Spotlight,Retro Anime Oneshot,Cutie Reimagined,Anime VFX TikTok,Nostalgic Anime Viral,Iconic Anime Tweets"
-thumbnail: https://www.lifewire.com/thmb/WpEjByZxjDiu1dRhYVfqcDWX2LU=/2000x0/filters:no_upscale():max_bytes(150000):strip_icc()/Phones_GettyImages-1314284781_ORIG_d3sign._CROPPEDjpg-c1cb62860b3e4228b51aa8566e84abb0.jpg
+thumbnail: https://thmb.techidaily.com/033e16fe59890bceeadfe993413908bd7b5cc9fe4734b479814370ac29d24cc7.jpg
 ---
 
 ## Cult Classic Reimaginings: Top 20 Anime on TikTok

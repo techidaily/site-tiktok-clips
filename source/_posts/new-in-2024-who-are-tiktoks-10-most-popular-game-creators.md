@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Who Are TikTok’s 10 Most Popular Game Creators?"
-date: 2024-05-23T08:18:25.092Z
-updated: 2024-05-24T08:18:25.092Z
+date: 2024-06-10T11:09:59.825Z
+updated: 2024-06-11T11:09:59.825Z
 tags:
   - ai video
   - ai tiktok
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] In 2024, Who Are TikTok’s 10 Most Popular Game Creators?"
 excerpt: "This Article Describes [New] In 2024, Who Are TikTok’s 10 Most Popular Game Creators?"
 keywords: "TikTok Game Creators List,Top TikTok Gamers,Famous TikTok Games,TikTok Gaming Stars,Popular TikTok Games,Leading TikTok Gamers,Top 10 TikTok Game Artists"
-thumbnail: https://www.lifewire.com/thmb/KCMurutkqAfPSo5W9qDLluVkoHw=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/the-7-best-british-streaming-services-in-2022-5215691-63322024c7ca43b2ad998016d33c7f68.jpg
+thumbnail: https://thmb.techidaily.com/300b8b150f8464b487683b06984fcbd6662b4fb116965638afb915b9861f6dbd.jpg
 ---
 
 ## Who Are TikTok’s 10 Most Popular Game Creators?

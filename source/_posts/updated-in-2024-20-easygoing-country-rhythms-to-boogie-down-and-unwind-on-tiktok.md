@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, 20 Easygoing Country Rhythms to Boogie Down & Unwind on TikTok"
-date: 2024-05-23T07:06:19.298Z
-updated: 2024-05-24T07:06:19.298Z
+date: 2024-06-10T11:10:02.086Z
+updated: 2024-06-11T11:10:02.086Z
 tags:
   - ai video
   - ai tiktok
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [Updated] In 2024, 20 Easygoing Country Rhythms to Boogie Down & Unwind on TikTok"
 excerpt: "This Article Describes [Updated] In 2024, 20 Easygoing Country Rhythms to Boogie Down & Unwind on TikTok"
 keywords: "\"Country TikTok Beats,TikTok Rhythm Dance,Relaxing Country Songs,Easy-Going Country Music,Boogie Down Country Tracks,Unwind with Country Vibes,Country Chill Playlist\""
-thumbnail: https://www.lifewire.com/thmb/eHXngyyoX5Le8j_8_iSN0qts3UM=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/projectorheadlights-5c252a8446e0fb0001500eef.jpg
+thumbnail: https://thmb.techidaily.com/4d762caa04f98755e083fa6f19084871af3024b44e5497cff1919865c9f50ec3.jpg
 ---
 
 ## 20 Easygoing Country Rhythms to Boogie Down & Unwind on TikTok
