@@ -1,7 +1,7 @@
 ---
 title: "[Updated] The Ultimate Cheat Sheet to Creating Captivating Slow Motion on TikTok"
-date: 2024-05-23T06:52:18.944Z
-updated: 2024-05-24T06:52:18.944Z
+date: 2024-06-19T14:47:22.106Z
+updated: 2024-06-20T14:47:22.106Z
 tags:
   - ai video
   - ai tiktok
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [Updated] The Ultimate Cheat Sheet to Creating Captivating Slow Motion on TikTok"
 excerpt: "This Article Describes [Updated] The Ultimate Cheat Sheet to Creating Captivating Slow Motion on TikTok"
 keywords: "\"TikTok Slow Mo Creation,Engaging TikTok Videos,TikTok Motion Cheat Sheet,Captivating TikTok Editing,Ultimate TikTok Effects Guide,Easy TikTok Slow Motion Techniques,Mastering TikTok Time-Lapse\""
-thumbnail: https://www.lifewire.com/thmb/k58vbJPuDCjL1Uf6h00LpxDd_5A=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/white-office-desk-table-with-a-lot-of-things-on-it--top-view-with-copy-space--637047700-5a24617b4e46ba001a6d6d23.jpg
+thumbnail: https://thmb.techidaily.com/db345622b66c3b6984b775950925cc8114e2a134a67c761a2d6a6d2fb5b65330.jpg
 ---
 
 ## The Ultimate Cheat Sheet to Creating Captivating Slow Motion on TikTok

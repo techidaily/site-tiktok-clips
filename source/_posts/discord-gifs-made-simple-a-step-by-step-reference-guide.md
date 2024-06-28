@@ -1,7 +1,7 @@
 ---
 title: "\"Discord Gifs Made Simple  A Step-by-Step Reference Guide\""
-date: 2024-05-23T08:22:26.800Z
-updated: 2024-05-24T08:22:26.800Z
+date: 2024-06-19T14:47:22.467Z
+updated: 2024-06-20T14:47:22.467Z
 tags:
   - ai video
   - ai discord
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes Discord Gifs Made Simple: A Step-by-Step Reference Guide\""
 excerpt: "\"This Article Describes Discord Gifs Made Simple: A Step-by-Step Reference Guide\""
 keywords: "\"Discord Gif Guide,Simplified Gif Use,Discord Image Tips,Gif Reference for Discord,Easy Discord Images,Step-by-Step Gif Help,Discord Gifs Quickly\""
-thumbnail: https://www.lifewire.com/thmb/aRH6vOV_0jBflE3kV0tZyaKc5sA=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/computergirl-5a4c08d45b6e24003798be4a.jpg
+thumbnail: https://thmb.techidaily.com/5e51a6387f9a892e242df734bd7d8aebcab09cf3323b4c96e24f50d5adccd843.jpg
 ---
 
 ## Discord Gifs Made Simple: A Step-by-Step Reference Guide

@@ -1,7 +1,7 @@
 ---
 title: "Quick & Simple Edits for an Edge in the TikTok World"
-date: 2024-05-23T05:59:09.363Z
-updated: 2024-05-24T05:59:09.363Z
+date: 2024-06-19T14:47:17.911Z
+updated: 2024-06-20T14:47:17.911Z
 tags:
   - ai video
   - ai tiktok
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes Quick & Simple Edits for an Edge in the TikTok World"
 excerpt: "This Article Describes Quick & Simple Edits for an Edge in the TikTok World"
 keywords: "\"TikTok Trends Editing,Quick Video Enhancements,Simplified TikTok Filters,Edgy TikTok Content,Social Media Edge-Making,TikTok Aesthetics Boost,Rapid TikTok Updates\""
-thumbnail: https://www.lifewire.com/thmb/2AEKNpBpX9c5HV8uIuJyj9KTOVE=/300x200/filters:no_upscale():max_bytes(150000):strip_icc()/how-to-use-slack-reminders-4843714-11-5406c11a86b94cd3a435ed4b270b512b.jpg
+thumbnail: https://thmb.techidaily.com/7143579495d0f62e1a2cda12fd626d9036d87a576b32c356f772aa95549b6f82.jpg
 ---
 
 ## Quick & Simple Edits for an Edge in the TikTok World

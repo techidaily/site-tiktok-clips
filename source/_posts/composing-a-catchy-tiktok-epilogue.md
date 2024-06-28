@@ -1,7 +1,7 @@
 ---
 title: "Composing a Catchy TikTok Epilogue"
-date: 2024-05-23T05:53:07.064Z
-updated: 2024-05-24T05:53:07.064Z
+date: 2024-06-19T14:47:18.050Z
+updated: 2024-06-20T14:47:18.050Z
 tags:
   - ai video
   - ai tiktok
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes Composing a Catchy TikTok Epilogue"
 excerpt: "This Article Describes Composing a Catchy TikTok Epilogue"
 keywords: "\"TikTok Epiq,Engaging Epilogues,Catchy Closing Scenes,Epilogue Writing Tips,Storytelling Finale Techniques,Viral TikTok Endings,Short-Form Epilogues Craft\""
-thumbnail: https://www.lifewire.com/thmb/ynTHMRKHlmkgnPU-C-PjPaOI_vk=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-1345967858-4e7ba42433504ee899e05ceb500f3b68.jpg
+thumbnail: https://thmb.techidaily.com/c44b3c2a949ed90a1a74d6b8f5c0458cbf8a943f8d64ce0fc757b91844bd2888.jpg
 ---
 
 ## Composing a Catchy TikTok Epilogue
