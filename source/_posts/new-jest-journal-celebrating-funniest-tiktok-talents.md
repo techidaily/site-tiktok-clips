@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Jest Journal  Celebrating Funniest TikTok Talents\""
-date: 2024-05-23T06:31:38.019Z
-updated: 2024-05-24T06:31:38.019Z
+date: 2024-06-27T15:15:45.897Z
+updated: 2024-06-28T15:15:45.897Z
 tags:
   - ai video
   - ai tiktok
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] Jest Journal: Celebrating Funniest TikTok Talents\""
 excerpt: "\"This Article Describes [New] Jest Journal: Celebrating Funniest TikTok Talents\""
 keywords: "Jest Journal Funny TikToks,Top TikTok Comedians,Humor in TikTok Videos,Best TikTok Jokes Online,Celebrating TikTok Talent,Laughs From TikTok Stars,TikTok Talents Showcase"
-thumbnail: https://www.lifewire.com/thmb/C5NsJYR6FRT4y8jRGIvlsTKr6LU=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/santahatcomputer-5ba0332646e0fb0050e7ae93.jpg
+thumbnail: https://thmb.techidaily.com/20e687e989a89b1dd45743ceb6d6d3c635644bf241cd4154d769e7b945709de7.jpg
 ---
 
 ## Jest Journal: Celebrating Funniest TikTok Talents
@@ -41,7 +41,7 @@ This trend started out with Khaby Lame, who posted a video during the pandemic w
 
 Zoom meeting mishaps are one of the most hilarious trends that took TikTok by storm. In the initial pandemic phase, people were getting accustomed to the online world where using zoom was a big challenge for a lot of us. Click [here](https://www.tiktok.com/@jeffyracks/video/6806680007990070534?is%5Fcopy%5Furl=1&is%5Ffrom%5Fwebapp=v1) to see a mishap.
 
-![Zoom Meetings ](https://images.wondershare.com/filmora/article-images/2022/03/2-top-tiktok-comedy-trends-and-stars.png)
+![Zoom Meetings](https://images.wondershare.com/filmora/article-images/2022/03/2-top-tiktok-comedy-trends-and-stars.png)
 
 [_Figure 2: Zoom Meetings_](https://www.tiktok.com/@jeffyracks/video/6806680007990070534?is%5Fcopy%5Furl=1&is%5Ffrom%5Fwebapp=v1)
 
@@ -51,7 +51,7 @@ However, luckily for us, this challenge gave us a lot of hilarious moments as we
 
 A user asked a question, "What’s a video that lives in your head rent-free?"
 
-![Videos that live in your head rent-free ](https://images.wondershare.com/filmora/article-images/2022/03/3-top-tiktok-comedy-trends-and-stars.png)
+![Videos that live in your head rent-free](https://images.wondershare.com/filmora/article-images/2022/03/3-top-tiktok-comedy-trends-and-stars.png)
 
 [_Figure 3: Videos that live in your head rent-free_](https://www.tiktok.com/@tally%5Fnawrocki/video/6922644131298692357?referer%5Furl=https%3A%2F%2Fhotinsocialmedia.com%2F&referer%5Fvideo%5Fid=6922644131298692357&refer=embed)
 
@@ -113,7 +113,7 @@ If you like funny impersonations, “whatchugotforme” is her handle. So, go fo
 
 Lucas and Marcus Dobre are twin brothers who started a YouTube channel along with their two other brothers. They now have a TikTok account with 38.4 million followers. They make different comedy videos, do fun challenges, and also make vlogs.
 
-![“ID pics vs real life” ](https://images.wondershare.com/filmora/article-images/2022/03/9-top-tiktok-comedy-trends-and-stars.png)
+![“ID pics vs real life”](https://images.wondershare.com/filmora/article-images/2022/03/9-top-tiktok-comedy-trends-and-stars.png)
 
 [_Figure 9: “ID pics vs real life”_](https://www.tiktok.com/@dobretwins/video/7036149636691938606?is%5Ffrom%5Fwebapp=1&sender%5Fdevice=pc&web%5Fid7072000409191319041)
 
@@ -189,7 +189,7 @@ Tiktok is an amazing social networking website that provides its users an opport
 
 Zoom meeting mishaps are one of the most hilarious trends that took TikTok by storm. In the initial pandemic phase, people were getting accustomed to the online world where using zoom was a big challenge for a lot of us. Click [here](https://www.tiktok.com/@jeffyracks/video/6806680007990070534?is%5Fcopy%5Furl=1&is%5Ffrom%5Fwebapp=v1) to see a mishap.
 
-![Zoom Meetings ](https://images.wondershare.com/filmora/article-images/2022/03/2-top-tiktok-comedy-trends-and-stars.png)
+![Zoom Meetings](https://images.wondershare.com/filmora/article-images/2022/03/2-top-tiktok-comedy-trends-and-stars.png)
 
 [_Figure 2: Zoom Meetings_](https://www.tiktok.com/@jeffyracks/video/6806680007990070534?is%5Fcopy%5Furl=1&is%5Ffrom%5Fwebapp=v1)
 
@@ -199,7 +199,7 @@ However, luckily for us, this challenge gave us a lot of hilarious moments as we
 
 A user asked a question, "What’s a video that lives in your head rent-free?"
 
-![Videos that live in your head rent-free ](https://images.wondershare.com/filmora/article-images/2022/03/3-top-tiktok-comedy-trends-and-stars.png)
+![Videos that live in your head rent-free](https://images.wondershare.com/filmora/article-images/2022/03/3-top-tiktok-comedy-trends-and-stars.png)
 
 [_Figure 3: Videos that live in your head rent-free_](https://www.tiktok.com/@tally%5Fnawrocki/video/6922644131298692357?referer%5Furl=https%3A%2F%2Fhotinsocialmedia.com%2F&referer%5Fvideo%5Fid=6922644131298692357&refer=embed)
 
@@ -261,7 +261,7 @@ If you like funny impersonations, “whatchugotforme” is her handle. So, go fo
 
 Lucas and Marcus Dobre are twin brothers who started a YouTube channel along with their two other brothers. They now have a TikTok account with 38.4 million followers. They make different comedy videos, do fun challenges, and also make vlogs.
 
-![“ID pics vs real life” ](https://images.wondershare.com/filmora/article-images/2022/03/9-top-tiktok-comedy-trends-and-stars.png)
+![“ID pics vs real life”](https://images.wondershare.com/filmora/article-images/2022/03/9-top-tiktok-comedy-trends-and-stars.png)
 
 [_Figure 9: “ID pics vs real life”_](https://www.tiktok.com/@dobretwins/video/7036149636691938606?is%5Ffrom%5Fwebapp=1&sender%5Fdevice=pc&web%5Fid7072000409191319041)
 
@@ -337,7 +337,7 @@ Tiktok is an amazing social networking website that provides its users an opport
 
 Zoom meeting mishaps are one of the most hilarious trends that took TikTok by storm. In the initial pandemic phase, people were getting accustomed to the online world where using zoom was a big challenge for a lot of us. Click [here](https://www.tiktok.com/@jeffyracks/video/6806680007990070534?is%5Fcopy%5Furl=1&is%5Ffrom%5Fwebapp=v1) to see a mishap.
 
-![Zoom Meetings ](https://images.wondershare.com/filmora/article-images/2022/03/2-top-tiktok-comedy-trends-and-stars.png)
+![Zoom Meetings](https://images.wondershare.com/filmora/article-images/2022/03/2-top-tiktok-comedy-trends-and-stars.png)
 
 [_Figure 2: Zoom Meetings_](https://www.tiktok.com/@jeffyracks/video/6806680007990070534?is%5Fcopy%5Furl=1&is%5Ffrom%5Fwebapp=v1)
 
@@ -347,7 +347,7 @@ However, luckily for us, this challenge gave us a lot of hilarious moments as we
 
 A user asked a question, "What’s a video that lives in your head rent-free?"
 
-![Videos that live in your head rent-free ](https://images.wondershare.com/filmora/article-images/2022/03/3-top-tiktok-comedy-trends-and-stars.png)
+![Videos that live in your head rent-free](https://images.wondershare.com/filmora/article-images/2022/03/3-top-tiktok-comedy-trends-and-stars.png)
 
 [_Figure 3: Videos that live in your head rent-free_](https://www.tiktok.com/@tally%5Fnawrocki/video/6922644131298692357?referer%5Furl=https%3A%2F%2Fhotinsocialmedia.com%2F&referer%5Fvideo%5Fid=6922644131298692357&refer=embed)
 
@@ -409,7 +409,7 @@ If you like funny impersonations, “whatchugotforme” is her handle. So, go fo
 
 Lucas and Marcus Dobre are twin brothers who started a YouTube channel along with their two other brothers. They now have a TikTok account with 38.4 million followers. They make different comedy videos, do fun challenges, and also make vlogs.
 
-![“ID pics vs real life” ](https://images.wondershare.com/filmora/article-images/2022/03/9-top-tiktok-comedy-trends-and-stars.png)
+![“ID pics vs real life”](https://images.wondershare.com/filmora/article-images/2022/03/9-top-tiktok-comedy-trends-and-stars.png)
 
 [_Figure 9: “ID pics vs real life”_](https://www.tiktok.com/@dobretwins/video/7036149636691938606?is%5Ffrom%5Fwebapp=1&sender%5Fdevice=pc&web%5Fid7072000409191319041)
 
@@ -485,7 +485,7 @@ Tiktok is an amazing social networking website that provides its users an opport
 
 Zoom meeting mishaps are one of the most hilarious trends that took TikTok by storm. In the initial pandemic phase, people were getting accustomed to the online world where using zoom was a big challenge for a lot of us. Click [here](https://www.tiktok.com/@jeffyracks/video/6806680007990070534?is%5Fcopy%5Furl=1&is%5Ffrom%5Fwebapp=v1) to see a mishap.
 
-![Zoom Meetings ](https://images.wondershare.com/filmora/article-images/2022/03/2-top-tiktok-comedy-trends-and-stars.png)
+![Zoom Meetings](https://images.wondershare.com/filmora/article-images/2022/03/2-top-tiktok-comedy-trends-and-stars.png)
 
 [_Figure 2: Zoom Meetings_](https://www.tiktok.com/@jeffyracks/video/6806680007990070534?is%5Fcopy%5Furl=1&is%5Ffrom%5Fwebapp=v1)
 
@@ -495,7 +495,7 @@ However, luckily for us, this challenge gave us a lot of hilarious moments as we
 
 A user asked a question, "What’s a video that lives in your head rent-free?"
 
-![Videos that live in your head rent-free ](https://images.wondershare.com/filmora/article-images/2022/03/3-top-tiktok-comedy-trends-and-stars.png)
+![Videos that live in your head rent-free](https://images.wondershare.com/filmora/article-images/2022/03/3-top-tiktok-comedy-trends-and-stars.png)
 
 [_Figure 3: Videos that live in your head rent-free_](https://www.tiktok.com/@tally%5Fnawrocki/video/6922644131298692357?referer%5Furl=https%3A%2F%2Fhotinsocialmedia.com%2F&referer%5Fvideo%5Fid=6922644131298692357&refer=embed)
 
@@ -557,7 +557,7 @@ If you like funny impersonations, “whatchugotforme” is her handle. So, go fo
 
 Lucas and Marcus Dobre are twin brothers who started a YouTube channel along with their two other brothers. They now have a TikTok account with 38.4 million followers. They make different comedy videos, do fun challenges, and also make vlogs.
 
-![“ID pics vs real life” ](https://images.wondershare.com/filmora/article-images/2022/03/9-top-tiktok-comedy-trends-and-stars.png)
+![“ID pics vs real life”](https://images.wondershare.com/filmora/article-images/2022/03/9-top-tiktok-comedy-trends-and-stars.png)
 
 [_Figure 9: “ID pics vs real life”_](https://www.tiktok.com/@dobretwins/video/7036149636691938606?is%5Ffrom%5Fwebapp=1&sender%5Fdevice=pc&web%5Fid7072000409191319041)
 
@@ -727,7 +727,7 @@ In this video, the creator reacts to the videos of people that look ugly at the 
 
 In this video, the creator goes public and randomly touches strangers and records their reactions. There are different types of reactions, some are funny, and some people look annoyed. The video has over 1.6M views and likes.
 
-![best tiktok reaction video - Randomly Touching People In Public ](https://images.wondershare.com/filmora/article-images/2022/04/tiktok-reaction-video-8.jpg)
+![best tiktok reaction video - Randomly Touching People In Public](https://images.wondershare.com/filmora/article-images/2022/04/tiktok-reaction-video-8.jpg)
 
 ### #9 How many songs did you know? By Lucian Reacts
 
@@ -865,7 +865,7 @@ In this video, the creator reacts to the videos of people that look ugly at the 
 
 In this video, the creator goes public and randomly touches strangers and records their reactions. There are different types of reactions, some are funny, and some people look annoyed. The video has over 1.6M views and likes.
 
-![best tiktok reaction video - Randomly Touching People In Public ](https://images.wondershare.com/filmora/article-images/2022/04/tiktok-reaction-video-8.jpg)
+![best tiktok reaction video - Randomly Touching People In Public](https://images.wondershare.com/filmora/article-images/2022/04/tiktok-reaction-video-8.jpg)
 
 ### #9 How many songs did you know? By Lucian Reacts
 
@@ -1003,7 +1003,7 @@ In this video, the creator reacts to the videos of people that look ugly at the 
 
 In this video, the creator goes public and randomly touches strangers and records their reactions. There are different types of reactions, some are funny, and some people look annoyed. The video has over 1.6M views and likes.
 
-![best tiktok reaction video - Randomly Touching People In Public ](https://images.wondershare.com/filmora/article-images/2022/04/tiktok-reaction-video-8.jpg)
+![best tiktok reaction video - Randomly Touching People In Public](https://images.wondershare.com/filmora/article-images/2022/04/tiktok-reaction-video-8.jpg)
 
 ### #9 How many songs did you know? By Lucian Reacts
 
@@ -1141,7 +1141,7 @@ In this video, the creator reacts to the videos of people that look ugly at the 
 
 In this video, the creator goes public and randomly touches strangers and records their reactions. There are different types of reactions, some are funny, and some people look annoyed. The video has over 1.6M views and likes.
 
-![best tiktok reaction video - Randomly Touching People In Public ](https://images.wondershare.com/filmora/article-images/2022/04/tiktok-reaction-video-8.jpg)
+![best tiktok reaction video - Randomly Touching People In Public](https://images.wondershare.com/filmora/article-images/2022/04/tiktok-reaction-video-8.jpg)
 
 ### #9 How many songs did you know? By Lucian Reacts
 
@@ -1218,7 +1218,7 @@ For macOS 10.12 or later
 <div><ul>
 <li><a href="https://tiktok-clips.techidaily.com/in-2024-sound-sweep-clearing-background-buzz-on-software/"><u>In 2024, Sound Sweep  Clearing Background Buzz on Software</u></a></li>
 <li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-sensational-snacking-topfoodontiktok/"><u>[Updated] In 2024, Sensational Snacking  #TopFoodOnTikTok</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-smooth-video-uploads-to-tiktok-with-chromeandroidios-updated-for-2024/"><u>[New] Smooth Video Uploads to TikTok with Chrome/Android/iOS (Updated ) for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-smooth-video-uploads-to-tiktok-with-chromeandroidios-updated-for-2024/"><u>[New] Smooth Video Uploads to TikTok with Chrome/Android/iOS (Updated) for 2024</u></a></li>
 <li><a href="https://tiktok-clips.techidaily.com/2024-approved-dominate-the-digital-landscape-commerce-via-tiktok/"><u>2024 Approved  Dominate the Digital Landscape  Commerce via TikTok</u></a></li>
 <li><a href="https://tiktok-clips.techidaily.com/new-must-buy-tiktok-goodies-top-30-from-amazon-for-2024/"><u>[New] Must-Buy TikTok Goodies – Top 30 From Amazon for 2024</u></a></li>
 <li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-popular-tiktok-food-challenges/"><u>[New] 2024 Approved  Popular TikTok Food Challenges</u></a></li>

@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  A Complete Reference to the World of TikTok Elements, 2023\""
-date: 2024-05-23T08:19:23.074Z
-updated: 2024-05-24T08:19:23.074Z
+date: 2024-06-27T15:15:58.008Z
+updated: 2024-06-28T15:15:58.008Z
 tags:
   - ai video
   - ai tiktok
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes 2024 Approved: A Complete Reference to the World of TikTok Elements, 2023\""
 excerpt: "\"This Article Describes 2024 Approved: A Complete Reference to the World of TikTok Elements, 2023\""
 keywords: "TikTok Basics,TikTok Guide,TikTok Essentials,TikTok Elements 2023,TikTok Trends,TikTok Creation Tools,TikTok Techniques"
-thumbnail: https://www.lifewire.com/thmb/B0CAMp5n0odFeNrfTG4w7r2He08=/300x200/filters:no_upscale():max_bytes(150000):strip_icc()/Selfie-Stick-Tips-56a761cf5f9b58b7d0e9fa52.jpg
+thumbnail: https://thmb.techidaily.com/2b667f6d425e137d74634d5b5e43d01ba3b3015e34fc38e54ba016f1aa0f02aa.jpg
 ---
 
 ## A Complete Reference to the World of TikTok Elements, 2023
@@ -71,7 +71,7 @@ If you want your Tiktok video to go viral, you need to know what is getting vira
 
 **Tiktok Search Bar:** The best way to find a viral Tiktok topic is to visit the “Discover'' page on Tiktok. Here you’ll get to see all the trending hashtags and sounds.
 
-![visit “discover” page on tiktok ](https://images.wondershare.com/filmora/article-images/2022/03/1-complete-guide-for-tiktok-elements.png)
+![visit “discover” page on tiktok](https://images.wondershare.com/filmora/article-images/2022/03/1-complete-guide-for-tiktok-elements.png)
 
 This also includes trending challenges. So, if you want to get noticed on Tiktok, use a viral sound or do a viral challenge!
 
@@ -604,7 +604,7 @@ Step 1: Get the TikTok app installed on your gadget.
 
 Step 2: Open the app and look for the video that you want to duet. Hit the share button and choose the duet option from the bottom of the screen. Now start recording your own video while the selected video is automatically playing on another side of the screen.
 
-![ Make Duet video in TikTok ](https://images.wondershare.com/filmora/article-images/tiktok-duet-video.jpg)
+![Make Duet video in TikTok](https://images.wondershare.com/filmora/article-images/tiktok-duet-video.jpg)
 
 Step 3: Now you can modify your video by adding interesting stickers and special effects available in the TikTok app. Choose a cover for your recorded video and hit the next button. Finally hit post button to share your split-screen video.
 
@@ -679,7 +679,7 @@ Step 1: Get the TikTok app installed on your gadget.
 
 Step 2: Open the app and look for the video that you want to duet. Hit the share button and choose the duet option from the bottom of the screen. Now start recording your own video while the selected video is automatically playing on another side of the screen.
 
-![ Make Duet video in TikTok ](https://images.wondershare.com/filmora/article-images/tiktok-duet-video.jpg)
+![Make Duet video in TikTok](https://images.wondershare.com/filmora/article-images/tiktok-duet-video.jpg)
 
 Step 3: Now you can modify your video by adding interesting stickers and special effects available in the TikTok app. Choose a cover for your recorded video and hit the next button. Finally hit post button to share your split-screen video.
 
@@ -754,7 +754,7 @@ Step 1: Get the TikTok app installed on your gadget.
 
 Step 2: Open the app and look for the video that you want to duet. Hit the share button and choose the duet option from the bottom of the screen. Now start recording your own video while the selected video is automatically playing on another side of the screen.
 
-![ Make Duet video in TikTok ](https://images.wondershare.com/filmora/article-images/tiktok-duet-video.jpg)
+![Make Duet video in TikTok](https://images.wondershare.com/filmora/article-images/tiktok-duet-video.jpg)
 
 Step 3: Now you can modify your video by adding interesting stickers and special effects available in the TikTok app. Choose a cover for your recorded video and hit the next button. Finally hit post button to share your split-screen video.
 
@@ -829,7 +829,7 @@ Step 1: Get the TikTok app installed on your gadget.
 
 Step 2: Open the app and look for the video that you want to duet. Hit the share button and choose the duet option from the bottom of the screen. Now start recording your own video while the selected video is automatically playing on another side of the screen.
 
-![ Make Duet video in TikTok ](https://images.wondershare.com/filmora/article-images/tiktok-duet-video.jpg)
+![Make Duet video in TikTok](https://images.wondershare.com/filmora/article-images/tiktok-duet-video.jpg)
 
 Step 3: Now you can modify your video by adding interesting stickers and special effects available in the TikTok app. Choose a cover for your recorded video and hit the next button. Finally hit post button to share your split-screen video.
 

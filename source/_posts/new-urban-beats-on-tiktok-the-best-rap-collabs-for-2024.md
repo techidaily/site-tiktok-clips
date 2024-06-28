@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Urban Beats on TikTok  The Best Rap Collabs for 2024\""
-date: 2024-05-23T08:17:02.754Z
-updated: 2024-05-24T08:17:02.754Z
+date: 2024-06-27T15:15:47.848Z
+updated: 2024-06-28T15:15:47.848Z
 tags:
   - ai video
   - ai tiktok
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] Urban Beats on TikTok: The Best Rap Collabs for 2024\""
 excerpt: "\"This Article Describes [New] Urban Beats on TikTok: The Best Rap Collabs for 2024\""
 keywords: "Urban Rap TikTok Trends,TikTok Rap Duos,RapCollabsOnTikTok,Popular Urban Hits,Rap Collaborations Video,RapBeats on TikTok,BestRapTikToksEver"
-thumbnail: https://www.lifewire.com/thmb/Tn50dgic5qx776aDojwgwUn7b84=/300x200/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-1303516971-079278b1b7f040c18cdba1e4d87a2b9d.jpg
+thumbnail: https://thmb.techidaily.com/81ac4ba09f7fbb502f897ca0c55434cc97c04fe41c01b4f05dc48044320b63e0.jpg
 ---
 
 ## Urban Beats on TikTok: The Best Rap Collabs

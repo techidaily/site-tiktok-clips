@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, 95 Sharp Humor in TikTok's Best Joke Threads"
-date: 2024-05-23T07:07:18.940Z
-updated: 2024-05-24T07:07:18.940Z
+date: 2024-06-27T15:15:59.080Z
+updated: 2024-06-28T15:15:59.080Z
 tags:
   - ai video
   - ai tiktok
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] In 2024, 95 Sharp Humor in TikTok's Best Joke Threads"
 excerpt: "This Article Describes [New] In 2024, 95 Sharp Humor in TikTok's Best Joke Threads"
 keywords: "SharpHumorTikTok,TikTokJokeHighlights,TikTokJokeMasters95,BestTikTokHumorThreads,Top95TikTokComedy,JokeThreadsOnTikTok,TikTokHumorChallenge"
-thumbnail: https://www.lifewire.com/thmb/hvzE9Xh2_RVDNS03GaGfv4HBO0g=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/what-is-apple-tv-1994193-f05afc8429e74037b282259526cd6ead.png
+thumbnail: https://thmb.techidaily.com/5d226635edaf435094da0cef0471d4f2b3210c149d391d468a9425edc03d4511.png
 ---
 
 ## 95 Sharp Humor in TikTok's Best Joke Threads

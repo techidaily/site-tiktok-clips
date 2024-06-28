@@ -1,7 +1,7 @@
 ---
 title: "[New] What If My TikTok Not Working on Android/iPhone/Chrome?"
-date: 2024-05-23T07:04:55.547Z
-updated: 2024-05-24T07:04:55.547Z
+date: 2024-06-27T15:15:54.994Z
+updated: 2024-06-28T15:15:54.994Z
 tags:
   - ai video
   - ai tiktok
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] What If My TikTok Not Working on Android/iPhone/Chrome?"
 excerpt: "This Article Describes [New] What If My TikTok Not Working on Android/iPhone/Chrome?"
 keywords: "TikTok No Display (Android),IPhone TikTok Errors,Chrome TikTok Issue,Fixing TikTok Android App,Resolve iPhone TikTok Problems,TikTok on Chrome Not Opening,Troubleshoot TikTok Mobile Access"
-thumbnail: https://www.lifewire.com/thmb/uGmnDyKyM5PkCqjc-VoDNR9geX8=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/how-to-share-liked-songs-on-spotify-5200847-f4f39ccd5ec84965bd94ef86f0f93a94.jpg
+thumbnail: https://thmb.techidaily.com/c68e5dfe066870e624209e946a88b5eb21db8406cf2fae44c9a446c53d02efdc.jpg
 ---
 
 ## What If My TikTok Not Working on Android/iPhone/Chrome?

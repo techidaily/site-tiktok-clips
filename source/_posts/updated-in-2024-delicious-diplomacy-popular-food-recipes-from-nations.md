@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Delicious Diplomacy  Popular Food Recipes From Nations\""
-date: 2024-05-23T07:20:08.502Z
-updated: 2024-05-24T07:20:08.502Z
+date: 2024-06-27T15:15:31.236Z
+updated: 2024-06-28T15:15:31.236Z
 tags:
   - ai video
   - ai tiktok
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] In 2024, Delicious Diplomacy: Popular Food Recipes From Nations\""
 excerpt: "\"This Article Describes [Updated] In 2024, Delicious Diplomacy: Popular Food Recipes From Nations\""
 keywords: "Nation Dishes,National Recipes,World Cuisine,International Eats,Country Delights,Global Tastes,Flavor Diplomacy"
-thumbnail: https://www.lifewire.com/thmb/MDGL2kMJllFexcxpsA_p345aX0g=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/The-Conjuring-3-3d34f5a-scaled-96b4939261ee4274a8be036e7e6aa405.jpeg
+thumbnail: https://thmb.techidaily.com/e3cfe2024e8223233dca02c9346a88bd3c9122571566316abe24ad6c80cbdaa7.jpeg
 ---
 
 ## Delicious Diplomacy: Popular Food Recipes From Nations

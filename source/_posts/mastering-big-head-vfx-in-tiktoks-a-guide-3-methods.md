@@ -1,7 +1,7 @@
 ---
 title: "\"Mastering Big Head VFX in TikToks  A Guide (3 Methods)\""
-date: 2024-05-23T05:57:44.109Z
-updated: 2024-05-24T05:57:44.109Z
+date: 2024-06-27T15:16:01.874Z
+updated: 2024-06-28T15:16:01.874Z
 tags:
   - ai video
   - ai tiktok
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes Mastering Big Head VFX in TikToks: A Guide (3 Methods)\""
 excerpt: "\"This Article Describes Mastering Big Head VFX in TikToks: A Guide (3 Methods)\""
 keywords: "Big Head Effect TikTok,Masterful TikTok VFX,TikTok VFX Techniques,Huge Head TikTok Guide,Advanced TikTok CGI,Professional TikTok Editing,TikTok Big Head Methods"
-thumbnail: https://www.lifewire.com/thmb/ssOPr3GfGMutC-lfg0Nn5i2SIYM=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/zoom-wine-date-in-a-corona-virus-world_t20_WgO1VV-3003c88279f441e2b827dc8642707555.jpg
+thumbnail: https://thmb.techidaily.com/eda53d482272507886f33101cf7c17fbcff2ff9c0e3000602465b544e6ae7c53.jpg
 ---
 
 ## Mastering Big Head VFX in TikToks: A Guide (3 Methods)
@@ -27,7 +27,7 @@ How to get that **TikTok Big Head** effect? Would you like to make your head loo
 
 02 [How to Make a Big Head Effect in CapCut?](#part2)
 
-03 [ How to Add Big Head Effect in Filmora Video Editor? \[3 Ways\] ](#part3)
+03 [How to Add Big Head Effect in Filmora Video Editor? \[3 Ways\]](#part3)
 
 ## Part 1: How to Get the Big Head Filter on TikTok?
 
@@ -147,7 +147,7 @@ Not only TikTok, but different apps such as CapCut on Android and **Wondershare 
 
 02 [How to Make a Big Head Effect in CapCut?](#part2)
 
-03 [ How to Add Big Head Effect in Filmora Video Editor? \[3 Ways\] ](#part3)
+03 [How to Add Big Head Effect in Filmora Video Editor? \[3 Ways\]](#part3)
 
 ## Part 1: How to Get the Big Head Filter on TikTok?
 
@@ -267,7 +267,7 @@ Not only TikTok, but different apps such as CapCut on Android and **Wondershare 
 
 02 [How to Make a Big Head Effect in CapCut?](#part2)
 
-03 [ How to Add Big Head Effect in Filmora Video Editor? \[3 Ways\] ](#part3)
+03 [How to Add Big Head Effect in Filmora Video Editor? \[3 Ways\]](#part3)
 
 ## Part 1: How to Get the Big Head Filter on TikTok?
 
@@ -387,7 +387,7 @@ Not only TikTok, but different apps such as CapCut on Android and **Wondershare 
 
 02 [How to Make a Big Head Effect in CapCut?](#part2)
 
-03 [ How to Add Big Head Effect in Filmora Video Editor? \[3 Ways\] ](#part3)
+03 [How to Add Big Head Effect in Filmora Video Editor? \[3 Ways\]](#part3)
 
 ## Part 1: How to Get the Big Head Filter on TikTok?
 
@@ -625,7 +625,7 @@ So, for those of you without this feature, we have found a way around it to let 
 
 **Step 4:** Now open your camera roll and go to the Live Photo you saved. Simply share the video after selecting the **Save as Video** option. Once saved, you may fast forward or rewind the video as often as you like!
 
-_Check this article to find out_ [_how to speed up a video on iPhone_](https://tools.techidaily.com/wondershare/filmora/download/)_._
+_Check this article to find out_ [_how to speed up a video on iPhone_](https://tools.techidaily.com/wondershare/filmora/download/) _._
 
 ## Part 5: How to Fast Forward Videos in TikTok on a PC?
 
@@ -745,7 +745,7 @@ So, for those of you without this feature, we have found a way around it to let 
 
 **Step 4:** Now open your camera roll and go to the Live Photo you saved. Simply share the video after selecting the **Save as Video** option. Once saved, you may fast forward or rewind the video as often as you like!
 
-_Check this article to find out_ [_how to speed up a video on iPhone_](https://tools.techidaily.com/wondershare/filmora/download/)_._
+_Check this article to find out_ [_how to speed up a video on iPhone_](https://tools.techidaily.com/wondershare/filmora/download/) _._
 
 ## Part 5: How to Fast Forward Videos in TikTok on a PC?
 
@@ -865,7 +865,7 @@ So, for those of you without this feature, we have found a way around it to let 
 
 **Step 4:** Now open your camera roll and go to the Live Photo you saved. Simply share the video after selecting the **Save as Video** option. Once saved, you may fast forward or rewind the video as often as you like!
 
-_Check this article to find out_ [_how to speed up a video on iPhone_](https://tools.techidaily.com/wondershare/filmora/download/)_._
+_Check this article to find out_ [_how to speed up a video on iPhone_](https://tools.techidaily.com/wondershare/filmora/download/) _._
 
 ## Part 5: How to Fast Forward Videos in TikTok on a PC?
 
@@ -985,7 +985,7 @@ So, for those of you without this feature, we have found a way around it to let 
 
 **Step 4:** Now open your camera roll and go to the Live Photo you saved. Simply share the video after selecting the **Save as Video** option. Once saved, you may fast forward or rewind the video as often as you like!
 
-_Check this article to find out_ [_how to speed up a video on iPhone_](https://tools.techidaily.com/wondershare/filmora/download/)_._
+_Check this article to find out_ [_how to speed up a video on iPhone_](https://tools.techidaily.com/wondershare/filmora/download/) _._
 
 ## Part 5: How to Fast Forward Videos in TikTok on a PC?
 

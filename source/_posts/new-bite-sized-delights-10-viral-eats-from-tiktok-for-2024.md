@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Bite-Sized Delights  10 Viral Eats From TikTok for 2024\""
-date: 2024-05-23T07:11:59.219Z
-updated: 2024-05-24T07:11:59.219Z
+date: 2024-06-27T15:15:58.161Z
+updated: 2024-06-28T15:15:58.161Z
 tags:
   - ai video
   - ai tiktok
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] Bite-Sized Delights: 10 Viral Eats From TikTok for 2024\""
 excerpt: "\"This Article Describes [New] Bite-Sized Delights: 10 Viral Eats From TikTok for 2024\""
 keywords: "\"TikTok Snacks Trend,Bite-Sized Foods,Viral Eat Recipes,TikTok Culinary Hits,Social Media Meals,Popular Eats Videos,Quick TikTok Treats\""
-thumbnail: https://www.lifewire.com/thmb/xPNddtgn9P0QDdcgmQ9MzZFs7MI=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/iphone-error-4013-5c617e23c9e77c00010a4a83.jpg
+thumbnail: https://thmb.techidaily.com/22c39789b5fe1ed667e7cca081a20115c82b1e4756445b0d8d485b13ec35a1e3.jpg
 ---
 
 ## Bite-Sized Delights: 10 Viral Eats From TikTok
