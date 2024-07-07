@@ -1,7 +1,7 @@
 ---
 title: "Best Practices in Mobile & PC Discord Recording"
-date: 2024-05-23T05:50:16.961Z
-updated: 2024-05-24T05:50:16.961Z
+date: 2024-07-06T18:26:18.142Z
+updated: 2024-07-07T18:26:18.142Z
 tags:
   - ai video
   - ai discord
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes Best Practices in Mobile & PC Discord Recording"
 excerpt: "This Article Describes Best Practices in Mobile & PC Discord Recording"
 keywords: "\"Mobile Discord Recording,PC Voice Capture,DiscoProfex (Combination),Live Recording PC/Mobile,Efficient Discord Audio,High-Quality Sound PC,Portable Recorder PCs\""
-thumbnail: https://www.lifewire.com/thmb/_wwVT4o2gVZBhxBpU7jNydZ5EEY=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/gettyimages-612441534-2000-915697f3325a4f2f9c1f2822c925a493.jpg
+thumbnail: https://thmb.techidaily.com/769d83492280fd0660acd0112190d1d990d0e4305860168c39e79719f29b2ea7.jpg
 ---
 
 ## Best Practices in Mobile & PC Discord Recording
@@ -54,7 +54,7 @@ Bandicam is another option that manages to be more intuitive. It’s easy to use
 
 Bandicam isn’t free, but it doesn't involve a monthly subscription, unlike many suggested tools. A one-off license for Bandicam for one PC is $39.95, or you can get a two-PC license for $59.95\. If you want the editing software, Bandicut included, then that’s $60.95 with a single license. It’s also worth noting that Bandicam only works on Windows.
 
-### 3. [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
+### 3. Wondershare Filmora
 
 Though Filmora is a specialized video editing software, it also features [screen recording](https://tools.techidaily.com/wondershare/filmora/download/), webcam recording, and audio recording tools. One of the biggest advantages of using Filmora to record Discord videos is that it features lots of elements and game video special effects, which will make your video cool. You can head to Part 4 of this article for detailed information about recording Discord video.
 
@@ -173,7 +173,7 @@ Bandicam is another option that manages to be more intuitive. It’s easy to use
 
 Bandicam isn’t free, but it doesn't involve a monthly subscription, unlike many suggested tools. A one-off license for Bandicam for one PC is $39.95, or you can get a two-PC license for $59.95\. If you want the editing software, Bandicut included, then that’s $60.95 with a single license. It’s also worth noting that Bandicam only works on Windows.
 
-### 3. [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
+### 3. Wondershare Filmora
 
 Though Filmora is a specialized video editing software, it also features [screen recording](https://tools.techidaily.com/wondershare/filmora/download/), webcam recording, and audio recording tools. One of the biggest advantages of using Filmora to record Discord videos is that it features lots of elements and game video special effects, which will make your video cool. You can head to Part 4 of this article for detailed information about recording Discord video.
 
@@ -292,7 +292,7 @@ Bandicam is another option that manages to be more intuitive. It’s easy to use
 
 Bandicam isn’t free, but it doesn't involve a monthly subscription, unlike many suggested tools. A one-off license for Bandicam for one PC is $39.95, or you can get a two-PC license for $59.95\. If you want the editing software, Bandicut included, then that’s $60.95 with a single license. It’s also worth noting that Bandicam only works on Windows.
 
-### 3. [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
+### 3. Wondershare Filmora
 
 Though Filmora is a specialized video editing software, it also features [screen recording](https://tools.techidaily.com/wondershare/filmora/download/), webcam recording, and audio recording tools. One of the biggest advantages of using Filmora to record Discord videos is that it features lots of elements and game video special effects, which will make your video cool. You can head to Part 4 of this article for detailed information about recording Discord video.
 
@@ -411,7 +411,7 @@ Bandicam is another option that manages to be more intuitive. It’s easy to use
 
 Bandicam isn’t free, but it doesn't involve a monthly subscription, unlike many suggested tools. A one-off license for Bandicam for one PC is $39.95, or you can get a two-PC license for $59.95\. If you want the editing software, Bandicut included, then that’s $60.95 with a single license. It’s also worth noting that Bandicam only works on Windows.
 
-### 3. [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
+### 3. Wondershare Filmora
 
 Though Filmora is a specialized video editing software, it also features [screen recording](https://tools.techidaily.com/wondershare/filmora/download/), webcam recording, and audio recording tools. One of the biggest advantages of using Filmora to record Discord videos is that it features lots of elements and game video special effects, which will make your video cool. You can head to Part 4 of this article for detailed information about recording Discord video.
 
@@ -536,7 +536,7 @@ Before you start calling everyone, you’ll want to check your settings to make 
 
 So, start by heading to the User Settings page. You’ll find this at the bottom left of the screen – look for the cog icon next to your name. You won’t see this on mobile, this is only on the desktop app and the web browser version of Discord.
 
-![Discord Video Call Settings ](https://images.wondershare.com/filmora/article-images/discord-video-call-settings.jpg)
+![Discord Video Call Settings](https://images.wondershare.com/filmora/article-images/discord-video-call-settings.jpg)
 
 Once you’ve opened settings, you’ll want to click on the **Voice & Video** tab. Here you can check your microphone settings and adjust the volume, and choose your camera. If you’re using an external camera instead of the built-in option, check that the right one is selected in the dropdown.
 
@@ -552,11 +552,11 @@ Once you’ve got your settings ready, you’re set to make your private Discord
 
 If you’re only calling one person then it’s easy – just click on their name.
 
-![Discord Video Call with Friends ](https://images.wondershare.com/filmora/article-images/start-video-call-discord-friend.jpg)
+![Discord Video Call with Friends](https://images.wondershare.com/filmora/article-images/start-video-call-discord-friend.jpg)
 
 If you want to call a private group, you need to click the + button and then create a group DM. Add the names of the users you want to call.
 
-![Discord Video Call with group ](https://images.wondershare.com/filmora/article-images/add-friend-group-video-call-discord.jpg)
+![Discord Video Call with group](https://images.wondershare.com/filmora/article-images/add-friend-group-video-call-discord.jpg)
 
 Once you’re in the direct message window of the person or group you want to call, you need to look at the buttons at the top right of the screen. The second icon that looks like a video camera is the one you’re looking for. Click that and you’ll start a video call.
 
@@ -578,13 +578,13 @@ If you want to make a group video call on a public server, you again need to fir
 
 Once you’re in the voice channel, click Lounge, Community Hangout or Stream Room, and then switch on your camera by clicking the ‘Video’ button. You’ll find this at the bottom-left of the screen. Again, if you’re on the web browser, you’ll be asked by your browser for permission to use your camera at this stage.
 
-![Discord Server Video Call  ](https://images.wondershare.com/filmora/article-images/discord-server-video-call.jpg)
+![Discord Server Video Call](https://images.wondershare.com/filmora/article-images/discord-server-video-call.jpg)
 
 And that’s it – the video call is now live and anyone who joins the voice channel will be able to see you, chat to you and switch on their camera to join the video conference as well.
 
 On mobile, it’s slightly different. You’ll still want to head to the server you want to join and then click on the voice channel to join it. But as soon as you click on the voice channel, you’ll get a pop-up with an icon at the bottom right where you can instantly switch on your camera.
 
-![Discord Server Video Call on mobile  ](https://images.wondershare.com/filmora/article-images/discord-server-video-call-mobile.jpg)
+![Discord Server Video Call on mobile](https://images.wondershare.com/filmora/article-images/discord-server-video-call-mobile.jpg)
 
 If you prefer, you can still just join as voice, and then at any stage click on your name where you’ll be able to then switch on your camera to turn a voice chat into a video call.
 
@@ -633,7 +633,7 @@ Before you start calling everyone, you’ll want to check your settings to make 
 
 So, start by heading to the User Settings page. You’ll find this at the bottom left of the screen – look for the cog icon next to your name. You won’t see this on mobile, this is only on the desktop app and the web browser version of Discord.
 
-![Discord Video Call Settings ](https://images.wondershare.com/filmora/article-images/discord-video-call-settings.jpg)
+![Discord Video Call Settings](https://images.wondershare.com/filmora/article-images/discord-video-call-settings.jpg)
 
 Once you’ve opened settings, you’ll want to click on the **Voice & Video** tab. Here you can check your microphone settings and adjust the volume, and choose your camera. If you’re using an external camera instead of the built-in option, check that the right one is selected in the dropdown.
 
@@ -649,11 +649,11 @@ Once you’ve got your settings ready, you’re set to make your private Discord
 
 If you’re only calling one person then it’s easy – just click on their name.
 
-![Discord Video Call with Friends ](https://images.wondershare.com/filmora/article-images/start-video-call-discord-friend.jpg)
+![Discord Video Call with Friends](https://images.wondershare.com/filmora/article-images/start-video-call-discord-friend.jpg)
 
 If you want to call a private group, you need to click the + button and then create a group DM. Add the names of the users you want to call.
 
-![Discord Video Call with group ](https://images.wondershare.com/filmora/article-images/add-friend-group-video-call-discord.jpg)
+![Discord Video Call with group](https://images.wondershare.com/filmora/article-images/add-friend-group-video-call-discord.jpg)
 
 Once you’re in the direct message window of the person or group you want to call, you need to look at the buttons at the top right of the screen. The second icon that looks like a video camera is the one you’re looking for. Click that and you’ll start a video call.
 
@@ -675,13 +675,13 @@ If you want to make a group video call on a public server, you again need to fir
 
 Once you’re in the voice channel, click Lounge, Community Hangout or Stream Room, and then switch on your camera by clicking the ‘Video’ button. You’ll find this at the bottom-left of the screen. Again, if you’re on the web browser, you’ll be asked by your browser for permission to use your camera at this stage.
 
-![Discord Server Video Call  ](https://images.wondershare.com/filmora/article-images/discord-server-video-call.jpg)
+![Discord Server Video Call](https://images.wondershare.com/filmora/article-images/discord-server-video-call.jpg)
 
 And that’s it – the video call is now live and anyone who joins the voice channel will be able to see you, chat to you and switch on their camera to join the video conference as well.
 
 On mobile, it’s slightly different. You’ll still want to head to the server you want to join and then click on the voice channel to join it. But as soon as you click on the voice channel, you’ll get a pop-up with an icon at the bottom right where you can instantly switch on your camera.
 
-![Discord Server Video Call on mobile  ](https://images.wondershare.com/filmora/article-images/discord-server-video-call-mobile.jpg)
+![Discord Server Video Call on mobile](https://images.wondershare.com/filmora/article-images/discord-server-video-call-mobile.jpg)
 
 If you prefer, you can still just join as voice, and then at any stage click on your name where you’ll be able to then switch on your camera to turn a voice chat into a video call.
 
@@ -730,7 +730,7 @@ Before you start calling everyone, you’ll want to check your settings to make 
 
 So, start by heading to the User Settings page. You’ll find this at the bottom left of the screen – look for the cog icon next to your name. You won’t see this on mobile, this is only on the desktop app and the web browser version of Discord.
 
-![Discord Video Call Settings ](https://images.wondershare.com/filmora/article-images/discord-video-call-settings.jpg)
+![Discord Video Call Settings](https://images.wondershare.com/filmora/article-images/discord-video-call-settings.jpg)
 
 Once you’ve opened settings, you’ll want to click on the **Voice & Video** tab. Here you can check your microphone settings and adjust the volume, and choose your camera. If you’re using an external camera instead of the built-in option, check that the right one is selected in the dropdown.
 
@@ -746,11 +746,11 @@ Once you’ve got your settings ready, you’re set to make your private Discord
 
 If you’re only calling one person then it’s easy – just click on their name.
 
-![Discord Video Call with Friends ](https://images.wondershare.com/filmora/article-images/start-video-call-discord-friend.jpg)
+![Discord Video Call with Friends](https://images.wondershare.com/filmora/article-images/start-video-call-discord-friend.jpg)
 
 If you want to call a private group, you need to click the + button and then create a group DM. Add the names of the users you want to call.
 
-![Discord Video Call with group ](https://images.wondershare.com/filmora/article-images/add-friend-group-video-call-discord.jpg)
+![Discord Video Call with group](https://images.wondershare.com/filmora/article-images/add-friend-group-video-call-discord.jpg)
 
 Once you’re in the direct message window of the person or group you want to call, you need to look at the buttons at the top right of the screen. The second icon that looks like a video camera is the one you’re looking for. Click that and you’ll start a video call.
 
@@ -772,13 +772,13 @@ If you want to make a group video call on a public server, you again need to fir
 
 Once you’re in the voice channel, click Lounge, Community Hangout or Stream Room, and then switch on your camera by clicking the ‘Video’ button. You’ll find this at the bottom-left of the screen. Again, if you’re on the web browser, you’ll be asked by your browser for permission to use your camera at this stage.
 
-![Discord Server Video Call  ](https://images.wondershare.com/filmora/article-images/discord-server-video-call.jpg)
+![Discord Server Video Call](https://images.wondershare.com/filmora/article-images/discord-server-video-call.jpg)
 
 And that’s it – the video call is now live and anyone who joins the voice channel will be able to see you, chat to you and switch on their camera to join the video conference as well.
 
 On mobile, it’s slightly different. You’ll still want to head to the server you want to join and then click on the voice channel to join it. But as soon as you click on the voice channel, you’ll get a pop-up with an icon at the bottom right where you can instantly switch on your camera.
 
-![Discord Server Video Call on mobile  ](https://images.wondershare.com/filmora/article-images/discord-server-video-call-mobile.jpg)
+![Discord Server Video Call on mobile](https://images.wondershare.com/filmora/article-images/discord-server-video-call-mobile.jpg)
 
 If you prefer, you can still just join as voice, and then at any stage click on your name where you’ll be able to then switch on your camera to turn a voice chat into a video call.
 
@@ -827,7 +827,7 @@ Before you start calling everyone, you’ll want to check your settings to make 
 
 So, start by heading to the User Settings page. You’ll find this at the bottom left of the screen – look for the cog icon next to your name. You won’t see this on mobile, this is only on the desktop app and the web browser version of Discord.
 
-![Discord Video Call Settings ](https://images.wondershare.com/filmora/article-images/discord-video-call-settings.jpg)
+![Discord Video Call Settings](https://images.wondershare.com/filmora/article-images/discord-video-call-settings.jpg)
 
 Once you’ve opened settings, you’ll want to click on the **Voice & Video** tab. Here you can check your microphone settings and adjust the volume, and choose your camera. If you’re using an external camera instead of the built-in option, check that the right one is selected in the dropdown.
 
@@ -843,11 +843,11 @@ Once you’ve got your settings ready, you’re set to make your private Discord
 
 If you’re only calling one person then it’s easy – just click on their name.
 
-![Discord Video Call with Friends ](https://images.wondershare.com/filmora/article-images/start-video-call-discord-friend.jpg)
+![Discord Video Call with Friends](https://images.wondershare.com/filmora/article-images/start-video-call-discord-friend.jpg)
 
 If you want to call a private group, you need to click the + button and then create a group DM. Add the names of the users you want to call.
 
-![Discord Video Call with group ](https://images.wondershare.com/filmora/article-images/add-friend-group-video-call-discord.jpg)
+![Discord Video Call with group](https://images.wondershare.com/filmora/article-images/add-friend-group-video-call-discord.jpg)
 
 Once you’re in the direct message window of the person or group you want to call, you need to look at the buttons at the top right of the screen. The second icon that looks like a video camera is the one you’re looking for. Click that and you’ll start a video call.
 
@@ -869,13 +869,13 @@ If you want to make a group video call on a public server, you again need to fir
 
 Once you’re in the voice channel, click Lounge, Community Hangout or Stream Room, and then switch on your camera by clicking the ‘Video’ button. You’ll find this at the bottom-left of the screen. Again, if you’re on the web browser, you’ll be asked by your browser for permission to use your camera at this stage.
 
-![Discord Server Video Call  ](https://images.wondershare.com/filmora/article-images/discord-server-video-call.jpg)
+![Discord Server Video Call](https://images.wondershare.com/filmora/article-images/discord-server-video-call.jpg)
 
 And that’s it – the video call is now live and anyone who joins the voice channel will be able to see you, chat to you and switch on their camera to join the video conference as well.
 
 On mobile, it’s slightly different. You’ll still want to head to the server you want to join and then click on the voice channel to join it. But as soon as you click on the voice channel, you’ll get a pop-up with an icon at the bottom right where you can instantly switch on your camera.
 
-![Discord Server Video Call on mobile  ](https://images.wondershare.com/filmora/article-images/discord-server-video-call-mobile.jpg)
+![Discord Server Video Call on mobile](https://images.wondershare.com/filmora/article-images/discord-server-video-call-mobile.jpg)
 
 If you prefer, you can still just join as voice, and then at any stage click on your name where you’ll be able to then switch on your camera to turn a voice chat into a video call.
 

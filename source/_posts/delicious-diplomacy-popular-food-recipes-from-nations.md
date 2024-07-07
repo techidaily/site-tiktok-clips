@@ -1,7 +1,7 @@
 ---
 title: "\"Delicious Diplomacy  Popular Food Recipes From Nations\""
-date: 2024-05-23T05:53:55.268Z
-updated: 2024-05-24T05:53:55.268Z
+date: 2024-07-06T18:26:31.379Z
+updated: 2024-07-07T18:26:31.379Z
 tags:
   - ai video
   - ai tiktok
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes Delicious Diplomacy: Popular Food Recipes From Nations\""
 excerpt: "\"This Article Describes Delicious Diplomacy: Popular Food Recipes From Nations\""
 keywords: "Nation Dishes,National Recipes,World Cuisine,International Eats,Country Delights,Global Tastes,Flavor Diplomacy"
-thumbnail: https://www.lifewire.com/thmb/zPbrz0xYT6-e-Siew_kTQcwmGaI=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/MayHabib-d884611c85bf4b909b33ee1410d6544b.jpeg
+thumbnail: https://thmb.techidaily.com/a9e60c359d76678f8aad5193db4d1713b6255faff22e113abbe3abedfe2cc94d.jpeg
 ---
 
 ## Delicious Diplomacy: Popular Food Recipes From Nations

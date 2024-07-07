@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Filmmaking in 90 Seconds  A Filmora Approach to TikTok Reacts\""
-date: 2024-05-23T07:30:04.049Z
-updated: 2024-05-24T07:30:04.049Z
+date: 2024-07-06T18:26:29.007Z
+updated: 2024-07-07T18:26:29.007Z
 tags:
   - ai video
   - ai tiktok
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] 2024 Approved: Filmmaking in 90 Seconds: A Filmora Approach to TikTok Reacts\""
 excerpt: "\"This Article Describes [Updated] 2024 Approved: Filmmaking in 90 Seconds: A Filmora Approach to TikTok Reacts\""
 keywords: "Filmmaking Shortcuts,Quick Editing Techniques,TikTok Creative Videos,Filmora TikTok Mastery,React to Films in Minutes,Instant Video Production,Social Media Video Craft"
-thumbnail: https://www.lifewire.com/thmb/tjUAp5vGCmAQMQC49vIFERVjkIc=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/4991375838_126cbaf6ee_z-57e0fdb05f9b58651677cf10.jpg
+thumbnail: https://thmb.techidaily.com/99131a0c0da4530303a8f3d5a541a1cf2cb9af3e3d24fd391ca764cff18f1395.jpg
 ---
 
 ## Filmmaking in 90 Seconds: A Filmora Approach to TikTok Reacts
@@ -50,7 +50,7 @@ After being equipped with all the worldly knowledge about **TikTok reaction vide
 
 Start TikTok, play the video you want to react on, tap the **Share** icon from the lower-right area, and tap the **React** option from the **Share to** menu. Tap **Flip** from the top-right corner of the **Camera** screen to switch between the front and rear camera as needed, optionally tap the **Mic** icon to disable or enable voice and system audio capture, drag and reposition **React** window according to the source footage, and tap the **Record** button from the bottom to start shooting your **TikTok reaction**. Wait while the source clip and your recording process are complete successfully before moving forward to the next step.
 
-![ Make reaction video in tiktok](https://images.wondershare.com/filmora/article-images/make-reaction-video-tiktok.jpg)
+![Make reaction video in tiktok](https://images.wondershare.com/filmora/article-images/make-reaction-video-tiktok.jpg)
 
 ### 2\. Apply Filters
 
@@ -62,7 +62,7 @@ Tap the **Filters** icon from the top-right corner, tap to pick a filter from th
 
 Tap the **Mixer** icon from the upper-right corner of the screen, drag the **My Voice** and **Soundtrack Volume** sliders to manage your voice recording and the internal audio respectively, and tap **Done** to save the changes once you’re through with the modifications. Back on the previous window, tap **Next** from the bottom-right corner.
 
-![ Add music to Tiktok Reaction video](https://images.wondershare.com/filmora/article-images/manage-audio-in-reaction-video-tiktok.jpg)
+![Add music to Tiktok Reaction video](https://images.wondershare.com/filmora/article-images/manage-audio-in-reaction-video-tiktok.jpg)
 
 ### 4\. Publish the Video
 
@@ -86,7 +86,7 @@ You can learn how to make **TikTok reaction videos**  using Wondershare Filmora 
 
 Start Wondershare Filmora on your Windows or Mac PC, go to **File**  \> **New Project** and click **9:16 (Portrait)**  from the submenu that appears.
 
-Click **Split Screen** from the standard toolbar at the top, hover mouse to the screen type preset you want to use, click the **\+**  ( **Add to Project** ) icon that appears at the bottom-right corner of the thumbnail, and click **OK**  from the bottom-right corner once the preset is added to the Timeline.
+Click **Split Screen** from the standard toolbar at the top, hover mouse to the screen type preset you want to use, click the **\+**  (**Add to Project**) icon that appears at the bottom-right corner of the thumbnail, and click **OK**  from the bottom-right corner once the preset is added to the Timeline.
 
 ![Filmora9 portrait mode split screen presets](https://images.wondershare.com/filmora/article-images/portrait-mode-split-screen-presets.jpg)
 
@@ -155,7 +155,7 @@ After being equipped with all the worldly knowledge about **TikTok reaction vide
 
 Start TikTok, play the video you want to react on, tap the **Share** icon from the lower-right area, and tap the **React** option from the **Share to** menu. Tap **Flip** from the top-right corner of the **Camera** screen to switch between the front and rear camera as needed, optionally tap the **Mic** icon to disable or enable voice and system audio capture, drag and reposition **React** window according to the source footage, and tap the **Record** button from the bottom to start shooting your **TikTok reaction**. Wait while the source clip and your recording process are complete successfully before moving forward to the next step.
 
-![ Make reaction video in tiktok](https://images.wondershare.com/filmora/article-images/make-reaction-video-tiktok.jpg)
+![Make reaction video in tiktok](https://images.wondershare.com/filmora/article-images/make-reaction-video-tiktok.jpg)
 
 ### 2\. Apply Filters
 
@@ -167,7 +167,7 @@ Tap the **Filters** icon from the top-right corner, tap to pick a filter from th
 
 Tap the **Mixer** icon from the upper-right corner of the screen, drag the **My Voice** and **Soundtrack Volume** sliders to manage your voice recording and the internal audio respectively, and tap **Done** to save the changes once you’re through with the modifications. Back on the previous window, tap **Next** from the bottom-right corner.
 
-![ Add music to Tiktok Reaction video](https://images.wondershare.com/filmora/article-images/manage-audio-in-reaction-video-tiktok.jpg)
+![Add music to Tiktok Reaction video](https://images.wondershare.com/filmora/article-images/manage-audio-in-reaction-video-tiktok.jpg)
 
 ### 4\. Publish the Video
 
@@ -191,7 +191,7 @@ You can learn how to make **TikTok reaction videos**  using Wondershare Filmora 
 
 Start Wondershare Filmora on your Windows or Mac PC, go to **File**  \> **New Project** and click **9:16 (Portrait)**  from the submenu that appears.
 
-Click **Split Screen** from the standard toolbar at the top, hover mouse to the screen type preset you want to use, click the **\+**  ( **Add to Project** ) icon that appears at the bottom-right corner of the thumbnail, and click **OK**  from the bottom-right corner once the preset is added to the Timeline.
+Click **Split Screen** from the standard toolbar at the top, hover mouse to the screen type preset you want to use, click the **\+**  (**Add to Project**) icon that appears at the bottom-right corner of the thumbnail, and click **OK**  from the bottom-right corner once the preset is added to the Timeline.
 
 ![Filmora9 portrait mode split screen presets](https://images.wondershare.com/filmora/article-images/portrait-mode-split-screen-presets.jpg)
 
@@ -260,7 +260,7 @@ After being equipped with all the worldly knowledge about **TikTok reaction vide
 
 Start TikTok, play the video you want to react on, tap the **Share** icon from the lower-right area, and tap the **React** option from the **Share to** menu. Tap **Flip** from the top-right corner of the **Camera** screen to switch between the front and rear camera as needed, optionally tap the **Mic** icon to disable or enable voice and system audio capture, drag and reposition **React** window according to the source footage, and tap the **Record** button from the bottom to start shooting your **TikTok reaction**. Wait while the source clip and your recording process are complete successfully before moving forward to the next step.
 
-![ Make reaction video in tiktok](https://images.wondershare.com/filmora/article-images/make-reaction-video-tiktok.jpg)
+![Make reaction video in tiktok](https://images.wondershare.com/filmora/article-images/make-reaction-video-tiktok.jpg)
 
 ### 2\. Apply Filters
 
@@ -272,7 +272,7 @@ Tap the **Filters** icon from the top-right corner, tap to pick a filter from th
 
 Tap the **Mixer** icon from the upper-right corner of the screen, drag the **My Voice** and **Soundtrack Volume** sliders to manage your voice recording and the internal audio respectively, and tap **Done** to save the changes once you’re through with the modifications. Back on the previous window, tap **Next** from the bottom-right corner.
 
-![ Add music to Tiktok Reaction video](https://images.wondershare.com/filmora/article-images/manage-audio-in-reaction-video-tiktok.jpg)
+![Add music to Tiktok Reaction video](https://images.wondershare.com/filmora/article-images/manage-audio-in-reaction-video-tiktok.jpg)
 
 ### 4\. Publish the Video
 
@@ -296,7 +296,7 @@ You can learn how to make **TikTok reaction videos**  using Wondershare Filmora 
 
 Start Wondershare Filmora on your Windows or Mac PC, go to **File**  \> **New Project** and click **9:16 (Portrait)**  from the submenu that appears.
 
-Click **Split Screen** from the standard toolbar at the top, hover mouse to the screen type preset you want to use, click the **\+**  ( **Add to Project** ) icon that appears at the bottom-right corner of the thumbnail, and click **OK**  from the bottom-right corner once the preset is added to the Timeline.
+Click **Split Screen** from the standard toolbar at the top, hover mouse to the screen type preset you want to use, click the **\+**  (**Add to Project**) icon that appears at the bottom-right corner of the thumbnail, and click **OK**  from the bottom-right corner once the preset is added to the Timeline.
 
 ![Filmora9 portrait mode split screen presets](https://images.wondershare.com/filmora/article-images/portrait-mode-split-screen-presets.jpg)
 
@@ -365,7 +365,7 @@ After being equipped with all the worldly knowledge about **TikTok reaction vide
 
 Start TikTok, play the video you want to react on, tap the **Share** icon from the lower-right area, and tap the **React** option from the **Share to** menu. Tap **Flip** from the top-right corner of the **Camera** screen to switch between the front and rear camera as needed, optionally tap the **Mic** icon to disable or enable voice and system audio capture, drag and reposition **React** window according to the source footage, and tap the **Record** button from the bottom to start shooting your **TikTok reaction**. Wait while the source clip and your recording process are complete successfully before moving forward to the next step.
 
-![ Make reaction video in tiktok](https://images.wondershare.com/filmora/article-images/make-reaction-video-tiktok.jpg)
+![Make reaction video in tiktok](https://images.wondershare.com/filmora/article-images/make-reaction-video-tiktok.jpg)
 
 ### 2\. Apply Filters
 
@@ -377,7 +377,7 @@ Tap the **Filters** icon from the top-right corner, tap to pick a filter from th
 
 Tap the **Mixer** icon from the upper-right corner of the screen, drag the **My Voice** and **Soundtrack Volume** sliders to manage your voice recording and the internal audio respectively, and tap **Done** to save the changes once you’re through with the modifications. Back on the previous window, tap **Next** from the bottom-right corner.
 
-![ Add music to Tiktok Reaction video](https://images.wondershare.com/filmora/article-images/manage-audio-in-reaction-video-tiktok.jpg)
+![Add music to Tiktok Reaction video](https://images.wondershare.com/filmora/article-images/manage-audio-in-reaction-video-tiktok.jpg)
 
 ### 4\. Publish the Video
 
@@ -401,7 +401,7 @@ You can learn how to make **TikTok reaction videos**  using Wondershare Filmora 
 
 Start Wondershare Filmora on your Windows or Mac PC, go to **File**  \> **New Project** and click **9:16 (Portrait)**  from the submenu that appears.
 
-Click **Split Screen** from the standard toolbar at the top, hover mouse to the screen type preset you want to use, click the **\+**  ( **Add to Project** ) icon that appears at the bottom-right corner of the thumbnail, and click **OK**  from the bottom-right corner once the preset is added to the Timeline.
+Click **Split Screen** from the standard toolbar at the top, hover mouse to the screen type preset you want to use, click the **\+**  (**Add to Project**) icon that appears at the bottom-right corner of the thumbnail, and click **OK**  from the bottom-right corner once the preset is added to the Timeline.
 
 ![Filmora9 portrait mode split screen presets](https://images.wondershare.com/filmora/article-images/portrait-mode-split-screen-presets.jpg)
 
@@ -453,7 +453,7 @@ Follow @Shanoon Cox
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-## Top 5 Alternatives to TikTok You Should Know [Updated ]
+## Top 5 Alternatives to TikTok You Should Know [Updated]
 
 # 5 Best Alternatives to TikTok You Should Know in 2024
 
@@ -479,7 +479,7 @@ However, the US government has threatened to ban TikTok in the US recently after
 
 Members of TikTok - including the Musical.ly community can't create videos longer than one minute, which can potentially limit their options while recording music videos. What's more, the app's video editing capabilities are somewhat limited, since producing the cloning effect and numerous other effects require you to use more powerful video editing apps. To help you overcome these obstacles, we've selected some of the best music video apps on the market, so here are the five best **alternatives to TikTok**.
 
-#### 1\. [Dubsmash](https://itunes.apple.com/us/app/dubsmash/id918820076?mt=8)
+#### 1\. Dubsmash
 
 ![Dubsmash](https://images.wondershare.com/filmora/article-images/dubsmash.png)
 
@@ -493,7 +493,7 @@ You can use thousands of different sounds in your videos, including movie and TV
 
 Can you believe it? Lots of movie stars are big fans of this app and Penelope Cruz is one of them.
 
-#### 2\. [Funimate](https://itunes.apple.com/us/app/funimate-music-video-maker/id844570015?mt=8)
+#### 2\. Funimate
 
 ![Funimate](https://images.wondershare.com/filmora/article-images/funimate.jpg)
 
@@ -507,7 +507,7 @@ Funimate features more than twenty advanced video effects that turn ordinary eve
 
 Watch the following video to see how to make edits on Funimate
 
-#### 3\. [Cheez](https://www.commonsensemedia.org/app-reviews/cheez-short-funny-videos)
+#### 3\. Cheez
 
 **Compatibility:** iOS, Android
 
@@ -517,7 +517,7 @@ If you choose to become a member of the Cheez community, you'll be able to do mu
 
 The video editing features include cutting and trimming tools, so you can easily remove all mistakes you made while recording your music video. There are hundreds of stickers, visual effects, and live filters that can help you create content your followers will adore. The best part is that you can post topics, start battles, join different challenges, and display your creativity or try DanceOff the first mobile dancing game. If you're looking for an app that lets you discover terrific videos and create your content simultaneously, the Cheez app is one of your best options.
 
-#### 4\. [Triller](https://itunes.apple.com/us/app/triller-music-video-maker/id994905763?mt=8)
+#### 4\. Triller
 
 ![Thriller](https://images.wondershare.com/filmora/article-images/thriller.jpg)
 
@@ -531,7 +531,7 @@ If you would like to collaborate with your friends, this app is a great choice, 
 
 Want to know more about Triller? Just click the following video.
 
-#### 5\. [Likee - Formerly LIKE Video](https://play.google.com/store/apps/details?id=video.like&hl=en)
+#### 5\. Likee - Formerly LIKE Video
 
 ![Likee](https://images.wondershare.com/filmora/article-images/likee.png)
 
@@ -581,7 +581,7 @@ However, the US government has threatened to ban TikTok in the US recently after
 
 Members of TikTok - including the Musical.ly community can't create videos longer than one minute, which can potentially limit their options while recording music videos. What's more, the app's video editing capabilities are somewhat limited, since producing the cloning effect and numerous other effects require you to use more powerful video editing apps. To help you overcome these obstacles, we've selected some of the best music video apps on the market, so here are the five best **alternatives to TikTok**.
 
-#### 1\. [Dubsmash](https://itunes.apple.com/us/app/dubsmash/id918820076?mt=8)
+#### 1\. Dubsmash
 
 ![Dubsmash](https://images.wondershare.com/filmora/article-images/dubsmash.png)
 
@@ -595,7 +595,7 @@ You can use thousands of different sounds in your videos, including movie and TV
 
 Can you believe it? Lots of movie stars are big fans of this app and Penelope Cruz is one of them.
 
-#### 2\. [Funimate](https://itunes.apple.com/us/app/funimate-music-video-maker/id844570015?mt=8)
+#### 2\. Funimate
 
 ![Funimate](https://images.wondershare.com/filmora/article-images/funimate.jpg)
 
@@ -609,7 +609,7 @@ Funimate features more than twenty advanced video effects that turn ordinary eve
 
 Watch the following video to see how to make edits on Funimate
 
-#### 3\. [Cheez](https://www.commonsensemedia.org/app-reviews/cheez-short-funny-videos)
+#### 3\. Cheez
 
 **Compatibility:** iOS, Android
 
@@ -619,7 +619,7 @@ If you choose to become a member of the Cheez community, you'll be able to do mu
 
 The video editing features include cutting and trimming tools, so you can easily remove all mistakes you made while recording your music video. There are hundreds of stickers, visual effects, and live filters that can help you create content your followers will adore. The best part is that you can post topics, start battles, join different challenges, and display your creativity or try DanceOff the first mobile dancing game. If you're looking for an app that lets you discover terrific videos and create your content simultaneously, the Cheez app is one of your best options.
 
-#### 4\. [Triller](https://itunes.apple.com/us/app/triller-music-video-maker/id994905763?mt=8)
+#### 4\. Triller
 
 ![Thriller](https://images.wondershare.com/filmora/article-images/thriller.jpg)
 
@@ -633,7 +633,7 @@ If you would like to collaborate with your friends, this app is a great choice, 
 
 Want to know more about Triller? Just click the following video.
 
-#### 5\. [Likee - Formerly LIKE Video](https://play.google.com/store/apps/details?id=video.like&hl=en)
+#### 5\. Likee - Formerly LIKE Video
 
 ![Likee](https://images.wondershare.com/filmora/article-images/likee.png)
 
@@ -683,7 +683,7 @@ However, the US government has threatened to ban TikTok in the US recently after
 
 Members of TikTok - including the Musical.ly community can't create videos longer than one minute, which can potentially limit their options while recording music videos. What's more, the app's video editing capabilities are somewhat limited, since producing the cloning effect and numerous other effects require you to use more powerful video editing apps. To help you overcome these obstacles, we've selected some of the best music video apps on the market, so here are the five best **alternatives to TikTok**.
 
-#### 1\. [Dubsmash](https://itunes.apple.com/us/app/dubsmash/id918820076?mt=8)
+#### 1\. Dubsmash
 
 ![Dubsmash](https://images.wondershare.com/filmora/article-images/dubsmash.png)
 
@@ -697,7 +697,7 @@ You can use thousands of different sounds in your videos, including movie and TV
 
 Can you believe it? Lots of movie stars are big fans of this app and Penelope Cruz is one of them.
 
-#### 2\. [Funimate](https://itunes.apple.com/us/app/funimate-music-video-maker/id844570015?mt=8)
+#### 2\. Funimate
 
 ![Funimate](https://images.wondershare.com/filmora/article-images/funimate.jpg)
 
@@ -711,7 +711,7 @@ Funimate features more than twenty advanced video effects that turn ordinary eve
 
 Watch the following video to see how to make edits on Funimate
 
-#### 3\. [Cheez](https://www.commonsensemedia.org/app-reviews/cheez-short-funny-videos)
+#### 3\. Cheez
 
 **Compatibility:** iOS, Android
 
@@ -721,7 +721,7 @@ If you choose to become a member of the Cheez community, you'll be able to do mu
 
 The video editing features include cutting and trimming tools, so you can easily remove all mistakes you made while recording your music video. There are hundreds of stickers, visual effects, and live filters that can help you create content your followers will adore. The best part is that you can post topics, start battles, join different challenges, and display your creativity or try DanceOff the first mobile dancing game. If you're looking for an app that lets you discover terrific videos and create your content simultaneously, the Cheez app is one of your best options.
 
-#### 4\. [Triller](https://itunes.apple.com/us/app/triller-music-video-maker/id994905763?mt=8)
+#### 4\. Triller
 
 ![Thriller](https://images.wondershare.com/filmora/article-images/thriller.jpg)
 
@@ -735,7 +735,7 @@ If you would like to collaborate with your friends, this app is a great choice, 
 
 Want to know more about Triller? Just click the following video.
 
-#### 5\. [Likee - Formerly LIKE Video](https://play.google.com/store/apps/details?id=video.like&hl=en)
+#### 5\. Likee - Formerly LIKE Video
 
 ![Likee](https://images.wondershare.com/filmora/article-images/likee.png)
 
@@ -785,7 +785,7 @@ However, the US government has threatened to ban TikTok in the US recently after
 
 Members of TikTok - including the Musical.ly community can't create videos longer than one minute, which can potentially limit their options while recording music videos. What's more, the app's video editing capabilities are somewhat limited, since producing the cloning effect and numerous other effects require you to use more powerful video editing apps. To help you overcome these obstacles, we've selected some of the best music video apps on the market, so here are the five best **alternatives to TikTok**.
 
-#### 1\. [Dubsmash](https://itunes.apple.com/us/app/dubsmash/id918820076?mt=8)
+#### 1\. Dubsmash
 
 ![Dubsmash](https://images.wondershare.com/filmora/article-images/dubsmash.png)
 
@@ -799,7 +799,7 @@ You can use thousands of different sounds in your videos, including movie and TV
 
 Can you believe it? Lots of movie stars are big fans of this app and Penelope Cruz is one of them.
 
-#### 2\. [Funimate](https://itunes.apple.com/us/app/funimate-music-video-maker/id844570015?mt=8)
+#### 2\. Funimate
 
 ![Funimate](https://images.wondershare.com/filmora/article-images/funimate.jpg)
 
@@ -813,7 +813,7 @@ Funimate features more than twenty advanced video effects that turn ordinary eve
 
 Watch the following video to see how to make edits on Funimate
 
-#### 3\. [Cheez](https://www.commonsensemedia.org/app-reviews/cheez-short-funny-videos)
+#### 3\. Cheez
 
 **Compatibility:** iOS, Android
 
@@ -823,7 +823,7 @@ If you choose to become a member of the Cheez community, you'll be able to do mu
 
 The video editing features include cutting and trimming tools, so you can easily remove all mistakes you made while recording your music video. There are hundreds of stickers, visual effects, and live filters that can help you create content your followers will adore. The best part is that you can post topics, start battles, join different challenges, and display your creativity or try DanceOff the first mobile dancing game. If you're looking for an app that lets you discover terrific videos and create your content simultaneously, the Cheez app is one of your best options.
 
-#### 4\. [Triller](https://itunes.apple.com/us/app/triller-music-video-maker/id994905763?mt=8)
+#### 4\. Triller
 
 ![Thriller](https://images.wondershare.com/filmora/article-images/thriller.jpg)
 
@@ -837,7 +837,7 @@ If you would like to collaborate with your friends, this app is a great choice, 
 
 Want to know more about Triller? Just click the following video.
 
-#### 5\. [Likee - Formerly LIKE Video](https://play.google.com/store/apps/details?id=video.like&hl=en)
+#### 5\. Likee - Formerly LIKE Video
 
 ![Likee](https://images.wondershare.com/filmora/article-images/likee.png)
 

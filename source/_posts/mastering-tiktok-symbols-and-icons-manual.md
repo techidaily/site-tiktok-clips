@@ -1,7 +1,7 @@
 ---
 title: "Mastering TikTok Symbols and Icons Manual"
-date: 2024-05-23T05:58:01.802Z
-updated: 2024-05-24T05:58:01.802Z
+date: 2024-07-06T18:26:23.422Z
+updated: 2024-07-07T18:26:23.422Z
 tags:
   - ai video
   - ai tiktok
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes Mastering TikTok Symbols and Icons Manual"
 excerpt: "This Article Describes Mastering TikTok Symbols and Icons Manual"
 keywords: "TikTok Symbol Guide,Icon Usage in TikTok,TikTok Emoji Mastery,Learn TikTok Icons,TikTok Symbols QuickRef,TikTok Symbol Manual,Essential TikTok Icon Knowledge"
-thumbnail: https://www.lifewire.com/thmb/WRIh1ZlJssVUKoRPwYSH5qo9eB0=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-1158697466-60e5f09c462547c48c9788376ed6248d.jpg
+thumbnail: https://thmb.techidaily.com/c0fe8b6f81af5b05eb5adacea58a29fe6fd2f271b6a687457517f15534dc6b13.jpg
 ---
 
 ## Mastering TikTok Symbols and Icons Manual
@@ -71,7 +71,7 @@ If you want your Tiktok video to go viral, you need to know what is getting vira
 
 **Tiktok Search Bar:** The best way to find a viral Tiktok topic is to visit the “Discover'' page on Tiktok. Here you’ll get to see all the trending hashtags and sounds.
 
-![visit “discover” page on tiktok ](https://images.wondershare.com/filmora/article-images/2022/03/1-complete-guide-for-tiktok-elements.png)
+![visit “discover” page on tiktok](https://images.wondershare.com/filmora/article-images/2022/03/1-complete-guide-for-tiktok-elements.png)
 
 This also includes trending challenges. So, if you want to get noticed on Tiktok, use a viral sound or do a viral challenge!
 
@@ -577,7 +577,7 @@ How to get that **TikTok Big Head** effect? Would you like to make your head loo
 
 02 [How to Make a Big Head Effect in CapCut?](#part2)
 
-03 [ How to Add Big Head Effect in Filmora Video Editor? \[3 Ways\] ](#part3)
+03 [How to Add Big Head Effect in Filmora Video Editor? \[3 Ways\]](#part3)
 
 ## Part 1: How to Get the Big Head Filter on TikTok?
 
@@ -697,7 +697,7 @@ Not only TikTok, but different apps such as CapCut on Android and **Wondershare 
 
 02 [How to Make a Big Head Effect in CapCut?](#part2)
 
-03 [ How to Add Big Head Effect in Filmora Video Editor? \[3 Ways\] ](#part3)
+03 [How to Add Big Head Effect in Filmora Video Editor? \[3 Ways\]](#part3)
 
 ## Part 1: How to Get the Big Head Filter on TikTok?
 
@@ -817,7 +817,7 @@ Not only TikTok, but different apps such as CapCut on Android and **Wondershare 
 
 02 [How to Make a Big Head Effect in CapCut?](#part2)
 
-03 [ How to Add Big Head Effect in Filmora Video Editor? \[3 Ways\] ](#part3)
+03 [How to Add Big Head Effect in Filmora Video Editor? \[3 Ways\]](#part3)
 
 ## Part 1: How to Get the Big Head Filter on TikTok?
 
@@ -937,7 +937,7 @@ Not only TikTok, but different apps such as CapCut on Android and **Wondershare 
 
 02 [How to Make a Big Head Effect in CapCut?](#part2)
 
-03 [ How to Add Big Head Effect in Filmora Video Editor? \[3 Ways\] ](#part3)
+03 [How to Add Big Head Effect in Filmora Video Editor? \[3 Ways\]](#part3)
 
 ## Part 1: How to Get the Big Head Filter on TikTok?
 

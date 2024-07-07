@@ -1,7 +1,7 @@
 ---
 title: "Navigating Snap Camera Feature in Microsoft Teams"
-date: 2024-05-23T05:48:48.730Z
-updated: 2024-05-24T05:48:48.730Z
+date: 2024-07-06T18:26:33.187Z
+updated: 2024-07-07T18:26:33.187Z
 tags:
   - ai video
   - ai snapchat
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes Navigating Snap Camera Feature in Microsoft Teams"
 excerpt: "This Article Describes Navigating Snap Camera Feature in Microsoft Teams"
 keywords: "Team Snap Camera Use,Microsoft Teams Snapping,Engage in Teams Snap,Microsoft Teams Video Share,Snap Sharing in Teams,Teams Camera Integration,Utilize Snap Feature MS Teams"
-thumbnail: https://www.lifewire.com/thmb/yiCG9aCDz-S_uEZuz03MfJhTX40=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/unnamed-3ea2024baf504584905b3806f88613e5.jpg
+thumbnail: https://thmb.techidaily.com/104a8ce1329a7cadce28c36353075eec1970039296b8147989b16ec309b7b44b.jpg
 ---
 
 ## Navigating Snap Camera Feature in Microsoft Teams

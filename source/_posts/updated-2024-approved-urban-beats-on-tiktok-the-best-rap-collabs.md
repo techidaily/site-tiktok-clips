@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Urban Beats on TikTok  The Best Rap Collabs\""
-date: 2024-05-23T08:17:03.798Z
-updated: 2024-05-24T08:17:03.798Z
+date: 2024-07-06T18:26:18.291Z
+updated: 2024-07-07T18:26:18.291Z
 tags:
   - ai video
   - ai tiktok
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] 2024 Approved: Urban Beats on TikTok: The Best Rap Collabs\""
 excerpt: "\"This Article Describes [Updated] 2024 Approved: Urban Beats on TikTok: The Best Rap Collabs\""
 keywords: "Urban Rap TikTok Trends,TikTok Rap Duos,RapCollabsOnTikTok,Popular Urban Hits,Rap Collaborations Video,RapBeats on TikTok,BestRapTikToksEver"
-thumbnail: https://www.lifewire.com/thmb/lmvkxaKrozRYqGTx380BkpJfGAc=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-504331578-cheering-football-on-tv-5a231ffdaad52b00372ae2a6.jpg
+thumbnail: https://thmb.techidaily.com/7b4e6458caaa3e9950165c60cd6d036d2d81733c195f98fbf5326f59e3a1eeef.jpg
 ---
 
 ## Urban Beats on TikTok: The Best Rap Collabs
