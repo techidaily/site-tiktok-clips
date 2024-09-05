@@ -1,7 +1,7 @@
 ---
 title: "Compact Power Surge: AMD Ryzen NUC with a 4K Flip-Up Screen, Hexa-Core CPU & Up To 32GB RAM for Ultimate Productivity and Gaming Performance"
-date: 2024-08-11T09:59:50.966Z
-updated: 2024-08-12T09:59:50.966Z
+date: 2024-09-04T00:18:50.635Z
+updated: 2024-09-05T00:18:50.635Z
 tags:
   - desktop
 categories:
@@ -19,23 +19,14 @@ The Xyber Team launched its Xyber XPC Mini Desktop Computer campaign on[Indiegog
 
  Image 1 of 3
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Xyber Team XPC internals](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
 
  Xyber Team XPC internals  (Image credit: Taki Udon / YouTube)
 
-<!-- affiliate ads begin -->
-<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Xyber Team XPC ports](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
 
  Xyber Team XPC ports  (Image credit: Taki Udon / YouTube)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Xyber Team XPC front](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
 
  Xyber Team XPC front  (Image credit: Taki Udon / YouTube)
@@ -46,9 +37,6 @@ The Xyber Team launched its Xyber XPC Mini Desktop Computer campaign on[Indiegog
 
  We noticed that the Xyber XPC Mini Desktop Computer has a USB Type-A port under the front of the truck. We don’t know what it is for, but it would be funny if you could repurpose it to power the truck if you add a battery, like how the Apple Magic Mouse still recharges today. The mini-PC Cybertruck also has an allocation for built-in speakers, but the sample we saw doesn’t have one.
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  This Stealth Cybertruck PC Can Game - YouTube ![This Stealth Cybertruck PC Can Game - YouTube](https://img.youtube.com/vi/1DJs6fIS4Pg/maxresdefault.jpg)
 
 [Watch On](https://youtu.be/1DJs6fIS4Pg)
@@ -57,9 +45,6 @@ The Xyber Team launched its Xyber XPC Mini Desktop Computer campaign on[Indiegog
 
  We don’t have pricing information yet about the Xyber XPC, though, as it’s still in the campaign pre-launch stage. But the team behind the mini-PC Cybertruck says that they’re optimizing the BIOS and OS to get the best performance out of this small desktop computer.
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
-<!-- affiliate ads end -->
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
 
  Get Tom's Hardware's best news and in-depth reviews, straight to your inbox.
@@ -135,3 +120,10 @@ The Xyber Team launched its Xyber XPC Mini Desktop Computer campaign on[Indiegog
 <li><a href="https://facebook.techidaily.com/optimize-your-social-media-presence-a-reel-creation-blueprint/"><u>Optimize Your Social Media Presence: A Reel Creation Blueprint</u></a></li>
 <li><a href="https://ios-unlock.techidaily.com/passfab-iphone-11-backup-unlocker-top-4-alternatives-by-drfone-ios/"><u>PassFab iPhone 11 Backup Unlocker Top 4 Alternatives</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2024351/7443" target="_top" id="2024351">
+  <img src="//a.impactradius-go.com/display-ad/7443-2024351" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2024351/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

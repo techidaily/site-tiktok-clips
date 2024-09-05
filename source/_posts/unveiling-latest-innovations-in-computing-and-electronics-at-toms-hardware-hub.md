@@ -1,7 +1,7 @@
 ---
 title: Unveiling Latest Innovations in Computing & Electronics at Tom's Hardware Hub
-date: 2024-08-11T10:00:30.430Z
-updated: 2024-08-12T10:00:30.430Z
+date: 2024-09-04T00:18:50.022Z
+updated: 2024-09-05T00:18:50.022Z
 tags:
   - desktop
 categories:
@@ -13,10 +13,6 @@ thumbnail: https://cdn.mos.cms.futurecdn.net/LCbG8RwNDZHdVnhQuwPna5-320-80.jpg
 
 [Hewlett Packard](https://www.tomshardware.com/tag/hewlett-packard) [Enterprise](https://www.tomshardware.com/tag/enterprise) (HPE), one of the world's largest makers of servers, has initiated a legal battle against Inspur Group, China's largest server maker, and its affiliates, alleging server patent infringements. HPE accuses Inspur of engaging in deceptive practices and renaming its subsidiaries in the U.S. to continue its business with American companies despite being included into the Entity List.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
-LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
-<!-- affiliate ads end -->
 ## HPE: Inspur infringes our patents
 
  The [lawsuit](https://storage.courtlistener.com/recap/gov.uscourts.cand.427960/gov.uscourts.cand.427960.1.0.pdf) , filed in the U.S. District Court for the Northern District of California and discovered by [The Register](https://www.theregister.com/2024/04/18/hpe%5Finspur%5Flawsuit/) , accuses Inspur of using, selling, and distributing products that unlawfully incorporate HPE's patented technologies, seeking damages and an injunction to halt further infringements. Specifically, HPE accuses Inspur of infringing five U.S. patents No. [8,218,566](https://patents.google.com/patent/US8218566B2/) , [7,634,671](https://patents.google.com/patent/US7634671B2/) , [9,229,737](https://patents.google.com/patent/US9229737B2/) , [8,335,891](https://patents.google.com/patent/US8335891B2/) , and 8,108,508\. These patents cover various aspects of server and network operations, including remote management, power consumption, and data storage array configuration, among other things.
@@ -27,9 +23,6 @@ LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
 
  LATEST VIDEOS FROM tomshardware Tom's Hardware
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
-<!-- affiliate ads end -->
 ## Despite being on the Entity List, Inspur continues operations in the U.S
 
  Legal battles between companies are nothing new. But HPE indicates that in addition to illegally using its intellectual property, Inspur continues its operations in the U.S. despite being added to the U.S. Department of Commerce Bureau of Industry and[Security](https://www.tomshardware.com/tag/security) Entity List — a list that identifies parties whose activities are believed to be contrary to U.S. national security or foreign policy interests.
@@ -37,7 +30,10 @@ LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
  The complaint claims that Inspur that inspur continues its operations in the United States under Aivres Systems and Betapex. Inspur allegedly removed its branding from products sold in the U.S. and continues to sell them. For example, Inspur's IR5280M6 server is Aivres's 5280M6 machine, it has the same specification and design, according to HPE's complaint. Meanwhile, Inspur has also worked as a contract maker of servers, according to The Register. Yet, if a U.S. entity plans to work with Inspur (or any other party from the Entity List), it has to get a special license from the U.S. government.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
+<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
+  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
 

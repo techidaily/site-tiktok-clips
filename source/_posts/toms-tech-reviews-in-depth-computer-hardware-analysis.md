@@ -1,7 +1,7 @@
 ---
 title: "Tom's Tech Reviews: In-Depth Computer Hardware Analysis"
-date: 2024-08-11T10:00:05.889Z
-updated: 2024-08-12T10:00:05.889Z
+date: 2024-09-04T00:18:50.417Z
+updated: 2024-09-05T00:18:50.417Z
 tags:
   - desktop
 categories:
@@ -13,10 +13,6 @@ thumbnail: https://thmb.techidaily.com/ff8e499dfacbb3f8c53c52b2127d34f19a999ba4d
 
 Minisforum has launched its second[AtomMan branded](https://www.tomshardware.com/desktops/mini-pcs/minisforum-atomman-x7-ti-touchscreen-mini-pc-comes-packing-an-intel-core-ultra-9-185h) device, this time with its eye on Mini PCs designed for gaming. The firm’s premium sub-brand is used here for a device offering the twin charms, and AMD Advantage blessings, of a[Ryzen R9 7945HX](https://www.tomshardware.com/news/ryzen-9-7945hx-beats-core-i9-13950hx) and Radeon[RX 7600M XT](https://www.tomshardware.com/news/amd-launches-rx-7600m-gpus-mobile-rdna-3-with-rtx-3060-performance) . Curiously, the new[AtomMan G7 Pt](https://www.minisforum.com/page/g7pt/index.html?lang=en) appears to be a rejigged version of the proposed Minisforum HX200G which was[showcased at CES 2024](https://www.tomshardware.com/desktops/mini-pcs/minisforum-first-intel-core-ultra-mini-pc-amd-rx-7600M-xt-mini-pc) back in January.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ![Minisforum AtomMan G7 Pt](https://cdn.mos.cms.futurecdn.net/PyZgZxKUB9Acg9JX58bM36-320-80.jpg)
 
  (Image credit: Minisforum)
@@ -38,9 +34,6 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 | Power                 | DC 19V (adapter included)                                                                                                                                                                                                                                                                  |
 | System                | Windows 11                                                                                                                                                                                                                                                                                 |
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
-<!-- affiliate ads end -->
 ![Minisforum AtomMan G7 Pt](https://cdn.mos.cms.futurecdn.net/BCXcTW8u5XFwpHJ2k5ueD6-320-80.jpg)
 
  (Image credit: Minisforum)
@@ -55,18 +48,12 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
  Connectivity seems pretty good for such a small box. As well as Wi-Fi 7 there is a 2.5G Ethernet port, and you can connect up to three 4K monitors at once (HDMI, DP, and USB-C). Six USB ports are available in total, with all being USB 3.2 Gen2 rated.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Minisforum AtomMan G7 Pt](https://cdn.mos.cms.futurecdn.net/5vH5yUKbtEt5tHuJMtPYk5-320-80.jpg)
 
  (Image credit: Minisforum)
 
  One of the bigger changes we have seen added to the AtomMan G7 Pt since its name was switched from the HX200G is the provision of dual RGB backlighting panels. The example logo scrawl provides a prime example of beauty being in the eye of the beholder.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
 
  Get Tom's Hardware's best news and in-depth reviews, straight to your inbox.
@@ -157,3 +144,10 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 <li><a href="https://win-howtos.techidaily.com/troubleshooting-and-resolving-side-by-side-assembly-errors-in-windows-10-systems-diy/"><u>Troubleshooting & Resolving Side-by-Side Assembly Errors in Windows 10 Systems [DIY]</u></a></li>
 <li><a href="https://tiktok-clips.techidaily.com/unlocking-potential-in-projects-with-chatgpt-a-how-to-approach/"><u>Unlocking Potential in Projects with ChatGPT - A How-To Approach</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918719/19272" target="_top" id="1918719">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918719" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918719/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

@@ -1,7 +1,7 @@
 ---
 title: "Creating a Retro-Futuristic, Ultraportable PC: Modding without a Cooling System and Empowered by a High-Speed USB4 SSD Array"
-date: 2024-08-11T10:00:17.881Z
-updated: 2024-08-12T10:00:17.881Z
+date: 2024-09-04T00:18:50.234Z
+updated: 2024-09-05T00:18:50.234Z
 tags:
   - desktop
 categories:
@@ -85,5 +85,14 @@ This is a deal for those who require a prebuilt gaming PC over building their ow
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
+<span id="1936838">
+					<video width="234" height="30" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->

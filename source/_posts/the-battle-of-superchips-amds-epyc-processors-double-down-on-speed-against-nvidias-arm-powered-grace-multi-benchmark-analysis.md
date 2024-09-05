@@ -1,7 +1,7 @@
 ---
 title: "The Battle of Superchips: AMD's EPYC Processors Double Down on Speed Against Nvidia's ARM-Powered Grace - Multi-Benchmark Analysis"
-date: 2024-08-11T10:00:15.838Z
-updated: 2024-08-12T10:00:15.838Z
+date: 2024-09-04T00:18:50.262Z
+updated: 2024-09-05T00:18:50.262Z
 tags:
   - desktop
 categories:
@@ -23,9 +23,6 @@ The 2024 World Server Throwing Championship (WSTC) organizers are[calling for en
 
  It isn't clear if there are 1U, 2U, and 4U divisions, or, dare we say it, 8U for the real heavy lifters.
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Server throwing athletes](https://cdn.mos.cms.futurecdn.net/wtmZvaBCUd7W2J88EkoF6b-320-80.jpg)
 
  (Image credit: CloudFest)
@@ -34,9 +31,6 @@ The 2024 World Server Throwing Championship (WSTC) organizers are[calling for en
 
  We think there is plenty of room for improvement on the 2022 winning throw. Remember, the world record distance for throwing a 16-pound shot put is nearly 75 feet. For another comparison, in the Swedish sport of Stångstörtning, a roughly 57-pound log is tossed, with the world record distance being 32 feet. Much will depend on how well-tuned and trained the WSTC 2024 athletes are…
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
 
  Get Tom's Hardware's best news and in-depth reviews, straight to your inbox.
@@ -120,3 +114,10 @@ The 2024 World Server Throwing Championship (WSTC) organizers are[calling for en
 <li><a href="https://tiktok-clips.techidaily.com/whats-outside-of-tiktok-a-curated-list-of-popular-channels-for-2024/"><u>What's Outside of TikTok? A Curated List of Popular Channels for 2024</u></a></li>
 <li><a href="https://howto.techidaily.com/why-does-my-vivo-y56-5g-keep-turning-off-by-itself-6-fixes-are-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Does My Vivo Y56 5G Keep Turning Off By Itself? 6 Fixes Are Here | Dr.fone</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

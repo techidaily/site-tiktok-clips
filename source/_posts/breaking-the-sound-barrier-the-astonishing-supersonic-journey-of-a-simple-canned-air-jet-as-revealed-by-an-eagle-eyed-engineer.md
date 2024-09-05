@@ -1,7 +1,7 @@
 ---
 title: "Breaking the Sound Barrier: The Astonishing Supersonic Journey of a Simple Canned Air Jet, as Revealed by an Eagle-Eyed Engineer"
-date: 2024-08-11T10:00:29.400Z
-updated: 2024-08-12T10:00:29.400Z
+date: 2024-09-04T00:18:50.037Z
+updated: 2024-09-05T00:18:50.037Z
 tags:
   - desktop
 categories:
@@ -102,5 +102,8 @@ Today we have one great deal that turns into two when you take up a bundle offer
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1938698/19272" target="_top" id="1938698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938698" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938698/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->

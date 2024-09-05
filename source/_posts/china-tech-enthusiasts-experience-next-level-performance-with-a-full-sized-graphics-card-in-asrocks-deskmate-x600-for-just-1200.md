@@ -1,7 +1,7 @@
 ---
 title: "China Tech Enthusiasts: Experience Next-Level Performance With a Full-Sized Graphics Card in ASRock's DeskMate X600 for Just ¥1200"
-date: 2024-08-11T10:00:13.275Z
-updated: 2024-08-12T10:00:13.275Z
+date: 2024-09-04T00:18:50.288Z
+updated: 2024-09-05T00:18:50.288Z
 tags:
   - desktop
 categories:
@@ -17,18 +17,6 @@ For just $59, musicians now have a new option for a purpose-built musical comput
 
  Per the official page, the primary purpose of the Tulip computer is to make and play music. Still, its support for Python programming also makes it capable of displaying a variety of sprites, PNGs, backgrounds, etc— which means even lightweight games should be makeable or playable on the device. There's no real multimedia or web browsing functionality here besides. However, Tulip also has access to an exclusive BBS Tulip WORLD system for sharing music files and chatting with other users.
 
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="1080" height="1620" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Tulip, a musical computer based on Micropython - YouTube ![Tulip, a musical computer based on Micropython - YouTube](https://img.youtube.com/vi/1lYFjQp7Xrw/maxresdefault.jpg)
 
 [Watch On](https://youtu.be/1lYFjQp7Xrw)
@@ -41,9 +29,6 @@ For just $59, musicians now have a new option for a purpose-built musical comput
 
  When it comes to specialized hardware like this (or retro PC hardware in general), "necessity is the mother of invention" and "limitations foster creativity." It would be interesting to see some rudimentary arcade or DOS game ports on this machine— a dual-core 250 MHz microcontroller may not sound like a lot today, but in the 80s, even 16 MHz was considered cutting-edge.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
 
  Get Tom's Hardware's best news and in-depth reviews, straight to your inbox.
@@ -106,3 +91,16 @@ For just $59, musicians now have a new option for a purpose-built musical comput
 <li><a href="https://tiktok-clips.techidaily.com/mastering-console-titles-on-an-incredible-asus-vg245h-gaming-setup/"><u>Mastering Console Titles on an Incredible Asus VG245H Gaming Setup</u></a></li>
 <li><a href="https://youtube-blog.techidaily.com/ssential-how-to-sharing-videos-from-youtube-on-instagram/"><u>The Essential How-To  Sharing Videos From YouTube on Instagram</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<span id="1531882">
+					<video width="540" height="960" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

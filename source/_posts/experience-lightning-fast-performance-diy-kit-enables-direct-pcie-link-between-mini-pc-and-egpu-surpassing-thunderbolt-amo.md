@@ -1,7 +1,7 @@
 ---
 title: "Experience Lightning-Fast Performance: DIY Kit Enables Direct PCIe Link Between Mini PC and eGPU Surpassing Thunderbolt Amo"
-date: 2024-08-11T10:00:03.840Z
-updated: 2024-08-12T10:00:03.840Z
+date: 2024-09-04T00:18:50.445Z
+updated: 2024-09-05T00:18:50.445Z
 tags:
   - desktop
 categories:
@@ -17,16 +17,10 @@ Over on Chinese videosharing platform Bilibili, user 苏打baka uploaded a lengt
 
  Image 1 of 2
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
-<!-- affiliate ads end -->
 ![Shots of the Fan PC build from throughout the original video.](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
 
  (Image credit: 苏打baka on Bilibili)
 
-<!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Shots of the Fan PC build from throughout the original video.](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
 
  (Image credit: 苏打baka on Bilibili)
@@ -41,9 +35,6 @@ Over on Chinese videosharing platform Bilibili, user 苏打baka uploaded a lengt
 
  So, what happened? Did the static buildup short out the PC or something? Fortunately, nothing so mundane. Instead, the fan PC was tested at increasingly higher speeds until the[weighty cooler](https://www.tomshardware.com/news/noctua-fanless-cooler-enters-production) was violently flung from the PC in the last moments of the original video. No wonder Sodabaka hid behind a riot shield for much of the video demo.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
 
  Get Tom's Hardware's best news and in-depth reviews, straight to your inbox.
@@ -110,3 +101,10 @@ Over on Chinese videosharing platform Bilibili, user 苏打baka uploaded a lengt
 <li><a href="https://tiktok-clips.techidaily.com/vocalizing-your-visual-content-a-complete-tiktok-manual-for-2024/"><u>Vocalizing Your Visual Content  A Complete TikTok Manual for 2024</u></a></li>
 <li><a href="https://tiktok-clips.techidaily.com/whats-outside-of-tiktok-a-curated-list-of-popular-channels-for-2024/"><u>What's Outside of TikTok? A Curated List of Popular Channels for 2024</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2031472/7443" target="_top" id="2031472">
+  <img src="//a.impactradius-go.com/display-ad/7443-2031472" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2031472/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

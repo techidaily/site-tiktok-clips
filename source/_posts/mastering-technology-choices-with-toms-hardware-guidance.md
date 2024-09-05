@@ -1,7 +1,7 @@
 ---
 title: Mastering Technology Choices with Tom's Hardware Guidance
-date: 2024-08-11T09:59:48.867Z
-updated: 2024-08-12T09:59:48.867Z
+date: 2024-09-04T00:18:50.684Z
+updated: 2024-09-05T00:18:50.684Z
 tags:
   - desktop
 categories:
@@ -15,9 +15,6 @@ Lenovo has launched a new series of gaming desktops powered by laptop CPUs. PCs 
 
  With an MoDT platform, if you want to change your CPU you would have to buy a complete new mainboard / CPU / cooler bundle. Mobile CPUs aren’t socketed but are[soldered](https://www.tomshardware.com/best-picks/best-soldering-irons) to the board, so the average tech enthusiast isn’t going to be able to swap or upgrade the CPU. Thus it is very important to consider this spec very carefully before committing.
 
-<!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Lenovo Legion 7000K gaming PCs](https://cdn.mos.cms.futurecdn.net/KiWmBjf3WBxdHs7uNFYu2U-320-80.jpg)
 
  (Image credit: Lenovo)
@@ -30,9 +27,6 @@ Lenovo has launched a new series of gaming desktops powered by laptop CPUs. PCs 
 
  As with other MoDT platforms, we aren’t sure if the[cooling system](https://www.tomshardware.com/reviews/best-cpu-coolers,4181.html) is easy to change or upgrade, as the mounts won’t likely be the same as in a desktop PC. Lenovo seems to indicate its CPU cooler is good for up to 190W. If the CPU cooling fan is standard, we guess it could be changed or upgraded.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Lenovo Legion 7000K gaming PCs](https://cdn.mos.cms.futurecdn.net/KHmtZBvJU6LcChAReYSDBU-320-80.jpg)
 
  (Image credit: Lenovo)
@@ -41,9 +35,6 @@ Lenovo has launched a new series of gaming desktops powered by laptop CPUs. PCs 
 
  Lastly, the new Legion systems come with a standard 32GB DDR5-5600 dual-channel RAM and 1TB[PCIe Gen4 storage](https://www.tomshardware.com/reviews/best-ssds,3891.html) . Again, upgrades shouldn’t be a problem in the future with SODIMMs presumably used for RAM, and two M.2 slots and two SATA ports available for storage.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
 
  Get Tom's Hardware's best news and in-depth reviews, straight to your inbox.
@@ -114,3 +105,16 @@ Lenovo has launched a new series of gaming desktops powered by laptop CPUs. PCs 
 <li><a href="https://tiktok-clips.techidaily.com/unlocking-potential-in-projects-with-chatgpt-a-how-to-approach/"><u>Unlocking Potential in Projects with ChatGPT - A How-To Approach</u></a></li>
 <li><a href="https://tiktok-clips.techidaily.com/voice-activated-tiktok-mastering-siri-on-your-iphone-for-2024/"><u>Voice-Activated TikTok  Mastering Siri on Your iPhone for 2024</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<span id="1975562">
+					<video width="80" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

@@ -1,7 +1,7 @@
 ---
 title: "Mastering Gadgets and GPUs: A Look Inside Tom's Hardware Experts Uncovered"
-date: 2024-08-11T10:00:31.480Z
-updated: 2024-08-12T10:00:31.480Z
+date: 2024-09-04T00:18:50.008Z
+updated: 2024-09-05T00:18:50.008Z
 tags:
   - desktop
 categories:
@@ -13,9 +13,6 @@ thumbnail: https://thmb.techidaily.com/9ed2fa86f46a9a86e1ecc804ad586b5d67c008ec4
 
 Minisforum has launched its second[AtomMan branded](https://www.tomshardware.com/desktops/mini-pcs/minisforum-atomman-x7-ti-touchscreen-mini-pc-comes-packing-an-intel-core-ultra-9-185h) device, this time with its eye on Mini PCs designed for gaming. The firm’s premium sub-brand is used here for a device offering the twin charms, and AMD Advantage blessings, of a[Ryzen R9 7945HX](https://www.tomshardware.com/news/ryzen-9-7945hx-beats-core-i9-13950hx) and Radeon[RX 7600M XT](https://www.tomshardware.com/news/amd-launches-rx-7600m-gpus-mobile-rdna-3-with-rtx-3060-performance) . Curiously, the new[AtomMan G7 Pt](https://www.minisforum.com/page/g7pt/index.html?lang=en) appears to be a rejigged version of the proposed Minisforum HX200G which was[showcased at CES 2024](https://www.tomshardware.com/desktops/mini-pcs/minisforum-first-intel-core-ultra-mini-pc-amd-rx-7600M-xt-mini-pc) back in January.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Minisforum AtomMan G7 Pt](https://cdn.mos.cms.futurecdn.net/PyZgZxKUB9Acg9JX58bM36-320-80.jpg)
 
  (Image credit: Minisforum)
@@ -37,9 +34,6 @@ Minisforum has launched its second[AtomMan branded](https://www.tomshardware.com
 | Power                 | DC 19V (adapter included)                                                                                                                                                                                                                                                                  |
 | System                | Windows 11                                                                                                                                                                                                                                                                                 |
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Minisforum AtomMan G7 Pt](https://cdn.mos.cms.futurecdn.net/BCXcTW8u5XFwpHJ2k5ueD6-320-80.jpg)
 
  (Image credit: Minisforum)
@@ -54,18 +48,12 @@ Minisforum has launched its second[AtomMan branded](https://www.tomshardware.com
 
  Connectivity seems pretty good for such a small box. As well as Wi-Fi 7 there is a 2.5G Ethernet port, and you can connect up to three 4K monitors at once (HDMI, DP, and USB-C). Six USB ports are available in total, with all being USB 3.2 Gen2 rated.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Minisforum AtomMan G7 Pt](https://cdn.mos.cms.futurecdn.net/5vH5yUKbtEt5tHuJMtPYk5-320-80.jpg)
 
  (Image credit: Minisforum)
 
  One of the bigger changes we have seen added to the AtomMan G7 Pt since its name was switched from the HX200G is the provision of dual RGB backlighting panels. The example logo scrawl provides a prime example of beauty being in the eye of the beholder.
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
 
  Get Tom's Hardware's best news and in-depth reviews, straight to your inbox.
@@ -163,3 +151,10 @@ Minisforum has launched its second[AtomMan branded](https://www.tomshardware.com
 <li><a href="https://video-screen-grab.techidaily.com/1715701176974-utilizing-in-device-recording-on-huawei-mate-series-phones-mate-10-mate-20-and-p-series-p20-p10/"><u>Utilizing In-Device Recording on Huawei Mate Series Phones (Mate 10, Mate 20) & P Series (P20, P10).</u></a></li>
 <li><a href="https://tiktok-clips.techidaily.com/whats-outside-of-tiktok-a-curated-list-of-popular-channels-for-2024/"><u>What's Outside of TikTok? A Curated List of Popular Channels for 2024</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012406/19272" target="_top" id="2012406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012406" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
