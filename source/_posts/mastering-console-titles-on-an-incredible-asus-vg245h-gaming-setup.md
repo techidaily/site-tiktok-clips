@@ -1,7 +1,7 @@
 ---
 title: Mastering Console Titles on an Incredible Asus VG245H Gaming Setup
-date: 2024-09-04T00:18:52.187Z
-updated: 2024-09-05T00:18:52.187Z
+date: 2024-09-09T03:51:46.995Z
+updated: 2024-09-10T03:51:46.995Z
 categories:
   - BestProducts
 description: This Article Describes Mastering Console Titles on an Incredible Asus VG245H Gaming Setup
@@ -9,17 +9,47 @@ excerpt: This Article Describes Mastering Console Titles on an Incredible Asus V
 thumbnail: https://www.lifewire.com/thmb/A9tTNYSc2E567Ct1QmP5u2jYhio=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_03LW4163673-1-7aadbaa741c64e86838408e8a9e33538.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123482/16836" target="_top" id="2123482">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123482" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123482/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Is Investing in PS5 a Smart Move? Here Are 4 Reasons Why Yes
  Sony’s latest console picks up where its predecessor left off by providing a platform for playing many recent video game titles, while also supporting video streaming. If you get[the model with a disc drive](https://www.lifewire.com/why-the-ps5-with-disc-drive-is-the-one-you-want-5087498) , you can also play physical media, including movies.
 
  This guide will help you decide whether a PS5 is a good fit for you or the other game players in your life, depending on your preferences and situation.
 
+<!-- affiliate ads begin -->
+<span id="1328679">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## What Is a PS5?
 
  The PS5 ([PlayStation 5](https://www.lifewire.com/sony-playstation-5-review-5088394) ) is a video game console produced by Sony Interactive Entertainment and follow-up to the company’s previous iteration, the[PlayStation 4](https://www.lifewire.com/ps4-ps4-slim-and-ps4-pro-4154452) . Much like its predecessor, the PS5 supports a large library of modern (and older) video games, some of which can only be played on the PlayStation 5 platform.
 
  The PS5 sports an eight core AMD Ryzen Zen 2 CPU along with 16GB of RAM and a Radeon RDNA 2 GPU to provide improved visuals and performance. The console supports 4K video (provided your screen can display in 4K), and can play 4K Blu-Ray discs if you get the model that includes the 4K UHD Blu-Ray Drive.
 
+<!-- affiliate ads begin -->
+<span id="1975555">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Who Should Get a PS5
 
  Think of the PS5 as one of your main choices when it comes to playing modern video games, alongside PC or an[Xbox Series X|S](https://www.lifewire.com/xbox-series-x-vs-xbox-series-s-5083862) . It’s something worth investing in if you:
@@ -28,12 +58,6 @@ thumbnail: https://www.lifewire.com/thmb/A9tTNYSc2E567Ct1QmP5u2jYhio=/400x300/fi
 * Are looking to upgrade from a PS4 or other eighth-generation (PS4, WiiU, Xbox One, etc) to more powerful hardware.
 * Are enticed by any PS5-exclusive titles like_Demon’s Souls_ or_Spider-Man 2_ .
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975841/19272" target="_top" id="1975841">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975841" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975841/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Who Shouldn’t Get a PS5
 
  Despite the improved performance and visuals, plus some console exclusives, the PS5 isn’t for everybody. You can probably skip it if you:  
@@ -48,6 +72,12 @@ PS5 and PS5 Digital.
 
 Sony Interactive Entertainment Inc.
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Why You Should Get a PS5
 
  Video games aren’t an essential part of life, but relaxation and entertainment (which games definitely are) can be very important. Not everybody needs to jump on the newest games as they come out, but here are some things that make a PS5 worth the investment.
@@ -71,16 +101,10 @@ Sony Interactive Entertainment Inc.
  Whatever the reason, if you think you’re ready to leave the eighth console generation (or older) behind, it may be time to get that PS5.
 
 <!-- affiliate ads begin -->
-<span id="1542129">
-					<video width="540" height="720" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Any PlayStation Plus Tiers Are Tempting
 
@@ -92,12 +116,6 @@ Sony Interactive Entertainment Inc.
 
  The highest (Premium) tier adds PS2, PS3, PS4, and PS5 on-demand streaming, full game trials, and a Classics Catalog of PS2, PS3, and PSP games.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052063/7443" target="_top" id="2052063">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052063" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052063/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## When You Shouldn’t Get a PS5
 
  As enticing as a new PS5 may be—especially when upgrading from older hardware—it does have its drawbacks and limitations, some of which might be a deal-breaker. Here are some reasons why you might not want to shell out for a PS5.
@@ -108,30 +126,12 @@ Sony Interactive Entertainment Inc.
 
  Despite the graphical upgrade and access to newer titles that older consoles simply can’t accommodate, it can be a tough choice to make when the PS4 or even the Nintendo Switch are available for hundreds less.
 
-<!-- affiliate ads begin -->
-<span id="1983553">
-					<video width="360" height="150" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### You Already Own a Gaming PC or Xbox Series X|S
 
  The PS5 is a marked improvement over the PS4, certainly, but not so much in comparison to the Xbox Series X|S.
 
  The visual and performance differences between the two are fairly negligible, so unless any of the Sony exclusive titles really grab you there’s not much reason to also own a PS5\. This goes double for a high-end gaming PC, which in many cases will eclipse both consoles in all areas in addition to being upgradeable for even better performance in the future.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657386/16446" target="_top" id="1657386">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657386" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657386/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### You Don’t Want to Pay for More Storage
 
  One of, if not the biggest limitations with the PS5 is its[somewhat underwhelming storage capacity](https://www.lifewire.com/how-much-storage-does-the-ps5-have-7564130) .
@@ -149,10 +149,10 @@ Sony Interactive Entertainment Inc.
 Farknot\_Architect/iStock/GettyImagesPlus
 
 <!-- affiliate ads begin -->
-<a href="https://oneplusfr.sjv.io/c/5597632/1622438/14044" target="_top" id="1622438">
-  <img src="//a.impactradius-go.com/display-ad/14044-1622438" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120867/26400?prodsku=mars" target="_top" id="2120867">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120867" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://oneplusfr.sjv.io/i/5597632/1622438/14044" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120867/26400?prodsku=mars" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Do I Need a PS5 to Play Modern Games?
 
@@ -160,15 +160,21 @@ Farknot\_Architect/iStock/GettyImagesPlus
 
  If your computer is older or not intended as a gaming platform, or your consoles are from the eighth generation (Xbox One, PS4, etc) then yes, it definitely is. Many newer titles—particularly high profiles ones that aren’t console-exclusive—aren’t coming to older hardware these days.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Will I Need to Buy a Bigger PS5 Hard Drive?
 
  Expanding the PS5’s internal storage space isn’t a requirement if you don’t plan to play an extensive variety of newer titles or don’t mind occasionally deleting things to make more room. That said, it’s generally much more convenient to spend the extra money and effort to add a compatible SSD so that you don’t have to worry about it—or at least worry about it less often.
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1815678/21290" target="_top" id="1815678">
-  <img src="//a.impactradius-go.com/display-ad/21290-1815678" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
 </a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815678/21290" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Is it Worth Getting a PS5 Slim?
 
@@ -180,6 +186,18 @@ Farknot\_Architect/iStock/GettyImagesPlus
 
  Eventually, you won't have a choice about whether or not to get a Slim version. Once Sony sells through the older, larger models, this will be the only option.
 
+<!-- affiliate ads begin -->
+<span id="1983474">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Should I Wait for the PS5 Pro?
 
  Deciding whether or not to hold off on getting a PS5 or PS5 Slim in favor of the[PS5 Pro](https://www.lifewire.com/playstation-5-pro-7966359) is a tricky proposition because this expected iteration doesn’t technically exist yet. At least not officially.  

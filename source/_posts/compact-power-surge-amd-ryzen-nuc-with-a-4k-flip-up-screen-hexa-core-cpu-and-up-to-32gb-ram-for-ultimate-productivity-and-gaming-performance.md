@@ -1,7 +1,7 @@
 ---
 title: "Compact Power Surge: AMD Ryzen NUC with a 4K Flip-Up Screen, Hexa-Core CPU & Up To 32GB RAM for Ultimate Productivity and Gaming Performance"
-date: 2024-09-04T00:18:50.635Z
-updated: 2024-09-05T00:18:50.635Z
+date: 2024-09-09T03:51:45.528Z
+updated: 2024-09-10T03:51:45.528Z
 tags:
   - desktop
 categories:
@@ -9,6 +9,12 @@ categories:
 thumbnail: https://thmb.techidaily.com/43e39de2530caaef8af78f1650abc11434992b40c432e7b5caac8bd0f3cdf48f.png
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115935/19272" target="_top" id="2115935">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115935" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115935/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Unleash Top Performance and Durability with The Cybertruck Styled AMD Ryzen 7 Powered Xyber XPC Mini PC - No Need to Clean Off Pests or Debris
 
 The Xyber Team launched its Xyber XPC Mini Desktop Computer campaign on[Indiegogo](https://www.indiegogo.com/projects/xyber-xpc-world-s-fastest-ryzen-7-mini-pc-truck/coming%5Fsoon) . This mini-PC houses a Ryzen 7 8845HS processor with up to 64 GB of RAM and a 1 TB M.2 NVMe 2280 SSD in the body of a Tesla Cybertruck. The company is likely not calling it that name due to copyright infringement, but its mini-PC is an almost faithful representation of the real thing.
@@ -21,14 +27,38 @@ The Xyber Team launched its Xyber XPC Mini Desktop Computer campaign on[Indiegog
 
 ![Xyber Team XPC internals](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2135474/26400" target="_top" id="2135474">
+  <img src="//a.impactradius-go.com/display-ad/26400-2135474" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135474/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Xyber Team XPC internals  (Image credit: Taki Udon / YouTube)
 
 ![Xyber Team XPC ports](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
 
+<!-- affiliate ads begin -->
+<span id="1983545">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Xyber Team XPC ports  (Image credit: Taki Udon / YouTube)
 
 ![Xyber Team XPC front](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2128843/7443" target="_top" id="2128843">
+  <img src="//a.impactradius-go.com/display-ad/7443-2128843" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128843/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Xyber Team XPC front  (Image credit: Taki Udon / YouTube)
 
  The plastic frame that holds the motherboard is also well-crafted and detailed, including the seats, plastic wheels, and rubber tires. A daughter board inside the frunk of this funky little mini-PC Cybertruck controls the front and rear lights, and you can steer the truck’s front wheel, albeit by pushing the wheels left or right with your fingers.
@@ -39,12 +69,24 @@ The Xyber Team launched its Xyber XPC Mini Desktop Computer campaign on[Indiegog
 
  This Stealth Cybertruck PC Can Game - YouTube ![This Stealth Cybertruck PC Can Game - YouTube](https://img.youtube.com/vi/1DJs6fIS4Pg/maxresdefault.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139118/17108" target="_top" id="2139118">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139118" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139118/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [Watch On](https://youtu.be/1DJs6fIS4Pg)
 
  Although the Xyber XPC has many vents for cooling, it still hits 100 degrees C with the fans going full tilt when set to its maximum 60-watt TDP. But with the TDP lowered to 30 watts, the CPU’s peak temperature is now just 60 degrees Celsius, and the fans are barely audible.
 
  We don’t have pricing information yet about the Xyber XPC, though, as it’s still in the campaign pre-launch stage. But the team behind the mini-PC Cybertruck says that they’re optimizing the BIOS and OS to get the best performance out of this small desktop computer.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135416/19272" target="_top" id="2135416">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135416" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135416/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
 
  Get Tom's Hardware's best news and in-depth reviews, straight to your inbox.
@@ -120,10 +162,3 @@ The Xyber Team launched its Xyber XPC Mini Desktop Computer campaign on[Indiegog
 <li><a href="https://facebook.techidaily.com/optimize-your-social-media-presence-a-reel-creation-blueprint/"><u>Optimize Your Social Media Presence: A Reel Creation Blueprint</u></a></li>
 <li><a href="https://ios-unlock.techidaily.com/passfab-iphone-11-backup-unlocker-top-4-alternatives-by-drfone-ios/"><u>PassFab iPhone 11 Backup Unlocker Top 4 Alternatives</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2024351/7443" target="_top" id="2024351">
-  <img src="//a.impactradius-go.com/display-ad/7443-2024351" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2024351/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

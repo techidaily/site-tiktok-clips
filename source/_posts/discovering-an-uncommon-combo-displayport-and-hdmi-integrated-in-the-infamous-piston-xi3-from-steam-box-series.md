@@ -1,7 +1,7 @@
 ---
 title: Discovering an Uncommon Combo! DisplayPort and HDMI Integrated in the Infamous Piston Xi3 From Steam Box Series
-date: 2024-09-04T00:18:50.111Z
-updated: 2024-09-05T00:18:50.111Z
+date: 2024-09-09T03:51:45.043Z
+updated: 2024-09-10T03:51:45.043Z
 tags:
   - desktop
 categories:
@@ -9,6 +9,12 @@ categories:
 thumbnail: https://cdn.mos.cms.futurecdn.net/xKcR5FqJUiwbE4tag5oaq9-320-80.png
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://bluettiit.sjv.io/c/5597632/2114263/17093" target="_top" id="2114263">
+  <img src="//a.impactradius-go.com/display-ad/17093-2114263" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114263/17093" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Full Powered Computing on the Go – Folding Mini Keyboard Houses AMD Ryzen CPU, Touchscreen Controls, and Self-Contained Battery; Just Add a Display
 
 Chinese PC maker Linglong has just introduced a tiny PC that fits into a foldable keyboard. The company shared its live presentation via video sharing site[bilibili](https://emakicms.com/brand/21/articles/view/2009106) , where the presenter pulled out the actual device from his back pocket. The keyboard PC also has a built-in trackpad, so you don't need to bring a mouse to use it. Interestingly, the portable mini PC lacks a built-in display, but the presenters had one interesting reason as to why it didn't include one.
@@ -35,14 +41,38 @@ Chinese PC maker Linglong has just introduced a tiny PC that fits into a foldabl
 
 ![Linglong foldable keyboard PC](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  (Image credit: Linglong on Bilibili)
 
 ![Linglong foldable keyboard PC ](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115912/19272" target="_top" id="2115912">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115912" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115912/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  (Image credit: Linglong / bilibili)
 
 ![Linglong foldable keyboard PC](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
 
+<!-- affiliate ads begin -->
+<span id="1912746">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  (Image credit: Linglong on Bilibili)
 
  The company boasts ten hours of battery life for light office work and up to six hours for watching movies. However, heavy workloads and gaming will cut down its useful life to just four hours or so. We should also consider that this doesn't yet take into account the power use of a display. So, if you plug in a screen that takes juice from the keyboard PC, you can expect the battery life to go down significantly if the screen you're using doesn't have its own power supply.
@@ -53,6 +83,12 @@ Chinese PC maker Linglong has just introduced a tiny PC that fits into a foldabl
 
  But even though some users say that this is an overpriced device, this is an interesting new form factor that takes advantage of the prevalence of screens everywhere. Linglong aims to revolutionize laptops by allowing its mini PC to use other displays that are available around us (or to even use AR glasses that give users a wider view angle without taking up a lot of space).
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
 
  Get Tom's Hardware's best news and in-depth reviews, straight to your inbox.
@@ -138,10 +174,3 @@ Chinese PC maker Linglong has just introduced a tiny PC that fits into a foldabl
 <li><a href="https://extra-lessons.techidaily.com/top-15-innovative-tools-perfecting-your-virtual-tone/"><u>Top 15 Innovative Tools  Perfecting Your Virtual Tone</u></a></li>
 <li><a href="https://data-wizards.techidaily.com/video-file-resurrection-program/"><u>Video File Resurrection Program</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997635/19272" target="_top" id="1997635">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997635" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997635/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] How to Make TikTok Reaction Videos in 2 Proven Ways - Filmora\""
-date: 2024-09-04T00:18:54.903Z
-updated: 2024-09-05T00:18:54.903Z
+date: 2024-09-09T03:51:49.482Z
+updated: 2024-09-10T03:51:49.482Z
 tags:
   - ai video
   - ai tiktok
@@ -15,6 +15,18 @@ keywords: "TikTok Reactions Creation,TikTok Reaction Filming,TikTok Video Reacti
 thumbnail: https://thmb.techidaily.com/a172e0efcea75add6ab8eef1d0430a010e6f31545b8fd2ecff1c5ec11c0e45ff.png
 ---
 
+<!-- affiliate ads begin -->
+<span id="1328679">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Make TikTok Reaction Videos in 2 Proven Ways - Filmora
 
 # How to Make TikTok Reaction Videos Easily in 2 Ways
@@ -42,6 +54,12 @@ Want to read the texts instead of watching videos? Check the complete guide to [
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 1: How to React to a TikTok Video
 
 After being equipped with all the worldly knowledge about **TikTok reaction videos**, you can follow the steps given below to learn how to react to the footage created by other people:
@@ -52,6 +70,12 @@ Start TikTok, play the video you want to react on, tap the **Share** icon from t
 
 ![ Make reaction video in tiktok](https://images.wondershare.com/filmora/article-images/make-reaction-video-tiktok.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 2\. Apply Filters
 
 Tap the **Filters** icon from the top-right corner, tap to pick a filter from those available at the bottom, and tap anywhere on the screen to accept the one you selected and to get back to the previous window.
@@ -59,10 +83,22 @@ Tap the **Filters** icon from the top-right corner, tap to pick a filter from th
 ![Add Filters to TikTok Reaction Video](https://images.wondershare.com/filmora/article-images/apply-filters-tiktok-reaction-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918666/19272" target="_top" id="1918666">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918666" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918666/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<span id="1265663">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### 3\. Manage Audio
 
@@ -71,22 +107,16 @@ Tap the **Mixer** icon from the upper-right corner of the screen, drag the **My 
 ![ Add music to Tiktok Reaction video](https://images.wondershare.com/filmora/article-images/manage-audio-in-reaction-video-tiktok.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049388/7443" target="_top" id="2049388">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049388" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115945/19272" target="_top" id="2115945">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115945" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049388/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115945/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 <!-- affiliate ads begin -->
-<span id="1374819">
-					<video width="125" height="125" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### 4\. Publish the Video
 
@@ -106,12 +136,6 @@ You can learn how to make **TikTok reaction videos**  using Wondershare Filmora 
 
 **Note:**  Before proceeding, make sure that you have already copied the source (and the reaction) video(s) from your smartphone to your computer.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/798161/11305" target="_top" id="798161">
-  <img src="//a.impactradius-go.com/display-ad/11305-798161" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798161/11305" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 1\. Create New Project and Set Preferences
 
 Start Wondershare Filmora on your Windows or Mac PC, go to **File**  \> **New Project** and click **9:16 (Portrait)**  from the submenu that appears.
@@ -120,24 +144,12 @@ Click **Split Screen** from the standard toolbar at the top, hover mouse to the 
 
 ![Filmora9 portrait mode split screen presets](https://images.wondershare.com/filmora/article-images/portrait-mode-split-screen-presets.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027181/19272" target="_top" id="2027181">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027181" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027181/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 2\. Import and Add Video(s) Preview/Timeline
 
 Click the **Media** button from the standard toolbar, click anywhere inside the **Media** window at the upper-left corner, and when the **Open** box comes up, select and import the video file(s) you want to participate in the **TikTok reaction**. Alternatively, you can also click **Record** from below the standard toolbar, and choose any of the options to record your own video or voice right from within Wondershare Filmora itself.
 
 Next, click and drag each of the imported videos to their corresponding screen sections in the **Preview** window in the upper-right area. Notice how the files are automatically added to the Timeline at the bottom.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934292/19272" target="_top" id="1934292">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934292" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934292/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 3\. Add Elements and Titles
 
 Click **Elements** from the standard toolbar, hover mouse to the element you want to add to the reaction, click the **\+**  icon that appears at the center of the thumbnail, and reposition the element in the Timeline to match the duration with that of the reaction you are creating.
@@ -145,10 +157,10 @@ Click **Elements** from the standard toolbar, hover mouse to the element you wan
 ![Filmora9 make reaction video with split screen presets and elements](https://images.wondershare.com/filmora/article-images/make-reaction-video-tiktok-with-element-titles.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087253/19272" target="_top" id="2087253">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087253" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087253/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### 4\. Export the Reaction
 
@@ -162,6 +174,12 @@ Besides using Filmora to edit reaction videos with the split-screen presets, you
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115943/19272" target="_top" id="2115943">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115943" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115943/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Conclusion**
 
 A **TikTok reaction** enables you to make the source videos more fun and entertaining. Luckily the app itself has a “React” button that helps you create **TikTok reaction videos** with merely a few simple taps. However, if you feel that the built-in options are not as robust as they should be, a third-party program like Wondershare Filmora is something you would definitely love to try your hands on as the software is not only easy to use, it is also lightweight, and doesn’t put any overhead on your computer hardware.
@@ -169,10 +187,16 @@ A **TikTok reaction** enables you to make the source videos more fun and enterta
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2112008/7443" target="_top" id="2112008">
-  <img src="//a.impactradius-go.com/display-ad/7443-2112008" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112008/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1495277">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Shanoon Cox
 

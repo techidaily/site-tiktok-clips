@@ -1,7 +1,7 @@
 ---
 title: "Uncover the Best Gadgets: Tom's Authoritative Hardware Analysis"
-date: 2024-09-04T00:18:50.431Z
-updated: 2024-09-05T00:18:50.431Z
+date: 2024-09-09T03:51:45.329Z
+updated: 2024-09-10T03:51:45.329Z
 tags:
   - desktop
 categories:
@@ -9,6 +9,12 @@ categories:
 thumbnail: https://thmb.techidaily.com/c540c3268cb02c45602ab66fa4199a7f1fc574c2a3cdb76d27eef05ccb7d85f2.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123478/16836" target="_top" id="2123478">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123478" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123478/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Innovation Hub: The Inside Scoop From Tom's Hardware for Gadget Lovers
 
 Mini PC specialist Minisforum has launched a new device, claiming several firsts. The new[AtomMan X7 Ti](https://www.minisforum.com/page/x7ti/index.html?lang=en) becomes the first in the firm's AtomMan line, described as a high-end cutting-edge marque by Minisforum. It is also claimed to be the “first Intel Ultra 9 AI Mini PC with a 4-inch Touchscreen.” With the rising popularity of[extra screens in PCs](https://www.tomshardware.com/pc-components/cooling/hands-on-lian-lis-lcd-screen-fans-turn-heads-and-are-surprisingly-affordable-but-not-as-configurable-as-id-like) , integrating one into a compact desktop might be a popular idea.
@@ -21,14 +27,32 @@ Mini PC specialist Minisforum has launched a new device, claiming several firsts
 
 ![Minisforum AtomMan X7 Ti PC](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  (Image credit: Minisforum)
 
 ![Minisforum AtomMan X7 Ti PC](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136624/26400" target="_top" id="2136624">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136624" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136624/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  (Image credit: Minisforum)
 
 ![Minisforum AtomMan X7 Ti PC](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120861/26400?prodsku=Saturn" target="_top" id="2120861">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120861" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120861/26400?prodsku=Saturn" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  (Image credit: Minisforum)
 
  Moving inside, the star of the show is the new Intel Core Ultra 9 processor[185H](https://www.intel.com/content/www/us/en/products/sku/236849/intel-core-ultra-9-processor-185h-24m-cache-up-to-5-10-ghz/specifications.html) with a 16C/22T CPU running at up to 5.1 GHz, and onboard Arc GPU with eight Xe cores running at up to 2.35 GHz. This[Meteor Lake](https://www.tomshardware.com/news/intel-details-core-ultra-meteor-lake-architecture-launches-december-14) chip is cooled by the new Cold Wave cooling system featuring a large diameter fan, 3 copper heatpipes, and a phase-change module.
@@ -41,6 +65,12 @@ Mini PC specialist Minisforum has launched a new device, claiming several firsts
 
  We caught a first glimpse of the AtomMan X7 Ti[at CES 2024](https://www.tomshardware.com/desktops/mini-pcs/minisforum-first-intel-core-ultra-mini-pc-amd-rx-7600M-xt-mini-pc) when it was showcased with other interesting new computers like the Minisforum HX200G, Mini Workstation MS-01, and the[V3 tablet](https://www.tomshardware.com/tablets/minisforum-v3-tablet-arrives-the-worlds-first-amd-ryzen-7-8840u-powered-surface-clone) .
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
 
  Get Tom's Hardware's best news and in-depth reviews, straight to your inbox.
@@ -109,10 +139,3 @@ Mini PC specialist Minisforum has launched a new device, claiming several firsts
 <li><a href="https://driver-error.techidaily.com/understanding-the-usb-composite-device-features-and-history/"><u>Understanding the USB Composite Device: Features and History</u></a></li>
 <li><a href="https://tiktok-clips.techidaily.com/voice-activated-tiktok-mastering-siri-on-your-iphone-for-2024/"><u>Voice-Activated TikTok  Mastering Siri on Your iPhone for 2024</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043856/7443" target="_top" id="2043856">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043856" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043856/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

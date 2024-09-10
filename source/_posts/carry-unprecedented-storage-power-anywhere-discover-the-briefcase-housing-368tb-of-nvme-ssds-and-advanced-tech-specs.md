@@ -1,7 +1,7 @@
 ---
 title: "Carry Unprecedented Storage Power Anywhere: Discover the Briefcase Housing 368TB of NVMe SSDs and Advanced Tech Specs"
-date: 2024-09-04T00:18:50.577Z
-updated: 2024-09-05T00:18:50.577Z
+date: 2024-09-09T03:51:45.467Z
+updated: 2024-09-10T03:51:45.467Z
 tags:
   - desktop
 categories:
@@ -9,6 +9,12 @@ categories:
 thumbnail: https://thmb.techidaily.com/b6c1c170b3fb34192b1990649e9c8685733790cb7484ba703ce124bf47249cb0.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Engineering the Impossible: How Ordinary Canned Air Reaches Supersonic Performance
 
 Ordinary canned air products shoot out jets of gas with a surprising amount of vigor. A precision engineering and machining YouTuber,[Cylo’s Garage](https://www.youtube.com/watch?v=DfYlLns0els) , noticed telltale ‘shock diamonds’ in the stream emitted by his Staples-branded canned air and felt compelled to investigate further. Using a Schlieren imaging setup, the YouTuber managed to confirm that the humble air duster was pushing out a supersonic flow of gas (h/t [Hackaday](https://hackaday.com/2024/02/18/canned-air-is-unexpectedly-supersonic/) ).
@@ -19,6 +25,12 @@ Ordinary canned air products shoot out jets of gas with a surprising amount of v
 
 ![shock diamonds](https://cdn.mos.cms.futurecdn.net/wMGjjqj2ttbEB8vS7vxPqW-320-80.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115950/19272" target="_top" id="2115950">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115950" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115950/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  (Image credit: Cylo’s Garage)
 
  About halfway through the video from Cylo’s Garage, we get to see how supersonic air speeds were confirmed using a rudimentary Schlieren imaging setup. All that was needed was a simple lens, a razor blade, an imaging sensor, and a light source. See this test setup, above. This admittedly “janky” set up more or less confirmed shock diamonds in the flow of gas from the can.
@@ -31,14 +43,38 @@ Ordinary canned air products shoot out jets of gas with a surprising amount of v
 
 ![shock diamonds](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
 
+<!-- affiliate ads begin -->
+<span id="1982456">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  (Image credit: Cylo’s Garage)
 
 ![shock diamonds](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  (Image credit: Cylo’s Garage)
 
 ![shock diamonds](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115926/19272" target="_top" id="2115926">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115926" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115926/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  (Image credit: Cylo’s Garage)
 
 ![shock diamonds](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
@@ -47,6 +83,18 @@ Ordinary canned air products shoot out jets of gas with a surprising amount of v
 
  In tests, the canned air soon ran out of pressure between bursts, but more consistent shock diamonds were pictured from the nozzle of an air compressor (90 PSI). However, the YouTuber's favorite demo was delivered using the ball pump nozzle on the air compressor hose. Have a look through the gallery above for some of the great shock diamonds emitted from the canned air and various nozzles attached to a shop compressor.
 
+<!-- affiliate ads begin -->
+<span id="1982485">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
 
  Get Tom's Hardware's best news and in-depth reviews, straight to your inbox.
@@ -116,10 +164,3 @@ Ordinary canned air products shoot out jets of gas with a surprising amount of v
 <li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-realme-narzo-n53-drfone-by-drfone-virtual-android/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On Realme Narzo N53 | Dr.fone</u></a></li>
 <li><a href="https://technical-tips.techidaily.com/why-isnt-my-receiver-working-expert-tips-for-fixing-sound-problems/"><u>Why Isn't My Receiver Working? Expert Tips for Fixing Sound Problems</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902324/19272" target="_top" id="1902324">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902324" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902324/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

@@ -1,7 +1,7 @@
 ---
 title: "Experience Lightning-Fast Performance: DIY Kit Enables Direct PCIe Link Between Mini PC and eGPU Surpassing Thunderbolt Amo"
-date: 2024-09-04T00:18:50.445Z
-updated: 2024-09-05T00:18:50.445Z
+date: 2024-09-09T03:51:45.343Z
+updated: 2024-09-10T03:51:45.343Z
 tags:
   - desktop
 categories:
@@ -9,6 +9,12 @@ categories:
 thumbnail: https://thmb.techidaily.com/4710ca06d5c1bac3d98138fcc48df68b8cda1336ed8306337cb08733704da4ca.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2135473/26400" target="_top" id="2135473">
+  <img src="//a.impactradius-go.com/display-ad/26400-2135473" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135473/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Cutting-Edge PC Architecture: Expertly Engineered for Efficient Air Cooling at the Heart of a Large Central Fan - Conquer Centrifugal Dynamics
 
 Over on Chinese videosharing platform Bilibili, user 苏打baka uploaded a lengthy video showcasing the building, iteration, and operation of[a true fan PC build](https://www.bilibili.com/video/BV1JE421A713/) , by which we mean the entire PC has been built into the center of a giant box fan painted to look like a case fan. This video demo should not be mistaken for an actually-viable[Mini PC](https://www.tomshardware.com/tag/mini-pc) project, and does not constitute any[PC cooling advice](https://www.tomshardware.com/how-to/set-up-pc-case-fans-for-airflow-and-performance) .
@@ -19,10 +25,22 @@ Over on Chinese videosharing platform Bilibili, user 苏打baka uploaded a lengt
 
 ![Shots of the Fan PC build from throughout the original video.](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139110/17108" target="_top" id="2139110">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139110" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139110/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  (Image credit: 苏打baka on Bilibili)
 
 ![Shots of the Fan PC build from throughout the original video.](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  (Image credit: 苏打baka on Bilibili)
 
  Now, let's talk a little more about the details of the PC build in question. Sodabaka essentially took an old Intel Sandybridge-era[Mini ITX](https://www.tomshardware.com/best-picks/best-mini-itx-pc-cases) motherboard and tested its operation while attached to a spinning fan.
@@ -35,6 +53,12 @@ Over on Chinese videosharing platform Bilibili, user 苏打baka uploaded a lengt
 
  So, what happened? Did the static buildup short out the PC or something? Fortunately, nothing so mundane. Instead, the fan PC was tested at increasingly higher speeds until the[weighty cooler](https://www.tomshardware.com/news/noctua-fanless-cooler-enters-production) was violently flung from the PC in the last moments of the original video. No wonder Sodabaka hid behind a riot shield for much of the video demo.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118306/7443" target="_top" id="2118306">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118306" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118306/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
 
  Get Tom's Hardware's best news and in-depth reviews, straight to your inbox.
@@ -101,10 +125,3 @@ Over on Chinese videosharing platform Bilibili, user 苏打baka uploaded a lengt
 <li><a href="https://tiktok-clips.techidaily.com/vocalizing-your-visual-content-a-complete-tiktok-manual-for-2024/"><u>Vocalizing Your Visual Content  A Complete TikTok Manual for 2024</u></a></li>
 <li><a href="https://tiktok-clips.techidaily.com/whats-outside-of-tiktok-a-curated-list-of-popular-channels-for-2024/"><u>What's Outside of TikTok? A Curated List of Popular Channels for 2024</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2031472/7443" target="_top" id="2031472">
-  <img src="//a.impactradius-go.com/display-ad/7443-2031472" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2031472/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

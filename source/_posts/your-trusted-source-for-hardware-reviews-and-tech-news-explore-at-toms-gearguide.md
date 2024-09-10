@@ -1,7 +1,7 @@
 ---
 title: Your Trusted Source for Hardware Reviews & Tech News - Explore at Tom's GearGuide
-date: 2024-09-04T00:18:50.605Z
-updated: 2024-09-05T00:18:50.605Z
+date: 2024-09-09T03:51:45.497Z
+updated: 2024-09-10T03:51:45.497Z
 tags:
   - desktop
 categories:
@@ -9,12 +9,24 @@ categories:
 thumbnail: https://cdn.mos.cms.futurecdn.net/cUgn8bxx4gsQGMqSLp8XNa-320-80.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014848/22899" target="_top" id="2014848">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014848" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014848/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Explore Cutting-Edge Tech with Tom's Hardware - Your Ultimate Gadget Guide
 
 Minisforum has launched its second[AtomMan branded](https://www.tomshardware.com/desktops/mini-pcs/minisforum-atomman-x7-ti-touchscreen-mini-pc-comes-packing-an-intel-core-ultra-9-185h) device, this time with its eye on Mini PCs designed for gaming. The firm’s premium sub-brand is used here for a device offering the twin charms, and AMD Advantage blessings, of a[Ryzen R9 7945HX](https://www.tomshardware.com/news/ryzen-9-7945hx-beats-core-i9-13950hx) and Radeon[RX 7600M XT](https://www.tomshardware.com/news/amd-launches-rx-7600m-gpus-mobile-rdna-3-with-rtx-3060-performance) . Curiously, the new[AtomMan G7 Pt](https://www.minisforum.com/page/g7pt/index.html?lang=en) appears to be a rejigged version of the proposed Minisforum HX200G which was[showcased at CES 2024](https://www.tomshardware.com/desktops/mini-pcs/minisforum-first-intel-core-ultra-mini-pc-amd-rx-7600M-xt-mini-pc) back in January.
 
 ![Minisforum AtomMan G7 Pt](https://cdn.mos.cms.futurecdn.net/PyZgZxKUB9Acg9JX58bM36-320-80.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  (Image credit: Minisforum)
 
  As per our headline, Minisforum claims this is “the world’s first AMD Advantage-certified A+A high-performance Mini PC.” You can read more about[AMD Advantage for desktops](https://www.tomshardware.com/news/amds-advantage-comes-to-desktops-with-new-perf-boosting-features) , and we have[reviewed some laptops](https://www.tomshardware.com/reviews/asus-rog-strix-g15-advantage-edition-rx-6800m) with this certification. The AtomMan G7 Pt, however, is somewhere in-between as a Mini PC featuring mobile processors. For the rest of the specs check out the table below.
@@ -36,6 +48,12 @@ Minisforum has launched its second[AtomMan branded](https://www.tomshardware.com
 
 ![Minisforum AtomMan G7 Pt](https://cdn.mos.cms.futurecdn.net/BCXcTW8u5XFwpHJ2k5ueD6-320-80.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123465/16836" target="_top" id="2123465">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123465" border="0" alt="https://techidaily.com" width="80" height="31"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123465/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  (Image credit: Minisforum)
 
  The AMD Dragon Range CPU and RX7600M XT may not be the newest or most powerful AMD combo a PC maker could assemble in mid-2024\. Nevertheless, they should do a pretty good job delivering a capable mini gaming system experience, as long as user ambitions for higher resolutions (like 4K) and raytracing are kept in check.
@@ -50,10 +68,22 @@ Minisforum has launched its second[AtomMan branded](https://www.tomshardware.com
 
 ![Minisforum AtomMan G7 Pt](https://cdn.mos.cms.futurecdn.net/5vH5yUKbtEt5tHuJMtPYk5-320-80.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2135475/26400" target="_top" id="2135475">
+  <img src="//a.impactradius-go.com/display-ad/26400-2135475" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135475/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  (Image credit: Minisforum)
 
  One of the bigger changes we have seen added to the AtomMan G7 Pt since its name was switched from the HX200G is the provision of dual RGB backlighting panels. The example logo scrawl provides a prime example of beauty being in the eye of the beholder.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115911/19272" target="_top" id="2115911">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115911" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115911/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
 
  Get Tom's Hardware's best news and in-depth reviews, straight to your inbox.
@@ -131,10 +161,3 @@ Minisforum has launched its second[AtomMan branded](https://www.tomshardware.com
 <li><a href="https://tiktok-clips.techidaily.com/vocalizing-your-visual-content-a-complete-tiktok-manual-for-2024/"><u>Vocalizing Your Visual Content  A Complete TikTok Manual for 2024</u></a></li>
 <li><a href="https://tiktok-clips.techidaily.com/whats-outside-of-tiktok-a-curated-list-of-popular-channels-for-2024/"><u>What's Outside of TikTok? A Curated List of Popular Channels for 2024</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/798161/11305" target="_top" id="798161">
-  <img src="//a.impactradius-go.com/display-ad/11305-798161" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798161/11305" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

@@ -1,7 +1,7 @@
 ---
 title: "Simplified Steps for Snapchat Lens Design"
-date: 2024-09-04T00:18:58.721Z
-updated: 2024-09-05T00:18:58.721Z
+date: 2024-09-09T03:51:53.054Z
+updated: 2024-09-10T03:51:53.054Z
 tags:
   - ai video
   - ai snapchat
@@ -47,6 +47,12 @@ If you want some customization, or you just want to mess around until you get th
 
 ![lens studio](https://images.wondershare.com/filmora/article-images/Lens-Studio.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135358/19272" target="_top" id="2135358">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135358" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135358/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### Lens Studio is for business
 
 Lens Studio is perfect for businesses that may want to create unique environments for their clients, or the times when they are releasing company Snapchat posts. Say the company is hosting an event. They may want a custom graphic for that event, which is used for all the pictures and videos posted to Snapchat about the event. Using Lens Studio lets them do that with ease.
@@ -55,6 +61,24 @@ Create Your Own Lens is great when you are going to a special event, birthday pa
 
 ![lens studio snapchat](https://images.wondershare.com/filmora/article-images/len-studio-snapchat.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135362/19272" target="_top" id="2135362">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135362" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135362/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<span id="1936838">
+					<video width="374" height="48" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 2: How to Use Lens Studio
 
 #### 1\. Download Lens Studio
@@ -69,6 +93,12 @@ There is also a Lens Studio Overview guide that you can access online, which wil
 
 ![lens studio templates](https://images.wondershare.com/filmora/article-images/lens-studio-templates.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### 3\. Use Studio Panels
 
 Are you ready to create your own custom Snapchat lens? It is time to head over to Studio Panels on the application. This is the area where you can add your own 2D or 3D objects, and you can visualize how they would look as a Snapchat filter. You can add, remove, resize and drag objects to specific areas of the screen.
@@ -83,12 +113,6 @@ The great thing about this application is that you can preview the lens before y
 
 ![preview lens studio](https://images.wondershare.com/filmora/article-images/preview-snapchat.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938698/19272" target="_top" id="1938698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938698" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938698/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 3: How to Create Snapchat Lenses Using Create Your Own Lens
 
 1. There are two ways that you can access the tool for creating fun Snapchat lenses. You can either visit the website snapchat.com/create, or you can go on the “filters and lenses” section on your iOS device. If you are using Snapchat on an Android device, you will only have the option for the website. But the feature is coming to the Android version of Snapchat very soon.
@@ -97,21 +121,15 @@ The great thing about this application is that you can preview the lens before y
 ![create snapchat](https://images.wondershare.com/filmora/article-images/create-snapchat.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886019/19272" target="_top" id="1886019">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886019" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886019/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 It is all up to your imagination. You can create the perfect Snapchat lens, which you can then send into your Snapchat account through your Snapcode. Of course, if you are using your iOS device to create the lens, it is already linked to your account.
 
 Another cool feature is how you can set the location for where the Snapchat lens is available. Say you are hosting a party. You can have the Snapchat lens available to everyone who uses Snapchat within a set square footage of your home. That is an amazing way to let everyone share social media pictures and photos of your party, through the lens you created.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049370/7443" target="_top" id="2049370">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049370" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049370/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Conclusion
 
 Creating Snapchat lenses has never been easier. Whether you are a business looking to add a custom lens, or you just want to create a fun lens for a graduation or party, there are tools that make the job very easy. Using these tools will allow you to create the perfect Snapchat lens for any occasion.
@@ -119,10 +137,10 @@ Creating Snapchat lenses has never been easier. Whether you are a business looki
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105864/7443" target="_top" id="2105864">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115935/19272" target="_top" id="2115935">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115935" border="0" alt="https://techidaily.com" width="392" height="72"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105864/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115935/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Ollie Mattison
 
