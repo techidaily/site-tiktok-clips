@@ -1,7 +1,7 @@
 ---
 title: Innovative, Silent 'Future Retro'-Styled Mini PC Utilizing Next-Gen USB4 Technology & SSD Storage Arrays
-date: 2024-09-09T03:51:45.258Z
-updated: 2024-09-10T03:51:45.258Z
+date: 2024-09-09T05:59:42.087Z
+updated: 2024-09-15T08:20:08.259Z
 tags:
   - desktop
 categories:
@@ -9,12 +9,6 @@ categories:
 thumbnail: https://cdn.mos.cms.futurecdn.net/9phkDkvQPJpXRzA7QTKhza-320-80.png
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Maximize Graphics Power & Performance - Elevate Your Build Using Our DIY Kit's PCIe Connection Between Mini PC and eGPU, Outpacing Thunderbolt 4 Speeds
 
 Mini PCs, the class of desktops that fit in really tiny cases, have a following among PC enthusiasts thanks to Intel's (now Asus's) NUC line. But because of their size and modest thermal budgets, most mini PCs have two severe limitations: they rely on performance-limited mobile CPUs and they usually are stuck with integrated graphics.
@@ -29,12 +23,6 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
 
 ![Mini Maker Turbo Mini X Open](https://cdn.mos.cms.futurecdn.net/6Lgg2ep6349kAWRyprQDe3-320-80.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  (Image credit: Tom's Hardware)
 
  You can use any Raptor Lake or Raptor Lake Refresh chip that consumes 65 watts, a Core i5-1440 or Core i7-1470 for example. A passive heat sink covers the chip and a blower fan sits next to the sink and above the SODIMM slots. The kit doesn't come with an SSD (or the RAM or CPU) but it does come with a heatsink you can use with your SSD to keep it cool.
@@ -43,18 +31,6 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
 
  The Turbo Mini X is loaded with ports, including a 10 Gbps USB-C port that can output 45 watts for charging, a 20 Gbps USB-C port and 5 USB Type-A ports. But what's most interesting is a proprietary port that connects to the Mini Maker StreamPlay X External Graphics Box, which is sold separately. The port uses USB-C, but according to Mini Maker, it enables a direct PCIe connection which is faster than what you get when using Thunderbolt 4 to connect a laptop to an after-market eGPU like the Razer Core X.
 
-<!-- affiliate ads begin -->
-<span id="1912746">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
 
  Get Tom's Hardware's best news and in-depth reviews, straight to your inbox.
@@ -69,18 +45,6 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
 
 ![Mini Maker StreamPlay X Cable](https://cdn.mos.cms.futurecdn.net/7PWKa2qagFoGCQJ7GH9t5H-320-80.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1983475">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  (Image credit: Tom's Hardware)
 
  The StreamPlay X is a remarkably compact eGPU, but an attractive one. It allows you to see your card through a wrap-around plastic window and it has a case fan to help cool your graphics card. The device is available with different power supply capacities: 250, 350 or 400 watts.
@@ -89,18 +53,6 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
 
 ![Mini Maker StreamPlay X](https://cdn.mos.cms.futurecdn.net/bofwgvfDKpeYqVAheTShC9-320-80.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1484963">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  (Image credit: Tom's Hardware)
 
  Mini Maker is a very new brand whose parent company is Hibertek, a Taiwanese OEM that builds B2B systems. Company reps said that they are trying to find a partner in the U.S. to sell the Turbo Mini X and its other mini PCs. The products may carry any future partners' brand name or they could be labeled as Mini Maker. At present, the system is set to come out in mainland China and Taiwan.
@@ -109,14 +61,11 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
 
  But even at a much higher price, the Turbo Mini X and Streamplay X could be a very compelling combination. Users with limited desk space or those who just like the idea of a tiny desktop could get a lot of performance and flexibility with a very small footprint.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -127,36 +76,24 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-2024-approved-innovations-in-videography-infusing-narratives-effortlessly/"><u>[New] 2024 Approved  Innovations in Videography  Infusing Narratives Effortlessly</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-aspect-ratio-fundamentals-for-effective-youtube-content-creation/"><u>[New] In 2024, Aspect Ratio Fundamentals for Effective YouTube Content Creation</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/our-youtube-shorts-have-been-restored/"><u>[New] Your YouTube Shorts Have Been Restored</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-audience-acclaim-index-worlds-most-engaged-youtubers-for-2024/"><u>[Updated] Audience Acclaim Index  World's Most Engaged YouTubers for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-optimal-mp4-extractor-from-tiktok-videos/"><u>[Updated] In 2024, Optimal MP4 Extractor From TikTok Videos</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-the-road-to-success-key-elements-in-tiktok-marketing/"><u>[Updated] In 2024, The Road to Success  Key Elements in TikTok Marketing</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-unbroken-dance-broadcasts-on-xigua-video/"><u>[Updated] In 2024, Unbroken Dance Broadcasts on Xigua Video</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-infiltrate-live-tips-for-guesting-on-tiktok-sessions-for-2024/"><u>[Updated] Infiltrate Live  Tips for Guesting on TikTok Sessions for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-innovative-editing-at-your-fingertips-complete-guide-to-vivacut-24/"><u>[Updated] Innovative Editing at Your Fingertips  Complete Guide to VivaCut '24</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-jive-into-action-creating-engaging-tiktok-dances-on-a-mac-for-2024/"><u>[Updated] Jive Into Action  Creating Engaging TikTok Dances on a Mac for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-leading-edits-the-10-best-video-apps/"><u>[Updated] Leading Edits  The 10 Best Video Apps</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-leveraging-creativity-to-overshadow-tiktok-elites-for-2024/"><u>[Updated] Leveraging Creativity to Overshadow TikTok Elites for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-mastering-the-art-of-unblocking-tiktok/"><u>[Updated] Mastering the Art of Unblocking TikTok</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-next-big-thing-in-viral-videos-will-likeeclipse-tiktoks-rise-for-2024/"><u>[Updated] Next Big Thing in Viral Videos  Will LikeEclipse TikTok's Rise for 2024</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-public-melodies-for-calmness/"><u>[Updated] Public Melodies for Calmness</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-rising-stars-will-likes-surpass-tiktoks-mass-appeal-for-2024/"><u>[Updated] Rising Stars  Will Likes Surpass TikTok's Mass Appeal for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-strategies-to-bypass-invisible-restrictions-on-tiktok/"><u>[Updated] Strategies to Bypass Invisible Restrictions on TikTok</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-the-art-of-capturing-flawless-ootd-tiktoks-on-a-mac-for-2024/"><u>[Updated] The Art of Capturing Flawless OOTD TikToks on a Mac for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-the-clear-sky-route-to-free-unmarked-tiktok-videos-for-2024/"><u>[Updated] The Clear-Sky Route to Free, Unmarked TikTok Videos for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-the-secret-sauce-of-compelling-tiktok-footage-on-mac/"><u>[Updated] The Secret Sauce of Compelling TikTok Footage on Mac</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-tiktok-demystified-a-complete-guide-for-computer-users/"><u>[Updated] TikTok Demystified  A Complete Guide for Computer Users</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-tiktok-prosperity-program-entry-guide-and-earn-with-filmora-for-2024/"><u>[Updated] TikTok Prosperity Program  Entry Guide & Earn with Filmora for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-tiktoks-hidden-treasures-grab-em-all-for-free/"><u>[Updated] TikTok's Hidden Treasures  Grab 'Em All for Free</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-transforming-wardrobe-stories-into-mac-made-ootd-videos-for-2024/"><u>[Updated] Transforming Wardrobe Stories Into Mac-Made OOTD Videos for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-twirl-chill-and-groove-the-ultimate-country-playlist-on-tiktok/"><u>[Updated] Twirl, Chill, and Groove  The Ultimate Country Playlist on TikTok</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-unveiling-the-top-6-tiktok-to-mp3-converters-free/"><u>[Updated] Unveiling the Top 6 TikTok-to-MP3 Converters - FREE</u></a></li>
-<li><a href="https://article-files.techidaily.com/2024-approved-exploring-high-definition-sw320-4k-monitor-experience/"><u>2024 Approved  Exploring High Definition  Sw320 4K Monitor Experience</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-pathways-to-acquiring-facebooks-distinguished-verification/"><u>2024 Approved  Pathways to Acquiring Facebook's Distinguished Verification</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/easy-installation-how-to-download-behringers-usb-audio-device-drivers/"><u>Easy Installation: How to Download Behringer's USB Audio Device Drivers</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-frp-hijacker-by-hagard-download-and-bypass-your-zte-nubia-z60-ultra-frp-locks-by-drfone-android/"><u>In 2024, FRP Hijacker by Hagard Download and Bypass your ZTE Nubia Z60 Ultra FRP Locks</u></a></li>
-<li><a href="https://fake-location.techidaily.com/life360-learn-how-everything-works-on-honor-magic-6-lite-drfone-by-drfone-virtual-android/"><u>Life360 Learn How Everything Works On Honor Magic 6 Lite | Dr.fone</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/vocalizing-your-visual-content-a-complete-tiktok-manual-for-2024/"><u>Vocalizing Your Visual Content  A Complete TikTok Manual for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-stunning-appraisal-and-alternative-suggestions/"><u>[New] 2024 Approved Stunning Appraisal & Alternative Suggestions</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-unveiling-the-ultimate-list-of-budget-friendly-video-editors/"><u>[New] Unveiling the Ultimate List of Budget-Friendly Video Editors</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-mastering-tempo-a-guide-to-instagram-story-adjustments/"><u>[Updated] 2024 Approved Mastering Tempo A Guide to Instagram Story Adjustments</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-best-audio-equipment-matched-with-4k-cameras/"><u>[Updated] Best Audio Equipment Matched with 4K Cameras</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/analyzing-peak-engagement-for-podcast-drops-for-2024/"><u>Analyzing Peak Engagement for Podcast Drops for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-3-ways-for-android-pokemon-go-spoofing-on-xiaomi-civi-3-disney-100th-anniversary-edition-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways for Android Pokemon Go Spoofing On Xiaomi Civi 3 Disney 100th Anniversary Edition | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-get-and-use-pokemon-go-promo-codes-on-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>In 2024, How to Get and Use Pokemon Go Promo Codes On Honor 80 Pro Straight Screen Edition | Dr.fone</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/interactive-learning-zone-opens-for-youth-in-japan-build-your-own-computer-experience-with-actual-components/"><u>Interactive Learning Zone Opens for Youth in Japan - 'Build Your Own Computer' Experience with Actual Components</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/1723262413229-ryzen-9-powerhouse-in-a-compact-form-the-mini-pc-with-touchscreen-next-level-cpu-and-speedy-ssds/"><u>Ryzen 9 Powerhouse in a Compact Form: The Mini PC with Touchscreen, Next-Level CPU, and Speedy SSDs!</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/seamless-steps-setting-up-your-ps-vr-with-your-personal-computer/"><u>Seamless Steps: Setting Up Your PS VR with Your Personal Computer</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/the-core-of-vimeo-empowering-video-artists-and-audiences-for-2024/"><u>The Core of Vimeo Empowering Video Artists & Audiences for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/ultimate-guide-to-top-race-rc-rock-crawlers-mastering-off-road-adventures/"><u>Ultimate Guide to Top Race RC Rock Crawlers: Mastering Off-Road Adventures</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
