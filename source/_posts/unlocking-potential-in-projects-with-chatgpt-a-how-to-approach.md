@@ -1,7 +1,7 @@
 ---
 title: Unlocking Potential in Projects with ChatGPT - A How-To Approach
-date: 2024-09-12T02:45:33.095Z
-updated: 2024-09-14T17:17:47.360Z
+date: 2024-09-13T19:08:35.102Z
+updated: 2024-09-20T01:59:37.769Z
 tags:
   - chatgpt
   - open-ai
@@ -81,13 +81,6 @@ thumbnail: https://thmb.techidaily.com/2546a6e6db1c838a1a7b59103067ea8f9dccc09f3
 
 **Download:** YouTube Summary With ChatGPT for[Chrome](https://chrome.google.com/webstore/detail/youtube-summary-with-chat/nmmicjeknamkfloonkhhcjmomieiodli) |[Safari](https://apps.apple.com/us/app/glasp-social-web-highlighter/id1605690124) (Free)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115933/19272" target="_top" id="2115933">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115933" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115933/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 5\. Talk-to-ChatGPT
 
  ChatGPT is currently a text-only AI app where the prompts and the answers are written. But Google Chrome offers some excellent voice commands and text-to-speech features. Talk-to-ChatGPT bridges this gap to let you issue prompts by talking to your computer and having the ChatGPT answers read aloud by AI.
@@ -98,6 +91,13 @@ thumbnail: https://thmb.techidaily.com/2546a6e6db1c838a1a7b59103067ea8f9dccc09f3
 
 **Download:** Talk-to-ChatGPT for[Chrome](https://chrome.google.com/webstore/detail/talk-to-chatgpt/hodadfhfagpiemkeoliaelelfbboamlk) (Free)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 6\. ChatGPT for Search Engines
 
  ChatGPT for Search Engines is one of the[best new web search apps](https://www.makeuseof.com/web-search-apps-make-google-better-or-replace-google/) that presents ChatGPT answers alongside regular search results on Google or DuckDuckGo. It also works with Bing, but you don't need that anymore, given Microsoft has already officially integrated the two.
@@ -107,28 +107,15 @@ thumbnail: https://thmb.techidaily.com/2546a6e6db1c838a1a7b59103067ea8f9dccc09f3
 **Download:** ChatGPT for Search Engines for[Chrome](https://chrome.google.com/webstore/detail/chatgpt-for-search-engine/feeonheemodpkdckaljcjogdncpiiban/) |[Firefox](https://addons.mozilla.org/en-US/firefox/addon/chatgpt-for-search-engines/) |[Edge](https://microsoftedge.microsoft.com/addons/detail/chatgpt-for-search-engine/pnglghgjhaklojnjpkhcdidgalehmkbn) (Free)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 7\. Perplexity AI
 
 ![query answers by perplexity ai extension](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/perplexity-ai.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1983584">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983584.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983584">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983584.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983584%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983584/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  The decentralization of information and knowledge has done much good in recent years. But, like anything in tech, it carries an ugly side to it, too. The rise of fake news and misinformation, for instance, is one of its biggest unwanted by-products.
 
@@ -137,6 +124,13 @@ thumbnail: https://thmb.techidaily.com/2546a6e6db1c838a1a7b59103067ea8f9dccc09f3
  While the tool summarizes the information in a neat manner, it ends the answers with a quick mention of the best, legitimate sources. And while there's still a possibility of fault here (you'd still need to rely on the sources that Perplexity provides), we believe it's much better than going in blind with the usual, source-less responses you'd otherwise gotten from ChatGPT.
 
 **Download:** Perplexity AI for[Chrome](https://chrome.google.com/webstore/detail/perplexity-ai-companion/hlgbcneanomplepojfcnclggenpcoldo) (Free)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997722/19272" target="_top" id="1997722">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997722" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997722/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## ChatGPT Is Awesome, But Be Realistic…
 
@@ -159,20 +153,16 @@ thumbnail: https://thmb.techidaily.com/2546a6e6db1c838a1a7b59103067ea8f9dccc09f3
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-clips.techidaily.com/new-filmmakers-gateway-to-fame-on-tiktok-join-now/"><u>[New] Filmmaker's Gateway to Fame on TikTok - Join Now</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-diving-deep-into-the-world-of-professional-voice-overs-for-videos/"><u>[New] In 2024, Diving Deep Into the World of Professional Voice Overs for Videos</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-perfecting-pixels-how-to-choose-the-right-borders-on-ig-images/"><u>[New] In 2024, Perfecting Pixels How to Choose the Right Borders on IG Images</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-teaming-up-for-duet-video-on-tiktok/"><u>[New] Teaming Up for Duet Video on TikTok</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-the-magic-behind-immersive-world-creation/"><u>[New] The Magic Behind Immersive World Creation</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-top-6-tiktok-money-calculators-earnings-estimator/"><u>[New] Top 6 TikTok Money Calculators [Earnings Estimator]</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-gain-traction-with-effective-video-descriptions-and-tagging/"><u>[Updated] Gain Traction with Effective Video Descriptions and Tagging</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-perfecting-presentation-adding-textures-to-your-project/"><u>2024 Approved Perfecting Presentation Adding Textures to Your Project</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/detailed-guide-of-ispoofer-for-pogo-installation-on-itel-s23plus-drfone-by-drfone-virtual-android/"><u>Detailed guide of ispoofer for pogo installation On Itel S23+ | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-fix-pokemon-go-route-not-working-on-honor-100-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Pokemon Go Route Not Working On Honor 100 Pro? | Dr.fone</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-trouble-with-iphone-13-mini-swipe-up-try-these-11-solutions-by-drfone-ios/"><u>In 2024, Trouble with iPhone 13 mini Swipe-Up? Try These 11 Solutions</u></a></li>
-<li><a href="https://article-posts.techidaily.com/skip-the-hassle-merging-skype-and-zoom-features-for-2024/"><u>Skip the Hassle Merging Skype & Zoom Features for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/the-6-best-tiktop-to-mp3-converters-free-and-online-version/"><u>The 6 Best TikTop-to-MP3 Converters - Free & Online Version</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/the-future-of-sharing-videos-will-likes-outgrow-tiktoks-reach-for-2024/"><u>The Future of Sharing Videos Will Likes Outgrow TikTok's Reach for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/unlocking-voice-functionality-in-tiktok-videos-for-2024/"><u>Unlocking Voice Functionality in TikTok Videos for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-pro-tips-for-video-conference-recordings-desktop-edition/"><u>[New] Pro Tips for Video Conference Recordings Desktop Edition</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-tiktoks-enduring-melodies-top-10-of-the-year-2024/"><u>[New] TikTok's Enduring Melodies Top 10 of the Year 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-ultimate-guide-to-best-mac-video-frames-limit-156-chars/"><u>[Updated] 2024 Approved Ultimate Guide to Best Mac Video Frames (Limit 156 Chars)</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-a-beginners-guide-the-essentials-of-using-tiktok-macos-for-2024/"><u>[Updated] A Beginner's Guide The Essentials of Using TikTok (macOS) for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-amplify-engagement-utilizing-youtube-analytics-wisely-for-2024/"><u>[Updated] Amplify Engagement Utilizing YouTube Analytics Wisely for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/avoid-these-pitfalls-smart-strategies-for-choosing-alternatives-to-chatgpt-in-the-mac-ecosystem/"><u>Avoid These Pitfalls: Smart Strategies for Choosing Alternatives to ChatGPT in the Mac Ecosystem</u></a></li>
+<li><a href="https://windows11.techidaily.com/ftdibussys-explained-the-culprit-behind-windows-memory-defects/"><u>Ftdibus.sys Explained: The Culprit Behind Windows Memory Defects</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-vivo-v29e-drfone-by-drfone-virtual-android/"><u>In 2024, How to get the dragon scale and evolution-enabled pokemon On Vivo V29e? | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/innovative-filters-to-make-your-tiktok-stand-out/"><u>Innovative Filters to Make Your TikTok Stand Out</u></a></li>
+<li><a href="https://fake-location.techidaily.com/methods-to-change-gps-location-on-samsung-galaxy-s23-tactical-edition-drfone-by-drfone-virtual-android/"><u>Methods to Change GPS Location On Samsung Galaxy S23 Tactical Edition | Dr.fone</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/snapshot-preservation-android-and-mac-techniques/"><u>Snapshot Preservation Android & Mac Techniques</u></a></li>
 </ul></div>
 
