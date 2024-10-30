@@ -1,7 +1,7 @@
 ---
 title: "\"[New] How to Make TikTok Reaction Videos in 2 Proven Ways - Filmora\""
-date: 2024-10-17T11:43:18.494Z
-updated: 2024-10-23T20:07:46.198Z
+date: 2024-10-27T17:52:02.763Z
+updated: 2024-10-29T22:26:09.546Z
 tags:
   - ai video
   - ai tiktok
@@ -46,6 +46,13 @@ Want to read the texts instead of watching videos? Check the complete guide to [
 
 After being equipped with all the worldly knowledge about **TikTok reaction videos**, you can follow the steps given below to learn how to react to the footage created by other people:
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. Tap Share and Record Your Reaction
 
 Start TikTok, play the video you want to react on, tap the **Share** icon from the lower-right area, and tap the **React** option from the **Share to** menu. Tap **Flip** from the top-right corner of the **Camera** screen to switch between the front and rear camera as needed, optionally tap the **Mic** icon to disable or enable voice and system audio capture, drag and reposition **React** window according to the source footage, and tap the **Record** button from the bottom to start shooting your **TikTok reaction**. Wait while the source clip and your recording process are complete successfully before moving forward to the next step.
@@ -53,17 +60,16 @@ Start TikTok, play the video you want to react on, tap the **Share** icon from t
 ![ Make reaction video in tiktok](https://images.wondershare.com/filmora/article-images/make-reaction-video-tiktok.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151869/7443" target="_top" id="2151869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151869" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983545">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2\. Apply Filters
@@ -79,23 +85,17 @@ Tap the **Mixer** icon from the upper-right corner of the screen, drag the **My 
 ![ Add music to Tiktok Reaction video](https://images.wondershare.com/filmora/article-images/manage-audio-in-reaction-video-tiktok.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1977032">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2100534/7443" target="_top" id="2100534">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100534" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100534/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151854/7443" target="_top" id="2151854">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151854" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151854/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 4\. Publish the Video
@@ -103,6 +103,13 @@ Tap the **Mixer** icon from the upper-right corner of the screen, drag the **My 
 Tap the **Who can view this video** option to manage your reaction’s visibility settings (optional). Tap the **Save to device** toggle switch to prevent **TikTok reaction** from being stored on your mobile’s storage (optional). Next, tap the **Post** button from the bottom-right corner to publish the video to TikTok.
 
 ![Post TikTok Reaction Video](https://images.wondershare.com/filmora/article-images/post-reaction-video-tiktok.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657395/16446" target="_top" id="1657395">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657395" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657395/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 More creative tricks about TikTok video: [Clone Yourself in TikTok](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -116,13 +123,6 @@ You can learn how to make **TikTok reaction videos**  using Wondershare Filmora 
 
 **Note:**  Before proceeding, make sure that you have already copied the source (and the reaction) video(s) from your smartphone to your computer.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896555/19272" target="_top" id="1896555">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896555" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896555/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1\. Create New Project and Set Preferences
 
 Start Wondershare Filmora on your Windows or Mac PC, go to **File**  \> **New Project** and click **9:16 (Portrait)**  from the submenu that appears.
@@ -130,13 +130,6 @@ Start Wondershare Filmora on your Windows or Mac PC, go to **File**  \> **New Pr
 Click **Split Screen** from the standard toolbar at the top, hover mouse to the screen type preset you want to use, click the **\+**  ( **Add to Project** ) icon that appears at the bottom-right corner of the thumbnail, and click **OK**  from the bottom-right corner once the preset is added to the Timeline.
 
 ![Filmora9 portrait mode split screen presets](https://images.wondershare.com/filmora/article-images/portrait-mode-split-screen-presets.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/352557/5172" target="_top" id="352557">
-  <img src="//a.impactradius-go.com/display-ad/5172-352557" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352557/5172" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 2\. Import and Add Video(s) Preview/Timeline
 
@@ -149,6 +142,13 @@ Next, click and drag each of the imported videos to their corresponding screen s
 Click **Elements** from the standard toolbar, hover mouse to the element you want to add to the reaction, click the **\+**  icon that appears at the center of the thumbnail, and reposition the element in the Timeline to match the duration with that of the reaction you are creating.
 
 ![Filmora9 make reaction video with split screen presets and elements](https://images.wondershare.com/filmora/article-images/make-reaction-video-tiktok-with-element-titles.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082527/7443" target="_top" id="2082527">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082527" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082527/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4\. Export the Reaction
 
@@ -183,16 +183,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-the-complete-tiktok-siri-interaction-manual/"><u>[New] 2024 Approved The Complete TikTok Siri Interaction Manual</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-mastering-powerpoint-recording-on-camera-for-professionals/"><u>2024 Approved Mastering PowerPoint Recording on Camera for Professionals</u></a></li>
-<li><a href="https://howto.techidaily.com/8-workable-fixes-to-the-sim-not-provisioned-mm2-error-on-itel-s23plus-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Workable Fixes to the SIM not provisioned MM#2 Error on Itel S23+ | Dr.fone</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/discover-the-secret-to-friends-livestream-participation-for-2024/"><u>Discover the Secret to Friend's Livestream Participation for 2024</u></a></li>
-<li><a href="https://fox-that.techidaily.com/getting-your-iphone-mic-back-to-working-order-a-comprehensive-fix/"><u>Getting Your iPhone Mic Back to Working Order - A Comprehensive Fix</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/high-quality-cameras-ideal-for-podcasts-for-2024/"><u>High-Quality Cameras Ideal for Podcasts for 2024</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-apple-id-is-greyed-out-from-iphone-13-mini-how-to-bypass-by-drfone-ios/"><u>In 2024, Apple ID is Greyed Out From iPhone 13 mini How to Bypass?</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-full-guide-on-mirroring-your-infinix-note-30-pro-to-your-pcmac-drfone-by-drfone-android/"><u>In 2024, Full Guide on Mirroring Your Infinix Note 30 Pro to Your PC/Mac | Dr.fone</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/in-2024-the-ultimate-guide-to-booktiks-best-releases/"><u>In 2024, The Ultimate Guide to Booktik’s Best Releases</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/step-by-step-guide-to-pc-based-live-broadcasts-on-tiktok-for-2024/"><u>Step-by-Step Guide to PC-Based Live Broadcasts on TikTok for 2024</u></a></li>
-<li><a href="https://driver-download.techidaily.com/step-by-step-guide-installing-acer-aspire-device-drivers-on-windows/"><u>Step-by-Step Guide: Installing Acer Aspire Device Drivers on Windows</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-foodie-frenzy-top-10-viral-eats-on-tiktok/"><u>[New] Foodie Frenzy Top 10 Viral Eats on TikTok</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-reimagining-anime-narratives-in-trending-tiktok-creations/"><u>[New] In 2024, Reimagining Anime Narratives in Trending TikTok Creations</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-instantly-stream-youtube-content-on-facebook-auto-play-guide-for-2024/"><u>[New] Instantly Stream YouTube Content on Facebook Auto-Play Guide for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-mapping-out-your-ideal-tiktok-conclusion-for-2024/"><u>[New] Mapping Out Your Ideal TikTok Conclusion for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-how-to-craft-a-unique-identifier-for-your-tiktok-stream-for-2024/"><u>[Updated] How to Craft a Unique Identifier for Your TikTok Stream for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-seamless-shift-to-graphics-mastering-the-art-of-tiktok-to-gif/"><u>[Updated] In 2024, Seamless Shift to Graphics Mastering the Art of TikTok to GIF</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-the-sizzling-social-feast-10-viral-food-trends/"><u>[Updated] In 2024, The Sizzling Social Feast 10 Viral Food Trends</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-top-5-gaming-chairs-on-a-shoestring-budget-for-2024/"><u>[Updated] Top 5 Gaming Chairs on a Shoestring Budget for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-laptop-video-edits-going-off-inshot/"><u>2024 Approved Laptop Video Edits Going Off-Inshot</u></a></li>
+<li><a href="https://win-able.techidaily.com/conquering-silence-proactive-solutions-to-banish-black-screen-glitch-in-call-of-duty-warzones-latest-update/"><u>Conquering Silence: Proactive Solutions to Banish Black Screen Glitch in Call of Duty Warzone's Latest Update</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/crafting-a-tiktok-twosome-film-for-2024/"><u>Crafting a TikTok Twosome Film for 2024</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211417572-9781648414091-disabled-witchcraft/"><u>Disabled Witchcraft | Free Book</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/identifying-your-one-of-a-kind-tiktok-sequence/"><u>Identifying Your One-of-a-Kind TikTok Sequence</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-everything-you-need-to-know-about-the-youtube-shorts-fund/"><u>In 2024, Everything You Need to Know About the YouTube Shorts Fund</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-fast-and-furious-the-prime-5-video-clipping-tools-in-chromes/"><u>In 2024, Fast & Furious The Prime 5 Video Clipping Tools in Chromes</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-journey-through-the-land-of-costless-image-mastery/"><u>In 2024, Journey Through the Land of Costless Image Mastery</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-10-nubia-android-sim-unlock-apk-by-drfone-android/"><u>In 2024, Top 10 Nubia Android SIM Unlock APK</u></a></li>
+<li><a href="https://win-able.techidaily.com/overcoming-issues-when-launching-star-wars-jedi-fallen-order/"><u>Overcoming Issues When Launching Star Wars Jedi: Fallen Order</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/perfect-your-tiktok-presence-mastering-siri-commands-for-video-creation-for-2024/"><u>Perfect Your TikTok Presence - Mastering Siri Commands for Video Creation for 2024</u></a></li>
 </ul></div>
 
