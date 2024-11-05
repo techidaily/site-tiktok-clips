@@ -1,7 +1,7 @@
 ---
 title: "Simplified Steps for Snapchat Lens Design"
-date: 2024-10-22T09:49:52.186Z
-updated: 2024-10-24T10:44:06.684Z
+date: 2024-10-30T22:35:44.058Z
+updated: 2024-11-05T00:24:28.022Z
 tags:
   - ai video
   - ai snapchat
@@ -55,6 +55,13 @@ Create Your Own Lens is great when you are going to a special event, birthday pa
 
 ![lens studio snapchat](https://images.wondershare.com/filmora/article-images/len-studio-snapchat.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How to Use Lens Studio
 
 #### 1\. Download Lens Studio
@@ -70,10 +77,10 @@ There is also a Lens Studio Overview guide that you can access online, which wil
 ![lens studio templates](https://images.wondershare.com/filmora/article-images/lens-studio-templates.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105877/7443" target="_top" id="2105877">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105877" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144309/7443" target="_top" id="2144309">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144309" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105877/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144309/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### 3\. Use Studio Panels
@@ -83,13 +90,6 @@ Are you ready to create your own custom Snapchat lens? It is time to head over t
 There are other tools accessible from the Resources panel. You can use these tools to ensure that your Snapchat lens is exactly as you want.
 
 ![lens studio panel](https://images.wondershare.com/filmora/article-images/lens-studio-panal.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### 4\. Preview the Snapchat Lens You Create
 
@@ -104,22 +104,21 @@ The great thing about this application is that you can preview the lens before y
 
 ![create snapchat](https://images.wondershare.com/filmora/article-images/create-snapchat.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111995/7443" target="_top" id="2111995">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111995" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111995/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 It is all up to your imagination. You can create the perfect Snapchat lens, which you can then send into your Snapchat account through your Snapcode. Of course, if you are using your iOS device to create the lens, it is already linked to your account.
 
 Another cool feature is how you can set the location for where the Snapchat lens is available. Say you are hosting a party. You can have the Snapchat lens available to everyone who uses Snapchat within a set square footage of your home. That is an amazing way to let everyone share social media pictures and photos of your party, through the lens you created.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/1062450/7443" target="_top" id="1062450">
-  <img src="//a.impactradius-go.com/display-ad/7443-1062450" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062450/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1938136">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -127,6 +126,13 @@ Another cool feature is how you can set the location for where the Snapchat lens
 Creating Snapchat lenses has never been easier. Whether you are a business looking to add a custom lens, or you just want to create a fun lens for a graduation or party, there are tools that make the job very easy. Using these tools will allow you to create the perfect Snapchat lens for any occasion.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -143,16 +149,24 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-elevating-success-channel-ideas-to-spark-momentum/"><u>[New] 2024 Approved Elevating Success Channel Ideas to Spark Momentum</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-youtube-channel-art-how-to-make-banners-icons-and-thumbnails/"><u>[Updated] YouTube Channel Art How to Make Banners, Icons, and Thumbnails?</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/2024-approved-exploring-jujutsu-kaisen-through-creative-tiktok-content/"><u>2024 Approved Exploring Jujutsu Kaisen Through Creative TikTok Content</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/2024-approved-mystical-environments-transforming-spaces-with-anime-on-tiktok/"><u>2024 Approved Mystical Environments Transforming Spaces with Anime on TikTok</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/advanced-editing-for-professional-photographers-time-stamping-tactics-for-2024/"><u>Advanced Editing for Professional Photographers Time-Stamping Tactics for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/in-2024-how-to-delete-a-tiktok-account-permanently/"><u>In 2024, How to Delete a TikTok Account Permanently?</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/in-2024-ultimate-5-minute-timelapse-video-maker/"><u>In 2024, Ultimate 5-Minute Timelapse Video Maker</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/innovative-programming-enhancements-without-chatgpt/"><u>Innovative Programming Enhancements Without ChatGPT</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/leading-the-charge-top-15-influencers-for-your-drive-for-2024/"><u>Leading the Charge Top 15 Influencers for Your Drive for 2024</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/pattern-locks-are-unsafe-secure-your-itel-a70-phone-now-with-these-tips-by-drfone-android/"><u>Pattern Locks Are Unsafe Secure Your Itel A70 Phone Now with These Tips</u></a></li>
-<li><a href="https://windows11.techidaily.com/tackle-vbox-setup-head-on-devices-and-deps-first/"><u>Tackle VBox Setup Head-On: Devices and Deps First</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-how-to-speed-up-tiktok-videos-simple-guide/"><u>[New] 2024 Approved How to Speed Up TikTok Videos? [Simple Guide]</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-instagrams-visual-rhythm-mastering-the-slow-motion-balance/"><u>[New] 2024 Approved Instagram's Visual Rhythm Mastering the Slow-Motion Balance</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ow-to-add-timestamps-on-youtube-video-link/"><u>[New] How to Add Timestamps on YouTube Video Link?</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-essential-tips-for-computer-users-to-start-tiktok-live/"><u>[New] In 2024, Essential Tips for Computer Users to Start TikTok LIVE</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/nleashing-potential-strategic-hashtags-for-video-success-for-2024/"><u>[New] Unleashing Potential Strategic Hashtags for Video Success for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-become-a-pro-voiceovers-on-tiktok/"><u>[Updated] 2024 Approved Become a Pro Voiceovers on TikTok</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-pro-video-essentials-the-finest-portable-laptop-brands/"><u>[Updated] 2024 Approved Pro Video Essentials The Finest Portable Laptop Brands</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-integrating-words-in-tiktok-videos-made-simple/"><u>[Updated] Integrating Words in TikTok Videos Made Simple</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-engaging-audiences-with-jujutsu-kaisen-tiktok-content/"><u>2024 Approved Engaging Audiences with Jujutsu Kaisen TikTok Content</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-innovations-in-youtube-video-editing-software-reviewed/"><u>2024 Approved Innovations in YouTube Video Editing Software Reviewed</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-mastering-visual-storytelling-captioning-for-tiktok-videos/"><u>2024 Approved Mastering Visual Storytelling Captioning for TikTok Videos</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-singing-siblings-shine-on-tiktok/"><u>2024 Approved Singing Siblings Shine on TikTok</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/deathloop-continues-to-crash-follow-these-quick-steps-for-a-stable-gaming-experience-on-pc/"><u>Deathloop Continues to Crash? Follow These Quick Steps for a Stable Gaming Experience on PC</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-do-i-stop-someone-from-tracking-my-zte-nubia-flip-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How Do I Stop Someone From Tracking My ZTE Nubia Flip 5G? | Dr.fone</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/in-2024-identify-applause-acoustic-marker/"><u>In 2024, Identify Applause Acoustic Marker</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/in-2024-perfect-your-projects-topimarker-for-iphone-and-android/"><u>In 2024, Perfect Your Projects TopiMarker for iPhone & Android</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-the-ultimate-list-top-10-glitch-video-editing-apps-for-mobile-creatives/"><u>New The Ultimate List Top 10 Glitch Video Editing Apps for Mobile Creatives</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/secrets-of-creating-a-bespoke-tiktok-hashtag/"><u>Secrets of Creating a Bespoke TikTok Hashtag</u></a></li>
+<li><a href="https://win-bytes.techidaily.com/ultimate-guide-to-choosing-the-ideal-mpeg/"><u>Ultimate Guide to Choosing the Ideal MPEG-</u></a></li>
 </ul></div>
 

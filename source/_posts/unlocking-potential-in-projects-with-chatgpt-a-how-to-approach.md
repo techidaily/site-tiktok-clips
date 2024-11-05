@@ -1,7 +1,7 @@
 ---
 title: Unlocking Potential in Projects with ChatGPT - A How-To Approach
-date: 2024-10-23T03:58:03.338Z
-updated: 2024-10-29T21:46:53.665Z
+date: 2024-11-01T18:48:18.758Z
+updated: 2024-11-04T19:00:54.289Z
 tags:
   - chatgpt
   - open-ai
@@ -35,6 +35,13 @@ thumbnail: https://thmb.techidaily.com/2546a6e6db1c838a1a7b59103067ea8f9dccc09f3
 
 **Download:** WebChatGPT for[Chrome](https://chrome.google.com/webstore/detail/chatgpt-advanced/lpfemeioodjbpieminkklglpmhlngfcn) |[Firefox](https://addons.mozilla.org/en-US/firefox/addon/web-chatgpt/) (Free)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. ChatGPT Prompt Genius
 
  ChatGPT can seem magical when you see screenshots of some of the answers it gives people. But those screenshots don't show the prompts users have typed to make ChatGPT better. Like[learning the best Google search operators](https://www.makeuseof.com/tag/best-google-search-tips-pdf/) , you need to know how to frame the right prompts for ChatGPT. And this extension can help.
@@ -65,19 +72,6 @@ thumbnail: https://thmb.techidaily.com/2546a6e6db1c838a1a7b59103067ea8f9dccc09f3
 
 **Download:** ChatGPT Writer for[Chrome](https://chrome.google.com/webstore/detail/chatgpt-writer-write-mail/pdnenlnelpdomajfejgapbdpmjkfpjkp/) (Free)
 
-<!-- affiliate ads begin -->
-<span id="1516072">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 4\. YouTube Summary With ChatGPT
 
  YouTube creators have the option to add a transcript of their full video or not. As a user, you have no control over this. Many times, all you want is a transcript to quickly browse through what the video is going to say so that you can know if it's worth your time.
@@ -88,6 +82,13 @@ thumbnail: https://thmb.techidaily.com/2546a6e6db1c838a1a7b59103067ea8f9dccc09f3
 
 ![using the 'transcript and summary box' from youtube summary extension](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/youtube-summary-extension.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  The extension also has a button to view an AI-generated summary of the video. Clicking this takes you to ChatGPT, with the transcript already typed in the prompt. All you have to do now is prompt ChatGPT to summarize the text, and you'll get an instant summary.
 
  You can also add further prompts for more details regarding specific parts of the video without having to watch the full thing.
@@ -95,10 +96,10 @@ thumbnail: https://thmb.techidaily.com/2546a6e6db1c838a1a7b59103067ea8f9dccc09f3
 **Download:** YouTube Summary With ChatGPT for[Chrome](https://chrome.google.com/webstore/detail/youtube-summary-with-chat/nmmicjeknamkfloonkhhcjmomieiodli) |[Safari](https://apps.apple.com/us/app/glasp-social-web-highlighter/id1605690124) (Free)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2047351/19272" target="_top" id="2047351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047351" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047351/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 5\. Talk-to-ChatGPT
@@ -119,16 +120,22 @@ thumbnail: https://thmb.techidaily.com/2546a6e6db1c838a1a7b59103067ea8f9dccc09f3
 
 **Download:** ChatGPT for Search Engines for[Chrome](https://chrome.google.com/webstore/detail/chatgpt-for-search-engine/feeonheemodpkdckaljcjogdncpiiban/) |[Firefox](https://addons.mozilla.org/en-US/firefox/addon/chatgpt-for-search-engines/) |[Edge](https://microsoftedge.microsoft.com/addons/detail/chatgpt-for-search-engine/pnglghgjhaklojnjpkhcdidgalehmkbn) (Free)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135369/19272" target="_top" id="2135369">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135369" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135369/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 7\. Perplexity AI
 
 ![query answers by perplexity ai extension](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/perplexity-ai.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1975562">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  The decentralization of information and knowledge has done much good in recent years. But, like anything in tech, it carries an ugly side to it, too. The rise of fake news and misinformation, for instance, is one of its biggest unwanted by-products.
 
@@ -137,13 +144,6 @@ thumbnail: https://thmb.techidaily.com/2546a6e6db1c838a1a7b59103067ea8f9dccc09f3
  While the tool summarizes the information in a neat manner, it ends the answers with a quick mention of the best, legitimate sources. And while there's still a possibility of fault here (you'd still need to rely on the sources that Perplexity provides), we believe it's much better than going in blind with the usual, source-less responses you'd otherwise gotten from ChatGPT.
 
 **Download:** Perplexity AI for[Chrome](https://chrome.google.com/webstore/detail/perplexity-ai-companion/hlgbcneanomplepojfcnclggenpcoldo) (Free)
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1006793/11832" target="_top" id="1006793">
-  <img src="//a.impactradius-go.com/display-ad/11832-1006793" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1006793/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## ChatGPT Is Awesome, But Be Realistic…
 
@@ -166,16 +166,20 @@ thumbnail: https://thmb.techidaily.com/2546a6e6db1c838a1a7b59103067ea8f9dccc09f3
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-clips.techidaily.com/new-how-to-join-someones-live-on-tiktok-as-a-guest/"><u>[New] How To Join Someone’s Live on TikTok as a Guest</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-techniques-for-live-broadcasting-recorded-videographies-on-fb/"><u>[Updated] 2024 Approved Techniques for Live Broadcasting Recorded Videographies on FB</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-inside-stardust-an-extensive-exploration-of-stardew-valley-with-a-focus-on-its-enigmatic-island-ginger-isle/"><u>[Updated] In 2024, Inside Stardust An Extensive Exploration of Stardew Valley with a Focus on Its Enigmatic Island - Ginger Isle</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/updated-in-2024-making-the-invisible-audible-fixes-for-tweeted-videos/"><u>[Updated] In 2024, Making the Invisible Audible Fixes for Tweeted Videos</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-the-complete-tiktok-user-manual-for-pc-and-apple-devices/"><u>[Updated] In 2024, The Complete TikTok User Manual for PC & Apple Devices</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/25-animated-visionaries-shaping-tiktok-trends-for-2024/"><u>25 Animated Visionaries Shaping TikTok Trends for 2024</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-retrieve-lost-contacts-from-narzo-60x-5g-by-fonelab-android-recover-contacts/"><u>Best Android Data Recovery - Retrieve Lost Contacts from Narzo 60x 5G.</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/captivating-content-conquerors-manual-for-stellar-tiktok-reactions-with-filmora/"><u>Captivating Content Conqueror’s Manual for Stellar TikTok Reactions with Filmora</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/implementing-custom-overlays-in-youtube-videos-for-2024/"><u>Implementing Custom Overlays in YouTube Videos for 2024</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/streamsmart-beyond-the-dacast-shell/"><u>StreamSmart Beyond the DaCast Shell</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/1722051457725-to-use-or-not-to-use-a-localized-legal-expert-system-weighing-your-options/"><u>To Use or Not to Use a Localized Legal Expert System? Weighing Your Options!</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-ensuring-privacy-4-steps-to-safely-log-fb-calls/"><u>[New] Ensuring Privacy 4 Steps to Safely Log FB Calls</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-rapid-rise-how-to-transform-your-tiktok-images-dramatically/"><u>[New] Rapid Rise How to Transform Your TikTok Images Dramatically</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-cutting-edge-anime-ideas-dominating-social-media-screens/"><u>[Updated] Cutting-Edge Anime Ideas Dominating Social Media Screens</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-foodie-festivals-viral-virtues-of-tiktok-meals/"><u>[Updated] Foodie Festivals Viral Virtues of TikTok Meals</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-the-ultimate-macos-manual-for-ootd-videographers/"><u>[Updated] The Ultimate MacOS Manual for OOTD Videographers</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-grasping-the-nuances-in-youtube-viewer-reactions/"><u>2024 Approved Grasping the Nuances in YouTube Viewer Reactions</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-top-11-strategies-for-boosting-your-youtube-videos-visibility/"><u>2024 Approved Top 11 Strategies for Boosting Your YouTube Videos' Visibility</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/composing-a-catchy-tiktok-epilogue/"><u>Composing a Catchy TikTok Epilogue</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/create-memorable-videos-with-the-right-thumbnail-font-for-2024/"><u>Create Memorable Videos with the Right Thumbnail Font for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/engineering-a-standout-tiktok-endcap/"><u>Engineering A Standout TikTok Endcap</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-whatsapp-from-apple-iphone-xs-max-to-other-iphone-11-pro-max-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From Apple iPhone XS Max to other iPhone 11 Pro Max devices? | Dr.fone</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/in-2024-4-proven-strategies-to-add-big-heads-in-your-tiktok-vfx-3-ways/"><u>In 2024, 4 Proven Strategies to Add Big Heads in Your TikTok VFX (3 Ways)</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-high-definition-showdown-projection-systems-versus-tv-in-4k-world/"><u>In 2024, High-Definition Showdown Projection Systems versus TV in 4K World</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-screensnapper-summit-the-ultimate-guide-to-capturing/"><u>In 2024, ScreenSnapper Summit The Ultimate Guide to Capturing</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/nier-shadow-complexes-how-to-stop-game-crashes-and-play-smoothly/"><u>NieR: Shadow Complexes - How to Stop Game Crashes and Play Smoothly</u></a></li>
 </ul></div>
 
