@@ -1,7 +1,7 @@
 ---
 title: Unlocking Potential in Projects with ChatGPT - A How-To Approach
-date: 2024-11-01T18:48:18.758Z
-updated: 2024-11-04T19:00:54.289Z
+date: 2024-11-11T19:42:55.981Z
+updated: 2024-11-15T01:53:22.784Z
 tags:
   - chatgpt
   - open-ai
@@ -36,10 +36,10 @@ thumbnail: https://thmb.techidaily.com/2546a6e6db1c838a1a7b59103067ea8f9dccc09f3
 **Download:** WebChatGPT for[Chrome](https://chrome.google.com/webstore/detail/chatgpt-advanced/lpfemeioodjbpieminkklglpmhlngfcn) |[Firefox](https://addons.mozilla.org/en-US/firefox/addon/web-chatgpt/) (Free)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082542/7443" target="_top" id="2082542">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082542" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082542/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 2\. ChatGPT Prompt Genius
@@ -83,10 +83,10 @@ thumbnail: https://thmb.techidaily.com/2546a6e6db1c838a1a7b59103067ea8f9dccc09f3
 ![using the 'transcript and summary box' from youtube summary extension](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/youtube-summary-extension.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902304/19272" target="_top" id="1902304">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902304" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902304/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  The extension also has a button to view an AI-generated summary of the video. Clicking this takes you to ChatGPT, with the transcript already typed in the prompt. All you have to do now is prompt ChatGPT to summarize the text, and you'll get an instant summary.
@@ -94,13 +94,6 @@ thumbnail: https://thmb.techidaily.com/2546a6e6db1c838a1a7b59103067ea8f9dccc09f3
  You can also add further prompts for more details regarding specific parts of the video without having to watch the full thing.
 
 **Download:** YouTube Summary With ChatGPT for[Chrome](https://chrome.google.com/webstore/detail/youtube-summary-with-chat/nmmicjeknamkfloonkhhcjmomieiodli) |[Safari](https://apps.apple.com/us/app/glasp-social-web-highlighter/id1605690124) (Free)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047351/19272" target="_top" id="2047351">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047351" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047351/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 5\. Talk-to-ChatGPT
 
@@ -120,22 +113,16 @@ thumbnail: https://thmb.techidaily.com/2546a6e6db1c838a1a7b59103067ea8f9dccc09f3
 
 **Download:** ChatGPT for Search Engines for[Chrome](https://chrome.google.com/webstore/detail/chatgpt-for-search-engine/feeonheemodpkdckaljcjogdncpiiban/) |[Firefox](https://addons.mozilla.org/en-US/firefox/addon/chatgpt-for-search-engines/) |[Edge](https://microsoftedge.microsoft.com/addons/detail/chatgpt-for-search-engine/pnglghgjhaklojnjpkhcdidgalehmkbn) (Free)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896527/19272" target="_top" id="1896527">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896527" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896527/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 7\. Perplexity AI
 
 ![query answers by perplexity ai extension](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/perplexity-ai.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1975562">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  The decentralization of information and knowledge has done much good in recent years. But, like anything in tech, it carries an ugly side to it, too. The rise of fake news and misinformation, for instance, is one of its biggest unwanted by-products.
 
@@ -144,6 +131,13 @@ thumbnail: https://thmb.techidaily.com/2546a6e6db1c838a1a7b59103067ea8f9dccc09f3
  While the tool summarizes the information in a neat manner, it ends the answers with a quick mention of the best, legitimate sources. And while there's still a possibility of fault here (you'd still need to rely on the sources that Perplexity provides), we believe it's much better than going in blind with the usual, source-less responses you'd otherwise gotten from ChatGPT.
 
 **Download:** Perplexity AI for[Chrome](https://chrome.google.com/webstore/detail/perplexity-ai-companion/hlgbcneanomplepojfcnclggenpcoldo) (Free)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012401/19272" target="_top" id="2012401">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012401" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012401/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## ChatGPT Is Awesome, But Be Realistic…
 
@@ -166,20 +160,21 @@ thumbnail: https://thmb.techidaily.com/2546a6e6db1c838a1a7b59103067ea8f9dccc09f3
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-ensuring-privacy-4-steps-to-safely-log-fb-calls/"><u>[New] Ensuring Privacy 4 Steps to Safely Log FB Calls</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-rapid-rise-how-to-transform-your-tiktok-images-dramatically/"><u>[New] Rapid Rise How to Transform Your TikTok Images Dramatically</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-cutting-edge-anime-ideas-dominating-social-media-screens/"><u>[Updated] Cutting-Edge Anime Ideas Dominating Social Media Screens</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-foodie-festivals-viral-virtues-of-tiktok-meals/"><u>[Updated] Foodie Festivals Viral Virtues of TikTok Meals</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-the-ultimate-macos-manual-for-ootd-videographers/"><u>[Updated] The Ultimate MacOS Manual for OOTD Videographers</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-grasping-the-nuances-in-youtube-viewer-reactions/"><u>2024 Approved Grasping the Nuances in YouTube Viewer Reactions</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-top-11-strategies-for-boosting-your-youtube-videos-visibility/"><u>2024 Approved Top 11 Strategies for Boosting Your YouTube Videos' Visibility</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/composing-a-catchy-tiktok-epilogue/"><u>Composing a Catchy TikTok Epilogue</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/create-memorable-videos-with-the-right-thumbnail-font-for-2024/"><u>Create Memorable Videos with the Right Thumbnail Font for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/engineering-a-standout-tiktok-endcap/"><u>Engineering A Standout TikTok Endcap</u></a></li>
-<li><a href="https://techidaily.com/how-to-transfer-whatsapp-from-apple-iphone-xs-max-to-other-iphone-11-pro-max-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From Apple iPhone XS Max to other iPhone 11 Pro Max devices? | Dr.fone</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/in-2024-4-proven-strategies-to-add-big-heads-in-your-tiktok-vfx-3-ways/"><u>In 2024, 4 Proven Strategies to Add Big Heads in Your TikTok VFX (3 Ways)</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-high-definition-showdown-projection-systems-versus-tv-in-4k-world/"><u>In 2024, High-Definition Showdown Projection Systems versus TV in 4K World</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/in-2024-screensnapper-summit-the-ultimate-guide-to-capturing/"><u>In 2024, ScreenSnapper Summit The Ultimate Guide to Capturing</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/nier-shadow-complexes-how-to-stop-game-crashes-and-play-smoothly/"><u>NieR: Shadow Complexes - How to Stop Game Crashes and Play Smoothly</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-avoid-breaches-the-pre-upload-guide-to-copyright-on-tiktok-for-2024/"><u>[New] Avoid Breaches The Pre-Upload Guide to Copyright on TikTok for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-integrating-words-in-tiktok-videos-made-simple/"><u>[New] Integrating Words in TikTok Videos Made Simple</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-secure-your-facetime-discussions-with-screen-record-for-2024/"><u>[New] Secure Your FaceTime Discussions with Screen Record for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-2024-approved-a-complete-guide-to-using-vlc-mac-edition-highlights/"><u>[Updated] 2024 Approved A Complete Guide to Using VLC Mac Edition Highlights</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-integrating-youtube-into-your-imovie-projects/"><u>[Updated] 2024 Approved Integrating YouTube Into Your iMovie Projects</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-facebooks-favorites-top-10-viral-music-videos-guide-for-2024/"><u>[Updated] Facebook's Favorites TOP 10 Viral Music Videos Guide for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-prevent-plagiarism-copyright-check-for-uploading-videos-2e/"><u>[Updated] In 2024, Prevent Plagiarism Copyright Check for Uploading Videos (2E)</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-jujutsu-kaisens-tiktok-a-creative-journey-for-2024/"><u>[Updated] Jujutsu Kaisen's TikTok A Creative Journey for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-srt-revelation-transforming-computer-performance/"><u>[Updated] SRT Revelation Transforming Computer Performance</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-strategically-showcasing-achievements/"><u>[Updated] Strategically Showcasing Achievements</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-unlocking-the-power-of-photo-editing-in-ps-novice-style/"><u>[Updated] Unlocking the Power of Photo Editing in PS, Novice Style</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/150plus-top-rated-tiktok-inspirational-phrases/"><u>150+ Top-Rated TikTok Inspirational Phrases</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-accelerating-your-tiktok-content-a-quick-guide/"><u>2024 Approved Accelerating Your TikTok Content A Quick Guide</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/craft-your-masterpiece-on-tiktok-adding-professional-voiceovers-for-2024/"><u>Craft Your Masterpiece on TikTok Adding Professional Voiceovers for 2024</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211330467-9780063014589-good-mourning/"><u>Good Mourning | Free Book</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-any-realme-v30-phone-password-using-emergency-call-by-drfone-android/"><u>How To Unlock Any Realme V30 Phone Password Using Emergency Call</u></a></li>
 </ul></div>
 
