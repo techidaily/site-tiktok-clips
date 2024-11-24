@@ -1,7 +1,7 @@
 ---
 title: Innovative, Silent 'Future Retro'-Styled Mini PC Utilizing Next-Gen USB4 Technology & SSD Storage Arrays
-date: 2024-11-08T17:37:57.025Z
-updated: 2024-11-14T18:19:24.694Z
+date: 2024-11-23T16:06:52.905Z
+updated: 2024-11-24T16:30:10.377Z
 tags:
   - desktop
 categories:
@@ -31,6 +31,10 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
 
  The Turbo Mini X is loaded with ports, including a 10 Gbps USB-C port that can output 45 watts for charging, a 20 Gbps USB-C port and 5 USB Type-A ports. But what's most interesting is a proprietary port that connects to the Mini Maker StreamPlay X External Graphics Box, which is sold separately. The port uses USB-C, but according to Mini Maker, it enables a direct PCIe connection which is faster than what you get when using Thunderbolt 4 to connect a laptop to an after-market eGPU like the Razer Core X.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
 
  Get Tom's Hardware's best news and in-depth reviews, straight to your inbox.
@@ -45,6 +49,10 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
 
 ![Mini Maker StreamPlay X Cable](https://cdn.mos.cms.futurecdn.net/7PWKa2qagFoGCQJ7GH9t5H-320-80.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  (Image credit: Tom's Hardware)
 
  The StreamPlay X is a remarkably compact eGPU, but an attractive one. It allows you to see your card through a wrap-around plastic window and it has a case fan to help cool your graphics card. The device is available with different power supply capacities: 250, 350 or 400 watts.
@@ -52,6 +60,10 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
  At the upper end of this power envelope, you could probably run an RTX 4080\. You'd probably need an adapter as there are two 8-pin connectors, but no 16-pin. The top, which has some air holes, easily pops off to allow you to install your card.
 
 ![Mini Maker StreamPlay X](https://cdn.mos.cms.futurecdn.net/bofwgvfDKpeYqVAheTShC9-320-80.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  (Image credit: Tom's Hardware)
 
@@ -76,29 +88,16 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-spinning-jujutsu-kaisen-stories-on-tiktok/"><u>[New] 2024 Approved Spinning Jujutsu Kaisen Stories on TikTok</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-sweets-and-snacks-tiktoks-top-food-trends/"><u>[New] 2024 Approved Sweets & Snacks TikTok's Top Food Trends</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-the-process-to-pinpoint-a-personalized-identifier-for-tiktok/"><u>[New] 2024 Approved The Process to Pinpoint a Personalized Identifier for TikTok</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-top-20-tiktok-anime-ideas/"><u>[New] 2024 Approved Top 20 TikTok Anime Ideas</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-how-to-optimize-video-engagement-through-resizing-thumbnails-on-youtube/"><u>[New] In 2024, How to Optimize Video Engagement Through Resizing Thumbnails on YouTube</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-securing-your-anonymity-during-instagrams-live-feature/"><u>[Updated] 2024 Approved Securing Your Anonymity During Instagram's Live Feature</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-the-casual-entrants-handbook-for-tiktok-lives/"><u>[Updated] 2024 Approved The Casual Entrant's Handbook for TikTok Lives</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/updated-blend-photos-effortlessly-in-real-time/"><u>[Updated] Blend Photos Effortlessly in Real-Time</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-feast-your-senses-15-must-try-tiktok-meal-ideas-for-2024/"><u>[Updated] Feast Your Senses 15 Must-Try TikTok Meal Ideas for 2024</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/a-comprehensive-walkthrough-enabling-and-disabling-your-on-screen-keyboard-on-windows-nx/"><u>A Comprehensive Walkthrough: Enabling and Disabling Your On-Screen Keyboard on Windows nX</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/1723212530010-endless-blinking-cursor-learn-how-to-make-it-disappear-now/"><u>Endless Blinking Cursor? Learn How to Make It Disappear Now!</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-3-ways-to-change-location-on-facebook-marketplace-for-oppo-reno-8t-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Change Location on Facebook Marketplace for Oppo Reno 8T 5G | Dr.fone</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-in-depth-analysis-selecting-the-leading-5-virtual-title-experts/"><u>In 2024, In-Depth Analysis Selecting the Leading 5 Virtual Title Experts</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/in-2024-the-leading-free-online-screencasting-solutions/"><u>In 2024, The Leading Free Online Screencasting Solutions</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/jumpstart-your-snapchat-learn-to-create-top-boomers/"><u>Jumpstart Your Snapchat Learn to Create Top Boomers</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/master-the-art-of-typing-to-textual-excellence-in-word/"><u>Master the Art of Typing to Textual Excellence in Word</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/navigating-teamsnap-photo-functions-for-effective-collaboration/"><u>Navigating TeamSnap Photo Functions for Effective Collaboration</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-mastering-tiktoks-siri-speech-functionality/"><u>[New] In 2024, Mastering TikTok's Siri Speech Functionality</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-the-art-of-making-videos-go-viral-on-tiktok-with-these-quotes-for-2024/"><u>[New] The Art of Making Videos Go Viral on TikTok with These Quotes for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-from-concept-to-completion-an-instagram-video-strategy-manual-for-2024/"><u>[Updated] From Concept to Completion An Instagram Video Strategy Manual for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/drafting-an-emotional-tiktok-conclusion-for-2024/"><u>Drafting an Emotional TikTok Conclusion for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/illustrators-secret-creating-seamless-image-movement-for-2024/"><u>Illustrator's Secret Creating Seamless Image Movement for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/in-2024-composing-an-emotive-tiktok-finale-statement/"><u>In 2024, Composing An Emotive TikTok Finale Statement</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-the-10-best-tools-to-bypass-icloud-activation-lock-from-apple-iphone-15-pro-max-you-should-try-out-by-drfone-ios/"><u>In 2024, The 10 Best Tools to Bypass iCloud Activation Lock From Apple iPhone 15 Pro Max You Should Try Out</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/microsoft-sculpt-ergonomic-keyboard-driver-update-easily/"><u>Microsoft Sculpt Ergonomic Keyboard Driver Update Easily</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-key-to-successful-business-growth-with-facebook-clients/"><u>The Key to Successful Business Growth with Facebook Clients</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/troubleshooting-iphone-wont-connect-to-mobile-data-post-ios-update-1721-expert-solutions-from-zdnet/"><u>Troubleshooting: IPhone Won't Connect to Mobile Data Post-iOS Update 17.2.1? Expert Solutions From ZDNet</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/ultimate-guide-why-apples-201e-ipad-pro-11-inch-is-still-top-of-its-class/"><u>Ultimate Guide: Why Apple's 201E iPad Pro 11-Inch Is Still Top of Its Class</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144298/7443" target="_top" id="2144298">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144298" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144298/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

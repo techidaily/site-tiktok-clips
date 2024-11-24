@@ -1,7 +1,7 @@
 ---
 title: "Carry Unprecedented Storage Power Anywhere: Discover the Briefcase Housing 368TB of NVMe SSDs and Advanced Tech Specs"
-date: 2024-11-10T06:26:07.706Z
-updated: 2024-11-15T02:01:23.723Z
+date: 2024-11-18T16:26:14.935Z
+updated: 2024-11-24T16:41:49.393Z
 tags:
   - desktop
 categories:
@@ -47,6 +47,10 @@ Ordinary canned air products shoot out jets of gas with a surprising amount of v
 
  In tests, the canned air soon ran out of pressure between bursts, but more consistent shock diamonds were pictured from the nozzle of an air compressor (90 PSI). However, the YouTuber's favorite demo was delivered using the ball pump nozzle on the air compressor hose. Have a look through the gallery above for some of the great shock diamonds emitted from the canned air and various nozzles attached to a shop compressor.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
 
  Get Tom's Hardware's best news and in-depth reviews, straight to your inbox.
@@ -70,24 +74,24 @@ Ordinary canned air products shoot out jets of gas with a surprising amount of v
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-clips.techidaily.com/new-computerized-creativity-unleashed-steps-to-initiate-a-live-show-on-tiktok-for-2024/"><u>[New] Computerized Creativity Unleashed Steps to Initiate a Live Show on TikTok for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-mastering-video-directing-the-complete-powerdirector-2024-review/"><u>[New] Mastering Video Directing The Complete PowerDirector 2024 Review</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-secrets-unveiled-the-top-10-for-dominating-in-tiktok-marketing-for-2024/"><u>[New] Secrets Unveiled The Top 10 for Dominating in TikTok Marketing for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-2024-approved-harness-the-power-of-windows-photos-and-story-remix-for-editing/"><u>[Updated] 2024 Approved Harness the Power of Windows Photos & Story Remix for Editing</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-cutting-edge-anime-ideas-dominating-social-media-screens/"><u>[Updated] Cutting-Edge Anime Ideas Dominating Social Media Screens</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-high-fidelity-avi-player-for-portable-and-stationary-use/"><u>[Updated] In 2024, High-Fidelity AVI Player for Portable & Stationary Use</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-unlocking-video-potential-essential-courses-for-new-creators/"><u>[Updated] In 2024, Unlocking Video Potential Essential Courses for New Creators</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/2024-approved-the-thread-of-thought-sharing-sewing-skills-with-tiktokers/"><u>2024 Approved The Thread of Thought Sharing Sewing Skills with TikTokers</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/composing-a-catchy-tiktok-epilogue/"><u>Composing a Catchy TikTok Epilogue</u></a></li>
-<li><a href="https://fox-http.techidaily.com/enhance-your-editing-with-fcps-top-10-plugins/"><u>Enhance Your Editing with FCP's Top 10 Plugins</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/the-clones-playbook-secrets-to-mirror-success-on-the-tiktok-sphere-for-2024/"><u>The Clone's Playbook Secrets to Mirror Success on the TikTok Sphere for 2024</u></a></li>
-<li><a href="https://common-error.techidaily.com/ultimate-guide-solving-the-mystery-of-persistent-usb-disconnections/"><u>Ultimate Guide: Solving the Mystery of Persistent USB Disconnections</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-crafting-a-standout-identifier-for-your-tiktok-stream/"><u>[New] 2024 Approved Crafting a Standout Identifier for Your TikTok Stream</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-streamline-screen-recording-for-gaming-joy/"><u>[New] 2024 Approved Streamline Screen Recording for Gaming Joy</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-top-5-must-know-aspects-of-using-tiktok-macos-for-2024/"><u>[New] Top 5 Must-Know Aspects of Using TikTok (macOS) for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-producing-an-expressive-tiktok-conclusion-snippet/"><u>[Updated] 2024 Approved Producing an Expressive TikTok Conclusion Snippet</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-your-ultimate-guide-to-deciphering-tiktoks-pfp-emoji/"><u>[Updated] 2024 Approved Your Ultimate Guide to Deciphering TikTok's PFP Emoji</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-captivating-audiences-on-tiktok-by-blending-sound-and-sight/"><u>[Updated] In 2024, Captivating Audiences on TikTok by Blending Sound and Sight</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-mastering-pre-upload-tiktoks-copyright-guidelines/"><u>[Updated] In 2024, Mastering Pre-Upload TikTok's Copyright Guidelines</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/a-compreenasion-of-siri-integration-into-tiktok-filmmaking/"><u>A Compreenasion of Siri Integration Into TikTok Filmmaking</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/can-i-bypass-a-forgotten-phone-password-of-itel-a70-by-drfone-android/"><u>Can I Bypass a Forgotten Phone Password Of Itel A70?</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/comprehensive-tiktok-video-upload-strategies-for-chrome-android-and-ios-users/"><u>Comprehensive TikTok Video Upload Strategies for Chrome, Android, and iOS Users</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/easy-guide-updating-your-amd-smbus-controller-drivers/"><u>Easy Guide: Updating Your AMD Smbus Controller Drivers</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/explore-the-finest-cost-free-videocalling-platforms-for-2024/"><u>Explore the Finest Cost-Free Videocalling Platforms for 2024</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-bypass-icloud-activation-lock-on-ipod-and-apple-iphone-se-2020-the-right-way-by-drfone-ios/"><u>How To Bypass iCloud Activation Lock On iPod and Apple iPhone SE (2020) The Right Way</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/how-to-do-transitions-on-inshot-video-editor-for-2024/"><u>How to Do Transitions on Inshot Video Editor for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-peaceful-playtimes-best-idle-gaming-choices/"><u>In 2024, Peaceful Playtimes Best Idle Gaming Choices</u></a></li>
+<li><a href="https://win-answers.techidaily.com/mastering-error-0x80f8001-a-step-by-step-guide-to-restoring-minecraft-launcher-on-windows-11-and-10/"><u>Mastering Error 0X80^F8001: A Step-by-Step Guide to Restoring Minecraft Launcher on Windows 11 and 10</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/quick-guide-integrating-snap-camera-with-teams/"><u>Quick Guide Integrating Snap Camera with Teams</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/ringtones-from-youtube-a-compilation-of-optimal-download-hubs-for-2024/"><u>Ringtones From YouTube A Compilation of Optimal Download Hubs for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/the-journey-of-drones-from-current-uses-to-future-applications/"><u>The Journey of Drones From Current Uses to Future Applications</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148638/16836" target="_top" id="2148638">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148638" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148638/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

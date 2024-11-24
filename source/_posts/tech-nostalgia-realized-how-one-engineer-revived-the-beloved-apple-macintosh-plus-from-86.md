@@ -1,7 +1,7 @@
 ---
 title: "Tech Nostalgia Realized: How One Engineer Revived the Beloved Apple Macintosh Plus From '86"
-date: 2024-11-13T02:43:02.227Z
-updated: 2024-11-14T18:30:35.595Z
+date: 2024-11-20T16:37:21.523Z
+updated: 2024-11-24T16:31:24.584Z
 tags:
   - desktop
 categories:
@@ -54,6 +54,10 @@ __Ayaneo Retro Mini PC AM01 Specification__
 
  That said, if Ayaneo's successful[Indiegogo campaign](https://www.indiegogo.com/projects/ayaneo-retro-mini-pc-creator-of-mini-pc-2-0-era#/) proved anything, it's that users are willing to pay for a fun retro design despite potential trade-offs —[nostalgia is always a great way](https://www.tomshardware.com/peripherals/mechanical-keyboards/grab-this-cool-retro-console-inspired-keyboard-for-just-dollar83) to get people to buy something.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
 
  Get Tom's Hardware's best news and in-depth reviews, straight to your inbox.
@@ -77,22 +81,18 @@ __Ayaneo Retro Mini PC AM01 Specification__
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-files.techidaily.com/new-2024-approved-premium-download-assist-ff-friendly-fb-addons/"><u>[New] 2024 Approved Premium Download Assist - FF-Friendly FB Addons</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-unveiling-the-secrets-of-superior-tiktok-captions-top-5-strategies/"><u>[New] 2024 Approved Unveiling the Secrets of Superior TikTok Captions (Top 5 Strategies)</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-crafting-chuckles-in-cyberspace-diy-memes-of-the-metaverse/"><u>[New] Crafting Chuckles in Cyberspace DIY Memes of the Metaverse</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/new-generate-laughter-giphys-art/"><u>[New] Generate Laughter Giphy's Art</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-effortless-enchantment-make-your-mark-with-striking-templates-for-tiktok/"><u>[New] In 2024, Effortless Enchantment Make Your Mark with Striking Templates for TikTok</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-pinpointing-your-unique-tiktok-tagline/"><u>[New] Pinpointing Your Unique TikTok Tagline</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-5-proven-techniques-for-live-streaming-on-tiktok-desktop/"><u>[Updated] 5 Proven Techniques for Live Streaming on TikTok Desktop</u></a></li>
-<li><a href="https://common-error.techidaily.com/aoc-monitor-malfunction-on-windows-10-solutions-for-a-fixed-display-issue/"><u>AOC Monitor Malfunction on Windows 10 - Solutions for a Fixed Display Issue</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/tive-ways-to-watch-multiple-youtube-videos-at-one-time/"><u>Effective Ways to Watch Multiple YouTube Videos at One Time</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-free-and-flexible-the-top-10-online-video-editors-without-watermark/"><u>In 2024, Free and Flexible The Top 10 Online Video Editors without Watermark</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-screenrec-for-lactops-your-step-by-step-guide/"><u>[New] ScreenRec for Lactops Your Step-by-Step Guide</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-beats-at-breakneck-speed-the-fastest-rising-tiktok-hits/"><u>[Updated] In 2024, Beats at Breakneck Speed The Fastest-Rising TikTok Hits</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-inspiring-tiktok-lyrics-to-boost-your-content/"><u>2024 Approved Inspiring TikTok Lyrics to Boost Your Content</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-mastering-complete-tiktok-deletion-process/"><u>2024 Approved Mastering Complete TikTok Deletion Process</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/3-solutions-to-find-your-motorola-defy-2-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>3 Solutions to Find Your Motorola Defy 2 Current Location of a Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/best-pokemons-for-pvp-matches-in-pokemon-go-for-poco-x5-drfone-by-drfone-virtual-android/"><u>Best Pokemons for PVP Matches in Pokemon Go For Poco X5 | Dr.fone</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/in-2024-streamline-your-tiktok-lives-4-essential-desktop-practices/"><u>In 2024, Streamline Your TikTok Lives 4 Essential Desktop Practices</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-the-best-ispoofer-alternative-to-try-on-vivo-v30-lite-5g-drfone-by-drfone-virtual-android/"><u>In 2024, The Best iSpoofer Alternative to Try On Vivo V30 Lite 5G | Dr.fone</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/in-2024-the-process-to-pinpoint-a-personalized-identifier-for-tiktok/"><u>In 2024, The Process to Pinpoint a Personalized Identifier for TikTok</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/maximize-account-performance-with-these-premier-tiktok-metrics/"><u>Maximize Account Performance with These Premier TikTok Metrics</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/solving-your-laptops-sound-problem-tips-and-solutions-for-a-quick-fix/"><u>Solving Your Laptop's Sound Problem: Tips & Solutions for a Quick Fix</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/step-by-step-guide-pairing-your-apple-airpods-with-a-windows-based-hp-computer/"><u>Step-by-Step Guide: Pairing Your Apple AirPods with a Windows-Based HP Computer</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/unified-tech-experience-windows-pc-and-galaxy-device-flow/"><u>Unified Tech Experience – Windows PC & Galaxy Device Flow</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043638/7443" target="_top" id="2043638">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043638" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043638/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

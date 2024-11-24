@@ -1,7 +1,7 @@
 ---
 title: "Compact Power Surge: AMD Ryzen NUC with a 4K Flip-Up Screen, Hexa-Core CPU & Up To 32GB RAM for Ultimate Productivity and Gaming Performance"
-date: 2024-11-08T21:21:12.530Z
-updated: 2024-11-14T19:53:45.680Z
+date: 2024-11-18T16:03:25.894Z
+updated: 2024-11-24T16:32:09.937Z
 tags:
   - desktop
 categories:
@@ -45,6 +45,10 @@ The Xyber Team launched its Xyber XPC Mini Desktop Computer campaign on[Indiegog
 
  We don’t have pricing information yet about the Xyber XPC, though, as it’s still in the campaign pre-launch stage. But the team behind the mini-PC Cybertruck says that they’re optimizing the BIOS and OS to get the best performance out of this small desktop computer.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
 
  Get Tom's Hardware's best news and in-depth reviews, straight to your inbox.
@@ -70,29 +74,21 @@ The Xyber Team launched its Xyber XPC Mini Desktop Computer campaign on[Indiegog
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-stream.techidaily.com/new-guide-to-incorited-visuals-in-text-without-cost/"><u>[New] Guide to Incorited Visuals in Text Without Cost</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/new-in-2024-from-novice-to-pro-your-discord-broadcast-journey/"><u>[New] In 2024, From Novice to Pro Your Discord Broadcast Journey</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-ipad-users-create-professional-time-lapse-videos-for-2024/"><u>[New] IPad Users Create Professional Time-Lapse Videos for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-unveiling-the-purpose-behind-facebooks-blue-emoji/"><u>[New] Unveiling the Purpose Behind Facebook's Blue Emoji</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-eating-the-trend-top-food-moments-on-tiktok/"><u>[Updated] 2024 Approved Eating the Trend Top Food Moments on TikTok</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-elevate-your-tiktok-presence-with-innovative-pfps/"><u>[Updated] Elevate Your TikTok Presence with Innovative PFPs</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-engage-broadly-embedding-twitch-videos-on-fb/"><u>[Updated] In 2024, Engage Broadly Embedding Twitch Videos on FB</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-essential-apps-for-cleaning-tiktok-video-logos/"><u>[Updated] In 2024, Essential Apps for Cleaning TikTok Video Logos</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-how-to-craft-standout-videos-mastery-of-youtube-thumbnail-dimensions/"><u>[Updated] In 2024, How to Craft Standout Videos Mastery of YouTube Thumbnail Dimensions</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-the-complete-roadmap-to-online-tiktok-streaming-from-desktop/"><u>[Updated] In 2024, The Complete Roadmap to Online TikTok Streaming From Desktop</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/2024-approved-enhancing-tiktok-metrics-with-innovative-and-memorable-usernames/"><u>2024 Approved Enhancing TikTok Metrics with Innovative and Memorable Usernames</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/can-you-unlock-apple-iphone-se-2022-after-forgetting-the-passcode-drfone-by-drfone-ios/"><u>Can You Unlock Apple iPhone SE (2022) After Forgetting the Passcode? | Dr.fone</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/embracing-whimsy-cartoon-face-magic-in-snapchat/"><u>Embracing Whimsy Cartoon Face Magic in Snapchat</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-how-to-delete-icloud-account-on-iphone-12-pro-max-without-password-by-drfone-ios/"><u>In 2024, How to Delete iCloud Account On iPhone 12 Pro Max without Password?</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/secrets-of-seamlessly-sharing-in-tiktok-livestreams-for-2024/"><u>Secrets of Seamlessly Sharing in TikTok Livestreams for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/snapchat-recovery-quickly-recover-photosvideos/"><u>Snapchat Recovery Quickly Recover Photos/Videos</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/unlocking-an-icloud-locked-ipad-and-apple-iphone-x-by-drfone-ios/"><u>Unlocking an iCloud Locked iPad and Apple iPhone X</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-avoid-frustration-correct-a-mistaken-tiktok-reset/"><u>[New] 2024 Approved Avoid Frustration – Correct a Mistaken TikTok Reset</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-crafting-a-symphony-of-sights-and-sounds-in-video/"><u>[New] Crafting a Symphony of Sights & Sounds in Video</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-taking-screenshots-on-mac-5-methods/"><u>[New] In 2024, Taking Screenshots on Mac [5 Methods]</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-revolutionizing-content-creation-the-insight-into-vimeos-capabilities/"><u>[New] Revolutionizing Content Creation The Insight Into Vimeo's Capabilities</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-unraveling-free-filter-treasures-through-instagrams-advanced-searches-for-2024/"><u>[New] Unraveling Free Filter Treasures Through Instagram’s Advanced Searches for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-50plus-impressive-tiktok-username-ideas-to-boost-more-views/"><u>[Updated] 50+ Impressive TikTok Username Ideas to Boost More Views</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-enhancing-tiktok-content-adding-speech-to-song-conversion-for-2024/"><u>[Updated] Enhancing TikTok Content Adding Speech-to-Song Conversion for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-foodie-festivals-viral-virtues-of-tiktok-meals/"><u>[Updated] In 2024, Foodie Festivals Viral Virtues of TikTok Meals</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-the-artisans-guide-to-tiktok-captions-top-5-craftsmanship-strategies-for-2024/"><u>[Updated] The Artisan's Guide to TikTok Captions Top 5 Craftsmanship Strategies for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-streamlined-webp-to-jpg-conversion-methods/"><u>2024 Approved Streamlined WebP to JPG Conversion Methods</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/crafting-compelling-content-strategies-for-snapbiz/"><u>Crafting Compelling Content Strategies for SnapBiz</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/embrace-cold-choosing-heated-backdrops-for-youtube/"><u>Embrace Cold Choosing Heated Backdrops for YouTube</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/guide-to-locating-vanished-eyes-only-images-on-snapchat/"><u>Guide to Locating Vanished Eyes-Only Images on Snapchat</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-data-from-iphone-13-pro-max-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>How To Recover Data from iPhone 13 Pro Max? | Dr.fone</u></a></li>
+<li><a href="https://win-extraordinary.techidaily.com/microsoft-teams/"><u>Microsoft Teamsで失われたファイルの回収手順</u></a></li>
+<li><a href="https://driver-error.techidaily.com/unblocking-stuck-usb-to-serial-connections/"><u>Unblocking Stuck USB to Serial Connections</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

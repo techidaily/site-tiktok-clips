@@ -1,7 +1,7 @@
 ---
 title: "Simplified Steps for Snapchat Lens Design"
-date: 2024-10-30T22:35:44.058Z
-updated: 2024-11-05T00:24:28.022Z
+date: 2024-11-18T16:04:52.081Z
+updated: 2024-11-24T16:44:14.062Z
 tags:
   - ai video
   - ai snapchat
@@ -55,13 +55,6 @@ Create Your Own Lens is great when you are going to a special event, birthday pa
 
 ![lens studio snapchat](https://images.wondershare.com/filmora/article-images/len-studio-snapchat.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: How to Use Lens Studio
 
 #### 1\. Download Lens Studio
@@ -77,10 +70,7 @@ There is also a Lens Studio Overview guide that you can access online, which wil
 ![lens studio templates](https://images.wondershare.com/filmora/article-images/lens-studio-templates.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144309/7443" target="_top" id="2144309">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144309" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144309/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 3\. Use Studio Panels
@@ -91,11 +81,19 @@ There are other tools accessible from the Resources panel. You can use these too
 
 ![lens studio panel](https://images.wondershare.com/filmora/article-images/lens-studio-panal.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 4\. Preview the Snapchat Lens You Create
 
 The great thing about this application is that you can preview the lens before you send it out to your phone. When you are satisfied with the image on the preview, you can pair your phone with the application, and you will be able to send that Snapchat lens onto your phone through your Snapcode. It is that simple!
 
 ![preview lens studio](https://images.wondershare.com/filmora/article-images/preview-snapchat.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: How to Create Snapchat Lenses Using Create Your Own Lens
 
@@ -104,22 +102,13 @@ The great thing about this application is that you can preview the lens before y
 
 ![create snapchat](https://images.wondershare.com/filmora/article-images/create-snapchat.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 It is all up to your imagination. You can create the perfect Snapchat lens, which you can then send into your Snapchat account through your Snapcode. Of course, if you are using your iOS device to create the lens, it is already linked to your account.
 
 Another cool feature is how you can set the location for where the Snapchat lens is available. Say you are hosting a party. You can have the Snapchat lens available to everyone who uses Snapchat within a set square footage of your home. That is an amazing way to let everyone share social media pictures and photos of your party, through the lens you created.
-
-<!-- affiliate ads begin -->
-<span id="1938136">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -128,10 +117,7 @@ Creating Snapchat lenses has never been easier. Whether you are a business looki
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Ollie Mattison
@@ -149,24 +135,16 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-how-to-speed-up-tiktok-videos-simple-guide/"><u>[New] 2024 Approved How to Speed Up TikTok Videos? [Simple Guide]</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-instagrams-visual-rhythm-mastering-the-slow-motion-balance/"><u>[New] 2024 Approved Instagram's Visual Rhythm Mastering the Slow-Motion Balance</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ow-to-add-timestamps-on-youtube-video-link/"><u>[New] How to Add Timestamps on YouTube Video Link?</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-essential-tips-for-computer-users-to-start-tiktok-live/"><u>[New] In 2024, Essential Tips for Computer Users to Start TikTok LIVE</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/nleashing-potential-strategic-hashtags-for-video-success-for-2024/"><u>[New] Unleashing Potential Strategic Hashtags for Video Success for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-become-a-pro-voiceovers-on-tiktok/"><u>[Updated] 2024 Approved Become a Pro Voiceovers on TikTok</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-pro-video-essentials-the-finest-portable-laptop-brands/"><u>[Updated] 2024 Approved Pro Video Essentials The Finest Portable Laptop Brands</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-integrating-words-in-tiktok-videos-made-simple/"><u>[Updated] Integrating Words in TikTok Videos Made Simple</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/2024-approved-engaging-audiences-with-jujutsu-kaisen-tiktok-content/"><u>2024 Approved Engaging Audiences with Jujutsu Kaisen TikTok Content</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-innovations-in-youtube-video-editing-software-reviewed/"><u>2024 Approved Innovations in YouTube Video Editing Software Reviewed</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/2024-approved-mastering-visual-storytelling-captioning-for-tiktok-videos/"><u>2024 Approved Mastering Visual Storytelling Captioning for TikTok Videos</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/2024-approved-singing-siblings-shine-on-tiktok/"><u>2024 Approved Singing Siblings Shine on TikTok</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/deathloop-continues-to-crash-follow-these-quick-steps-for-a-stable-gaming-experience-on-pc/"><u>Deathloop Continues to Crash? Follow These Quick Steps for a Stable Gaming Experience on PC</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-do-i-stop-someone-from-tracking-my-zte-nubia-flip-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How Do I Stop Someone From Tracking My ZTE Nubia Flip 5G? | Dr.fone</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/in-2024-identify-applause-acoustic-marker/"><u>In 2024, Identify Applause Acoustic Marker</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/in-2024-perfect-your-projects-topimarker-for-iphone-and-android/"><u>In 2024, Perfect Your Projects TopiMarker for iPhone & Android</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/new-the-ultimate-list-top-10-glitch-video-editing-apps-for-mobile-creatives/"><u>New The Ultimate List Top 10 Glitch Video Editing Apps for Mobile Creatives</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/secrets-of-creating-a-bespoke-tiktok-hashtag/"><u>Secrets of Creating a Bespoke TikTok Hashtag</u></a></li>
-<li><a href="https://win-bytes.techidaily.com/ultimate-guide-to-choosing-the-ideal-mpeg/"><u>Ultimate Guide to Choosing the Ideal MPEG-</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-avoiding-tiktoks-ghost-mode-strategies-to-stay-visible/"><u>[New] 2024 Approved Avoiding TikTok's Ghost Mode Strategies to Stay Visible</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-the-next-viral-platform-showdown-can-likes-beat-tiktoks-frenzy/"><u>[New] 2024 Approved The Next Viral Platform Showdown Can Likes Beat TikTok's Frenzy?</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-transform-your-tiktok-footage-with-enlarged-characters/"><u>[New] 2024 Approved Transform Your TikTok Footage with Enlarged Characters</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-unveiling-hidden-tiktok-ban-criteria/"><u>[New] 2024 Approved Unveiling Hidden TikTok Ban Criteria</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/a-closer-look-at-the-features-and-efficiency-of-rca-video-doorbell-security-systems/"><u>A Closer Look at the Features and Efficiency of RCA Video Doorbell Security Systems</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/discovering-new-dimensions-tiktoks-viral-potential-through-2-filmora-strategies/"><u>Discovering New Dimensions TikTok's Viral Potential Through 2 Filmora Strategies</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-delete-gmail-account-withwithout-password-on-asus-rog-phone-8-pro-by-drfone-android/"><u>In 2024, Delete Gmail Account With/Without Password On Asus ROG Phone 8 Pro</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-exclusive-access-premium-youtube-film-watchlists/"><u>In 2024, Exclusive Access Premium YouTube Film Watchlists</u></a></li>
+<li><a href="https://windows11.techidaily.com/mastering-the-art-of-window-11-search-bar-camouflage/"><u>Mastering the Art of Window 11 Search Bar Camouflage</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/pc-stability-solved-ultimate-guide-to-avoiding-ground-faults/"><u>PC Stability Solved: Ultimate Guide to Avoiding Ground Faults</u></a></li>
+<li><a href="https://common-error.techidaily.com/shockwave-flash-now-works-smoothly-in-google-chrome-after-latest-patch/"><u>Shockwave Flash Now Works Smoothly in Google Chrome After Latest Patch</u></a></li>
 </ul></div>
 
