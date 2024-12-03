@@ -1,7 +1,7 @@
 ---
 title: Unveiling Latest Innovations in Computing & Electronics at Tom's Hardware Hub
-date: 2024-11-19T16:39:42.175Z
-updated: 2024-11-24T16:07:49.794Z
+date: 2024-11-29T08:09:51.317Z
+updated: 2024-12-02T23:41:49.794Z
 tags:
   - desktop
 categories:
@@ -14,7 +14,7 @@ thumbnail: https://cdn.mos.cms.futurecdn.net/LCbG8RwNDZHdVnhQuwPna5-320-80.jpg
 [Hewlett Packard](https://www.tomshardware.com/tag/hewlett-packard) [Enterprise](https://www.tomshardware.com/tag/enterprise) (HPE), one of the world's largest makers of servers, has initiated a legal battle against Inspur Group, China's largest server maker, and its affiliates, alleging server patent infringements. HPE accuses Inspur of engaging in deceptive practices and renaming its subsidiaries in the U.S. to continue its business with American companies despite being included into the Entity List.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## HPE: Inspur infringes our patents
@@ -28,7 +28,7 @@ thumbnail: https://cdn.mos.cms.futurecdn.net/LCbG8RwNDZHdVnhQuwPna5-320-80.jpg
  LATEST VIDEOS FROM tomshardware Tom's Hardware
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Despite being on the Entity List, Inspur continues operations in the U.S
@@ -38,7 +38,7 @@ thumbnail: https://cdn.mos.cms.futurecdn.net/LCbG8RwNDZHdVnhQuwPna5-320-80.jpg
  The complaint claims that Inspur that inspur continues its operations in the United States under Aivres Systems and Betapex. Inspur allegedly removed its branding from products sold in the U.S. and continues to sell them. For example, Inspur's IR5280M6 server is Aivres's 5280M6 machine, it has the same specification and design, according to HPE's complaint. Meanwhile, Inspur has also worked as a contract maker of servers, according to The Register. Yet, if a U.S. entity plans to work with Inspur (or any other party from the Entity List), it has to get a special license from the U.S. government.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -64,21 +64,18 @@ thumbnail: https://cdn.mos.cms.futurecdn.net/LCbG8RwNDZHdVnhQuwPna5-320-80.jpg
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-relaxed-rhythms-essential-20-country-tracks-to-dance-away-stress-tiktok/"><u>[New] In 2024, Relaxed Rhythms Essential 20 Country Tracks to Dance Away Stress (TikTok)</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-stitching-an-innovative-tiktok-closing-credits/"><u>[New] In 2024, Stitching An Innovative TikTok Closing Credits</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-the-tasty-trail-10-viral-eats-on-social-media-for-2024/"><u>[New] The Tasty Trail 10 Viral Eats on Social Media for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-comic-corner-tickling-fun-with-the-top-tiktok-jokes-and-pranks/"><u>[Updated] 2024 Approved Comic Corner Tickling Fun with the Top TikTok Jokes and Pranks</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-photography-tips-for-seamless-instagram-posting/"><u>[Updated] Photography Tips for Seamless Instagram Posting</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/2024-approved-all-about-hand-based-interface-technology/"><u>2024 Approved All About Hand-Based Interface Technology</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/2024-approved-mastering-legal-compliance-in-your-tiktok-content-upload/"><u>2024 Approved Mastering Legal Compliance in Your TikTok Content Upload</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/accessing-live-spaces-on-tiktok-your-pathway/"><u>Accessing Live Spaces on TikTok Your Pathway</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/capture-your-thoughts-effortlessly-6-leading-journal-apps-reviewed/"><u>Capture Your Thoughts Effortlessly: 6 Leading Journal Apps Reviewed</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-planning-to-use-a-pokemon-go-joystick-on-xiaomi-civi-3-disney-100th-anniversary-edition-drfone-by-drfone-virtual-android/"><u>In 2024, Planning to Use a Pokemon Go Joystick on Xiaomi Civi 3 Disney 100th Anniversary Edition? | Dr.fone</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-unplugging-from-fbs-invasive-video-commercials/"><u>In 2024, Unplugging From FB's Invasive Video Commercials</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/stealth-mode-best-apps-for-instagram-viewing-for-2024/"><u>Stealth Mode Best Apps for Instagram Viewing for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/the-best-of-breed-top-10-tiktok-reactions-for-2024/"><u>The Best of Breed Top 10 TikTok Reactions for 2024</u></a></li>
-<li><a href="https://win11.techidaily.com/ultimate-tutorial-for-implementing-the-black-lightning-extension-in-kodi-versions-19-and-18/"><u>Ultimate Tutorial for Implementing the Black Lightning Extension in Kodi Versions 19 & 18</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/unleash-your-potential-with-these-powerful-snapchat-strategies-for-2024/"><u>Unleash Your Potential with These Powerful Snapchat Strategies for 2024</u></a></li>
-<li><a href="https://win-forum.techidaily.com/windows-11-insider-tip-finding-and-reading-your-motherboard-information-via-device-manager/"><u>Windows 11 Insider Tip: Finding and Reading Your Motherboard Information via Device Manager</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-becoming-an-exclusive-guest-on-tiktok-live/"><u>[New] 2024 Approved Becoming an Exclusive Guest on TikTok Live</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-resume-your-tiktok-journey-post-reload-error/"><u>[New] In 2024, Resume Your TikTok Journey Post-Reload Error</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-mastering-macos-producing-high-quality-ootd-tiktoks-for-2024/"><u>[New] Mastering MacOS Producing High-Quality OOTD TikToks for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-seamless-backgrounds-in-teamconferences-via-microsoft-teams/"><u>[Updated] 2024 Approved Seamless Backgrounds in TeamConferences via Microsoft Teams</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-top-4-proven-tactics-for-exceptional-loop-videos-on-ig/"><u>[Updated] Top 4 Proven Tactics for Exceptional Loop Videos on IG</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-undead-unleashed-discovering-the-ultimate-zombie-games/"><u>2024 Approved Undead Unleashed Discovering the Ultimate Zombie Games</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/executive-chair-showdown-why-the-x-chair-x4-dominates-office-seating-reviews/"><u>Executive Chair Showdown: Why the X-Chair X4 Dominates Office Seating Reviews</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/in-2024-elevating-your-tiktok-pics-with-simple-edits/"><u>In 2024, Elevating Your TikTok Pics with Simple Edits</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-groundbreaking-method-to-insert-gopro-clips-into-virtual-panoramic-movies/"><u>In 2024, Groundbreaking Method to Insert GoPro Clips Into Virtual Panoramic Movies</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-on-tecno-spark-go-2023withwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock on Tecno Spark Go (2023)with/without a PC</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/sky-perfection-11-must-have-enhancements-for-phantom-drone/"><u>Sky Perfection 11 Must-Have Enhancements for Phantom Drone</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/understanding-the-mystery-of-artificial-intelligence-an-insight-into-ai-black-box-functionality/"><u>Understanding the Mystery of Artificial Intelligence: An Insight Into AI 'Black Box' Functionality</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/virtual-gallery-combining-crescendos-with-clarity/"><u>Virtual Gallery Combining Crescendos with Clarity</u></a></li>
 </ul></div>
 

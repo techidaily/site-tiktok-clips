@@ -1,7 +1,7 @@
 ---
 title: Interactive Learning Zone Opens for Youth in Japan - 'Build Your Own Computer' Experience with Actual Components
-date: 2024-11-19T16:40:53.413Z
-updated: 2024-11-24T16:35:55.887Z
+date: 2024-11-26T01:46:29.513Z
+updated: 2024-12-03T02:13:22.823Z
 tags:
   - desktop
 categories:
@@ -50,7 +50,7 @@ One-Netbook, the team behind the OneXPlayer handheld console and the OneXGPU GPU
  Pre-orders for a 32 GB RAM / 1 TB SSD OneXPlayer M1 are already in Japan at JPY142,310 (or around $900). But if you bundle it with the OneXGPU, you get a 10% discount on the eGPU. So, if you’re looking for a small PC you can quickly move around but don’t sacrifice performance and graphical power, you should watch out for the OneXPlayer M1 mini-PC.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -76,18 +76,19 @@ One-Netbook, the team behind the OneXPlayer handheld console and the OneXGPU GPU
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/nlocking-the-secrets-to-earnings-on-youtube-shorts-for-2024/"><u>[New] Unlocking the Secrets to Earnings on YouTube Shorts for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-anime-inspired-makeup-and-costume-ideas-for-tiktoks/"><u>[Updated] Anime-Inspired Makeup & Costume Ideas for TikToks</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-steps-to-confirm-and-secure-your-tiktok-videos-for-posting/"><u>[Updated] Steps to Confirm and Secure Your TikTok Videos for Posting</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-visionary-8-tools-transforming-gameplay-for-2024/"><u>[Updated] Visionary 8 Tools Transforming Gameplay for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/2024-approved-video-marketing-mastery-for-affiliate-success/"><u>2024 Approved Video Marketing Mastery for Affiliate Success</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/beginners-handbook-for-pc-users-initiating-a-tiktok-broadcast-for-2024/"><u>Beginner's Handbook for PC Users - Initiating a TikTok Broadcast for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/capture-the-best-moments-select-6-top-ranked-short-video-download-tools-for-2024/"><u>Capture the Best Moments Select 6 Top-Ranked Short Video Download Tools for 2024</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/choosing-your-perfect-apple-notebook-macbook-air-m3-vs-macbook-air-m2-a-detailed-comparison/"><u>Choosing Your Perfect Apple Notebook: MacBook Air M3 Vs. MacBook Air M2 – A Detailed Comparison</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/clandestine-snaps-stealthy-image-recording-hacks-for-snapchat/"><u>Clandestine Snaps Stealthy Image Recording Hacks for Snapchat</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-guide-to-creating-fading-music-transitions-in-premiere/"><u>In 2024, Guide to Creating Fading Music Transitions in Premiere</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/infiltrate-live-tips-for-guesting-on-tiktok-sessions-for-2024/"><u>Infiltrate Live Tips for Guesting on TikTok Sessions for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/quick-quality-quilting-turning-photographic-patterns-into-cartoons-for-2024/"><u>Quick Quality Quilting Turning Photographic Patterns Into Cartoons for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/step-into-the-arena-joining-lives-on-tiktok/"><u>Step Into the Arena Joining Lives on TikTok</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-matching-tunes-to-themes-in-film-clips/"><u>[New] Matching Tunes to Themes in Film Clips</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/outube-moguls-and-millionaires/"><u>[New] YouTube Moguls and Millionaires</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-eating-the-trend-top-food-moments-on-tiktok/"><u>[Updated] 2024 Approved Eating the Trend Top Food Moments on TikTok</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-momentfreeze-immediate-screen-grab-guide/"><u>[Updated] 2024 Approved MomentFreeze Immediate Screen Grab Guide</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-essential-apps-for-cleaning-tiktok-video-logos/"><u>[Updated] In 2024, Essential Apps for Cleaning TikTok Video Logos</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-professional-insights-enhancing-digital-videos-and-photos-online-for-2024/"><u>[Updated] Professional Insights Enhancing Digital Videos & Photos Online for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-enhancing-tiktok-metrics-with-innovative-and-memorable-usernames/"><u>2024 Approved Enhancing TikTok Metrics with Innovative and Memorable Usernames</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-navigating-instagrams-inconsistent-video-timings/"><u>2024 Approved Navigating Instagram's Inconsistent Video Timings</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/embracing-whimsy-cartoon-face-magic-in-snapchat/"><u>Embracing Whimsy Cartoon Face Magic in Snapchat</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/mastering-program-installation-on-windows-11/"><u>Mastering Program Installation on Windows 11</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/phonetic-mastery-demystifying-tough-lexical-items/"><u>Phonetic Mastery: Demystifying Tough Lexical Items</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/secrets-of-seamlessly-sharing-in-tiktok-livestreams-for-2024/"><u>Secrets of Seamlessly Sharing in TikTok Livestreams for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/snapchat-recovery-quickly-recover-photosvideos/"><u>Snapchat Recovery Quickly Recover Photos/Videos</u></a></li>
+<li><a href="https://win-bits.techidaily.com/tecniche-essenziali-per-lottimizzazione-del-backup-e-mail-un-guida-completa/"><u>Tecniche Essenziali per L'ottimizzazione Del Backup E-Mail: Un Guida Completa</u></a></li>
 </ul></div>
 

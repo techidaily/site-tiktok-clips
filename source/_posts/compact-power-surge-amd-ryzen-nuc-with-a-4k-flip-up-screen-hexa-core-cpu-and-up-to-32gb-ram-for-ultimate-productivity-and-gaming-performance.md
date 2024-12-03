@@ -1,7 +1,7 @@
 ---
 title: "Compact Power Surge: AMD Ryzen NUC with a 4K Flip-Up Screen, Hexa-Core CPU & Up To 32GB RAM for Ultimate Productivity and Gaming Performance"
-date: 2024-11-18T16:03:25.894Z
-updated: 2024-11-24T16:32:09.937Z
+date: 2024-12-01T22:23:04.204Z
+updated: 2024-12-03T00:48:40.400Z
 tags:
   - desktop
 categories:
@@ -46,7 +46,7 @@ The Xyber Team launched its Xyber XPC Mini Desktop Computer campaign on[Indiegog
  We don’t have pricing information yet about the Xyber XPC, though, as it’s still in the campaign pre-launch stage. But the team behind the mini-PC Cybertruck says that they’re optimizing the BIOS and OS to get the best performance out of this small desktop computer.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -74,21 +74,16 @@ The Xyber Team launched its Xyber XPC Mini Desktop Computer campaign on[Indiegog
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-avoid-frustration-correct-a-mistaken-tiktok-reset/"><u>[New] 2024 Approved Avoid Frustration – Correct a Mistaken TikTok Reset</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/new-crafting-a-symphony-of-sights-and-sounds-in-video/"><u>[New] Crafting a Symphony of Sights & Sounds in Video</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-taking-screenshots-on-mac-5-methods/"><u>[New] In 2024, Taking Screenshots on Mac [5 Methods]</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/new-revolutionizing-content-creation-the-insight-into-vimeos-capabilities/"><u>[New] Revolutionizing Content Creation The Insight Into Vimeo's Capabilities</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-unraveling-free-filter-treasures-through-instagrams-advanced-searches-for-2024/"><u>[New] Unraveling Free Filter Treasures Through Instagram’s Advanced Searches for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-50plus-impressive-tiktok-username-ideas-to-boost-more-views/"><u>[Updated] 50+ Impressive TikTok Username Ideas to Boost More Views</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-enhancing-tiktok-content-adding-speech-to-song-conversion-for-2024/"><u>[Updated] Enhancing TikTok Content Adding Speech-to-Song Conversion for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-foodie-festivals-viral-virtues-of-tiktok-meals/"><u>[Updated] In 2024, Foodie Festivals Viral Virtues of TikTok Meals</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-the-artisans-guide-to-tiktok-captions-top-5-craftsmanship-strategies-for-2024/"><u>[Updated] The Artisan's Guide to TikTok Captions Top 5 Craftsmanship Strategies for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-streamlined-webp-to-jpg-conversion-methods/"><u>2024 Approved Streamlined WebP to JPG Conversion Methods</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/crafting-compelling-content-strategies-for-snapbiz/"><u>Crafting Compelling Content Strategies for SnapBiz</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/embrace-cold-choosing-heated-backdrops-for-youtube/"><u>Embrace Cold Choosing Heated Backdrops for YouTube</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/guide-to-locating-vanished-eyes-only-images-on-snapchat/"><u>Guide to Locating Vanished Eyes-Only Images on Snapchat</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-data-from-iphone-13-pro-max-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>How To Recover Data from iPhone 13 Pro Max? | Dr.fone</u></a></li>
-<li><a href="https://win-extraordinary.techidaily.com/microsoft-teams/"><u>Microsoft Teamsで失われたファイルの回収手順</u></a></li>
-<li><a href="https://driver-error.techidaily.com/unblocking-stuck-usb-to-serial-connections/"><u>Unblocking Stuck USB to Serial Connections</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-breaking-into-the-tiktok-livestream-realm/"><u>[New] Breaking Into the TikTok Livestream Realm</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-elevating-your-gopro-vlogs-with-professionals-strategies/"><u>[New] In 2024, Elevating Your Gopro Vlogs with Professionals Strategies</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-expand-reach-on-tiktok-with-powerful-hashtags/"><u>[New] In 2024, Expand Reach on TikTok with Powerful Hashtags</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-tech-analysis-elite-parrot-ar-drone-20/"><u>[Updated] Tech Analysis Elite Parrot AR Drone 2.0</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-the-ultimate-guide-to-earning-on-tiktok-step-by-step-8-methods-for-2024/"><u>[Updated] The Ultimate Guide to Earning on TikTok, Step by Step (8 Methods) for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-top-handheld-stabilizers-to-elevate-your-vlogging-game/"><u>[Updated] Top Handheld Stabilizers to Elevate Your Vlogging Game</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-what-if-my-tiktok-not-working-on-androidiphonechrome-for-2024/"><u>[Updated] What If My TikTok Not Working on Android/iPhone/Chrome for 2024</u></a></li>
+<li><a href="https://win-superb.techidaily.com/erfolgreichste-konkurrenten-zu-xcopy-auf-verschiedenen-windows-plattformen-wie-windows-11-7-and-xp-erkennen/"><u>Erfolgreichste Konkurrenten Zu Xcopy Auf Verschiedenen Windows-Plattformen Wie Windows 11, 7 & XP Erkennen</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/iphone-video-converter-for-mac-how-to-convert-hd-videos-to-iphoneipad-compatible-format-on-your-mac/"><u>IPhone Video Converter for Mac - How to Convert HD Videos to iPhone/iPad Compatible Format on Your Mac</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/jujutsu-kaisen-making-waves-tiktok-edition-for-2024/"><u>Jujutsu Kaisen Making Waves TikTok Edition for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/life360-learn-how-everything-works-on-oneplus-ace-2-drfone-by-drfone-virtual-android/"><u>Life360 Learn How Everything Works On OnePlus Ace 2 | Dr.fone</u></a></li>
 </ul></div>
 

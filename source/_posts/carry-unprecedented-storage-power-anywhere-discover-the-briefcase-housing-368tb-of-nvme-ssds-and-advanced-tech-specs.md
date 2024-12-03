@@ -1,7 +1,7 @@
 ---
 title: "Carry Unprecedented Storage Power Anywhere: Discover the Briefcase Housing 368TB of NVMe SSDs and Advanced Tech Specs"
-date: 2024-11-18T16:26:14.935Z
-updated: 2024-11-24T16:41:49.393Z
+date: 2024-12-01T03:32:19.565Z
+updated: 2024-12-02T20:59:42.553Z
 tags:
   - desktop
 categories:
@@ -48,7 +48,7 @@ Ordinary canned air products shoot out jets of gas with a surprising amount of v
  In tests, the canned air soon ran out of pressure between bursts, but more consistent shock diamonds were pictured from the nozzle of an air compressor (90 PSI). However, the YouTuber's favorite demo was delivered using the ball pump nozzle on the air compressor hose. Have a look through the gallery above for some of the great shock diamonds emitted from the canned air and various nozzles attached to a shop compressor.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -74,24 +74,24 @@ Ordinary canned air products shoot out jets of gas with a surprising amount of v
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-crafting-a-standout-identifier-for-your-tiktok-stream/"><u>[New] 2024 Approved Crafting a Standout Identifier for Your TikTok Stream</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-2024-approved-streamline-screen-recording-for-gaming-joy/"><u>[New] 2024 Approved Streamline Screen Recording for Gaming Joy</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-top-5-must-know-aspects-of-using-tiktok-macos-for-2024/"><u>[New] Top 5 Must-Know Aspects of Using TikTok (macOS) for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-producing-an-expressive-tiktok-conclusion-snippet/"><u>[Updated] 2024 Approved Producing an Expressive TikTok Conclusion Snippet</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-your-ultimate-guide-to-deciphering-tiktoks-pfp-emoji/"><u>[Updated] 2024 Approved Your Ultimate Guide to Deciphering TikTok's PFP Emoji</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-captivating-audiences-on-tiktok-by-blending-sound-and-sight/"><u>[Updated] In 2024, Captivating Audiences on TikTok by Blending Sound and Sight</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-mastering-pre-upload-tiktoks-copyright-guidelines/"><u>[Updated] In 2024, Mastering Pre-Upload TikTok's Copyright Guidelines</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/a-compreenasion-of-siri-integration-into-tiktok-filmmaking/"><u>A Compreenasion of Siri Integration Into TikTok Filmmaking</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/can-i-bypass-a-forgotten-phone-password-of-itel-a70-by-drfone-android/"><u>Can I Bypass a Forgotten Phone Password Of Itel A70?</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/comprehensive-tiktok-video-upload-strategies-for-chrome-android-and-ios-users/"><u>Comprehensive TikTok Video Upload Strategies for Chrome, Android, and iOS Users</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/easy-guide-updating-your-amd-smbus-controller-drivers/"><u>Easy Guide: Updating Your AMD Smbus Controller Drivers</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/explore-the-finest-cost-free-videocalling-platforms-for-2024/"><u>Explore the Finest Cost-Free Videocalling Platforms for 2024</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-bypass-icloud-activation-lock-on-ipod-and-apple-iphone-se-2020-the-right-way-by-drfone-ios/"><u>How To Bypass iCloud Activation Lock On iPod and Apple iPhone SE (2020) The Right Way</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/how-to-do-transitions-on-inshot-video-editor-for-2024/"><u>How to Do Transitions on Inshot Video Editor for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-peaceful-playtimes-best-idle-gaming-choices/"><u>In 2024, Peaceful Playtimes Best Idle Gaming Choices</u></a></li>
-<li><a href="https://win-answers.techidaily.com/mastering-error-0x80f8001-a-step-by-step-guide-to-restoring-minecraft-launcher-on-windows-11-and-10/"><u>Mastering Error 0X80^F8001: A Step-by-Step Guide to Restoring Minecraft Launcher on Windows 11 and 10</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/quick-guide-integrating-snap-camera-with-teams/"><u>Quick Guide Integrating Snap Camera with Teams</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/ringtones-from-youtube-a-compilation-of-optimal-download-hubs-for-2024/"><u>Ringtones From YouTube A Compilation of Optimal Download Hubs for 2024</u></a></li>
-<li><a href="https://extra-information.techidaily.com/the-journey-of-drones-from-current-uses-to-future-applications/"><u>The Journey of Drones From Current Uses to Future Applications</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-accelerating-your-tiktok-content-a-quick-guide/"><u>[New] Accelerating Your TikTok Content A Quick Guide</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-eating-the-trend-top-food-moments-on-tiktok-for-2024/"><u>[New] Eating the Trend Top Food Moments on TikTok for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-jujutsu-kaisens-universe-on-your-tiktok-feed/"><u>[New] In 2024, Jujutsu Kaisen’s Universe on Your TikTok Feed</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-reimagining-your-tiktok-presence-step-by-step-renaming-process/"><u>[New] In 2024, Reimagining Your TikTok Presence Step-by-Step Renaming Process</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-secrets-of-flawless-video-capture-top-4-apps-for-pcmac/"><u>[New] In 2024, Secrets of Flawless Video Capture Top 4 Apps for PC/Mac</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-securing-viewer-return-with-these-effective-strategies-for-higher-retention-rates/"><u>[New] In 2024, Securing Viewer Return with These Effective Strategies for Higher Retention Rates</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-optimizing-video-speed-on-tiktok-platform/"><u>[New] Optimizing Video Speed on TikTok Platform</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-skaldic-battle-asgard-vs-jotunheim-for-2024/"><u>[New] Skaldic Battle Asgard vs Jotunheim for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-sweet-snack-snapshot-review-deep-insight/"><u>[Updated] 2024 Approved Sweet Snack Snapshot Review Deep Insight</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-the-comprehensive-guide-to-screenshot-excellence-for-2024/"><u>[Updated] The Comprehensive Guide to Screenshot Excellence for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-unlocking-your-youtube-music-collection-a-detailed-guide/"><u>[Updated] Unlocking Your YouTube Music Collection A Detailed Guide</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-click-into-art-ultimate-edits-for-stunning-snaps/"><u>2024 Approved Click Into Art Ultimate Edits for Stunning Snaps</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-from-idea-to-screenshot-a-mac-guide-to-ootd-tiktoks/"><u>2024 Approved From Idea to Screenshot A Mac Guide to OOTD TikToks</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/captivate-audiences-perfecting-snapchats-boomerang-feature/"><u>Captivate Audiences Perfecting Snapchat's Boomerang Feature</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/how-to-stream-your-snapchat-moments-flawlessly/"><u>How to Stream Your Snapchat Moments Flawlessly</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-a-step-by-step-guide-to-finding-your-apple-id-on-your-apple-iphone-xr-by-drfone-ios/"><u>In 2024, A Step-by-Step Guide to Finding Your Apple ID On Your Apple iPhone XR</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-turn-off-google-location-to-stop-tracking-you-on-xiaomi-redmi-note-12-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Turn Off Google Location to Stop Tracking You on Xiaomi Redmi Note 12 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/the-sizzling-social-feast-10-viral-food-trends/"><u>The Sizzling Social Feast 10 Viral Food Trends</u></a></li>
+<li><a href="https://fox-that.techidaily.com/unblocked-now-why-your-iphone-might-not-receive-messages-from-an-android-and-what-you-can-do-about-it/"><u>Unblocked Now: Why Your iPhone Might Not Receive Messages From an Android and What You Can Do About It</u></a></li>
 </ul></div>
 

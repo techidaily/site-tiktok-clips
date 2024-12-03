@@ -1,7 +1,7 @@
 ---
 title: "Experience Lightning-Fast Performance: DIY Kit Enables Direct PCIe Link Between Mini PC and eGPU Surpassing Thunderbolt Amo"
-date: 2024-11-21T16:28:22.515Z
-updated: 2024-11-24T16:48:48.210Z
+date: 2024-12-01T01:59:35.774Z
+updated: 2024-12-03T02:32:19.387Z
 tags:
   - desktop
 categories:
@@ -36,7 +36,7 @@ Over on Chinese videosharing platform Bilibili, user 苏打baka uploaded a lengt
  So, what happened? Did the static buildup short out the PC or something? Fortunately, nothing so mundane. Instead, the fan PC was tested at increasingly higher speeds until the[weighty cooler](https://www.tomshardware.com/news/noctua-fanless-cooler-enters-production) was violently flung from the PC in the last moments of the original video. No wonder Sodabaka hid behind a riot shield for much of the video demo.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -62,20 +62,18 @@ Over on Chinese videosharing platform Bilibili, user 苏打baka uploaded a lengt
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-techniques.techidaily.com/new-flipping-filmmaking-on-your-android-device/"><u>[New] Flipping Filmmaking on Your Android Device</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-dive-into-the-frenzy-best-of-breed-top-10-tiktok-challenges/"><u>[New] In 2024, Dive Into the Frenzy Best of Breed – Top 10 TikTok Challenges</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-integrating-seamlessly-into-tiktok-lives-a-blueprint-for-2024/"><u>[New] Integrating Seamlessly Into TikTok Lives A Blueprint for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-the-insiders-secret-to-viral-tiktok-edits/"><u>[New] The Insider's Secret to Viral TikTok Edits</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-engage-and-grow-a-curated-list-of-popular-tiktok-hashes-for-2024/"><u>[Updated] Engage and Grow A Curated List of Popular TikTok Hashes for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-immersive-inventory-visualization/"><u>[Updated] Immersive Inventory Visualization</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-innovate-or-fall-behind-rejuvenating-your-tiktok-videos-using-mac-techniques/"><u>[Updated] In 2024, Innovate or Fall Behind Rejuvenating Your TikTok Videos Using Mac Techniques</u></a></li>
-<li><a href="https://driver-error.techidaily.com/addressing-nonoperational-realtek-controllers-post-upgrade/"><u>Addressing Nonoperational Realtek Controllers Post-Upgrade</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/1716469712510-in-2024-how-to-join-someones-live-on-tiktok-as-a-guest/"><u>In 2024, How to Join Someone’s Live on TikTok as a Guest</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/mastering-screencastify-for-easy-video-capture-for-2024/"><u>Mastering Screencastify for Easy Video Capture for 2024</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/new-2024-approved-make-it-pop-how-to-add-eye-catching-effects-to-your-videos/"><u>New 2024 Approved Make It Pop How to Add Eye-Catching Effects to Your Videos</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/sending-your-creativity-soaring-pc-and-mac-tiktok-video-posts-for-2024/"><u>Sending Your Creativity Soaring PC & Mac TikTok Video Posts for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/unleashing-potential-with-the-q500-drone-for-2024/"><u>Unleashing Potential with the Q500 Drone for 2024</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/unlocking-potential-crafting-dynamic-images-with-your-ipad/"><u>Unlocking Potential Crafting Dynamic Images with Your iPad</u></a></li>
-<li><a href="https://some-skills.techidaily.com/unveiling-colors-top-11-grading-and-correction-techniques-for-2024/"><u>Unveiling Colors Top 11 Grading & Correction Techniques for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-fix-the-tiktok-refresh-error-instantly/"><u>[New] 2024 Approved Fix the TikTok Refresh Error Instantly</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-the-ultimate-guide-to-mac-based-sound-capture-in-audacity-for-2024/"><u>[New] The Ultimate Guide to Mac-Based Sound Capture in Audacity for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-ahead-of-the-curve-tiktoks-freshest-acts/"><u>[Updated] 2024 Approved Ahead of the Curve TikTok's Freshest Acts</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-anime-inspired-filters-and-overlays-for-trendy-tiktok-videos/"><u>[Updated] 2024 Approved Anime-Inspired Filters & Overlays for Trendy TikTok Videos</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-architecting-an-inspiring-tiktok-conclusion/"><u>[Updated] 2024 Approved Architecting an Inspiring TikTok Conclusion</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-crafting-content-that-captivates-instagrams-roadmap-to-success/"><u>[Updated] 2024 Approved Crafting Content that Captivates Instagram’s Roadmap to Success</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-focus-on-the-frame-master-logitech-cam-edits-for-2024/"><u>[Updated] Focus on the Frame Master Logitech Cam Edits for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-top-5-ios-tools-to-download-facebook-movies-and-clips/"><u>[Updated] In 2024, Top 5 iOS Tools to Download Facebook Movies & Clips</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-synchronizing-tracks-through-effective-crossfading/"><u>2024 Approved Synchronizing Tracks Through Effective Crossfading</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/avoiding-fraudgpts-snares-digital-vigilance-for-everyone/"><u>Avoiding FraudGPT's Snares: Digital Vigilance for Everyone</u></a></li>
+<li><a href="https://win-able.techidaily.com/1722983010599-no-more-screen-shimmers-your-definitive-guide-to-banishing-the-blink/"><u>No More Screen Shimmers – Your Definitive Guide to Banishing the Blink</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/spotlight-on-pioneers-bdr-xd0-blu-ray-player-a-detailed-look-at-its-drawbacks/"><u>Spotlight on Pioneer's BDR-XD0지오 Blu-Ray Player: A Detailed Look at Its Drawbacks</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/unbeatable-memorial-day-deal-save-60-on-the-apple-watch-se-top-pick-of-the-year/"><u>Unbeatable Memorial Day Deal: Save $60 on the Apple Watch SE - Top Pick of the Year !</u></a></li>
 </ul></div>
 
