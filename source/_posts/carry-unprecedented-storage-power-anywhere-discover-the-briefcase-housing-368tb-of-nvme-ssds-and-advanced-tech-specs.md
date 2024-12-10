@@ -1,7 +1,7 @@
 ---
 title: "Carry Unprecedented Storage Power Anywhere: Discover the Briefcase Housing 368TB of NVMe SSDs and Advanced Tech Specs"
-date: 2024-12-01T03:32:19.565Z
-updated: 2024-12-02T20:59:42.553Z
+date: 2024-12-06T06:52:44.524Z
+updated: 2024-12-09T22:54:24.115Z
 tags:
   - desktop
 categories:
@@ -48,7 +48,7 @@ Ordinary canned air products shoot out jets of gas with a surprising amount of v
  In tests, the canned air soon ran out of pressure between bursts, but more consistent shock diamonds were pictured from the nozzle of an air compressor (90 PSI). However, the YouTuber's favorite demo was delivered using the ball pump nozzle on the air compressor hose. Have a look through the gallery above for some of the great shock diamonds emitted from the canned air and various nozzles attached to a shop compressor.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -74,24 +74,18 @@ Ordinary canned air products shoot out jets of gas with a surprising amount of v
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-clips.techidaily.com/new-accelerating-your-tiktok-content-a-quick-guide/"><u>[New] Accelerating Your TikTok Content A Quick Guide</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-eating-the-trend-top-food-moments-on-tiktok-for-2024/"><u>[New] Eating the Trend Top Food Moments on TikTok for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-jujutsu-kaisens-universe-on-your-tiktok-feed/"><u>[New] In 2024, Jujutsu Kaisen’s Universe on Your TikTok Feed</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-reimagining-your-tiktok-presence-step-by-step-renaming-process/"><u>[New] In 2024, Reimagining Your TikTok Presence Step-by-Step Renaming Process</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-secrets-of-flawless-video-capture-top-4-apps-for-pcmac/"><u>[New] In 2024, Secrets of Flawless Video Capture Top 4 Apps for PC/Mac</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-securing-viewer-return-with-these-effective-strategies-for-higher-retention-rates/"><u>[New] In 2024, Securing Viewer Return with These Effective Strategies for Higher Retention Rates</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-optimizing-video-speed-on-tiktok-platform/"><u>[New] Optimizing Video Speed on TikTok Platform</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-skaldic-battle-asgard-vs-jotunheim-for-2024/"><u>[New] Skaldic Battle Asgard vs Jotunheim for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-sweet-snack-snapshot-review-deep-insight/"><u>[Updated] 2024 Approved Sweet Snack Snapshot Review Deep Insight</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-the-comprehensive-guide-to-screenshot-excellence-for-2024/"><u>[Updated] The Comprehensive Guide to Screenshot Excellence for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-unlocking-your-youtube-music-collection-a-detailed-guide/"><u>[Updated] Unlocking Your YouTube Music Collection A Detailed Guide</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-click-into-art-ultimate-edits-for-stunning-snaps/"><u>2024 Approved Click Into Art Ultimate Edits for Stunning Snaps</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/2024-approved-from-idea-to-screenshot-a-mac-guide-to-ootd-tiktoks/"><u>2024 Approved From Idea to Screenshot A Mac Guide to OOTD TikToks</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/captivate-audiences-perfecting-snapchats-boomerang-feature/"><u>Captivate Audiences Perfecting Snapchat's Boomerang Feature</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/how-to-stream-your-snapchat-moments-flawlessly/"><u>How to Stream Your Snapchat Moments Flawlessly</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-a-step-by-step-guide-to-finding-your-apple-id-on-your-apple-iphone-xr-by-drfone-ios/"><u>In 2024, A Step-by-Step Guide to Finding Your Apple ID On Your Apple iPhone XR</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-turn-off-google-location-to-stop-tracking-you-on-xiaomi-redmi-note-12-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Turn Off Google Location to Stop Tracking You on Xiaomi Redmi Note 12 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/the-sizzling-social-feast-10-viral-food-trends/"><u>The Sizzling Social Feast 10 Viral Food Trends</u></a></li>
-<li><a href="https://fox-that.techidaily.com/unblocked-now-why-your-iphone-might-not-receive-messages-from-an-android-and-what-you-can-do-about-it/"><u>Unblocked Now: Why Your iPhone Might Not Receive Messages From an Android and What You Can Do About It</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-how-to-un-reload-your-loved-tiktok-videos/"><u>[New] 2024 Approved How to Un-Reload Your Loved TikTok Videos</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-from-observer-to-participant-tips-for-guesting-on-tiktoks-for-2024/"><u>[New] From Observer to Participant Tips for Guesting on TikToks for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-create-professional-movies-on-youtube-quickly/"><u>[Updated] In 2024, Create Professional Movies on YouTube Quickly</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-unveiling-the-secrets-of-effective-video-captioning-for-tiktoks/"><u>[Updated] In 2024, Unveiling the Secrets of Effective Video Captioning for TikToks</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/how-to-blur-the-video-background-or-some-parts-of-the-video-you-can-know-how-to-blur-videos-with-some-free-online-tools-in-this-article/"><u>How to Blur the Video Background or some Parts of the Video? You Can Know How to Blur Videos with some Free Online Tools in This Article</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-cast-samsung-galaxy-f15-5g-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>How to Cast Samsung Galaxy F15 5G to Computer for iPhone and Android? | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-watch-avchd-mts-video-on-moto-g34-5g-by-aiseesoft-video-converter-play-mts-on-android/"><u>How to watch AVCHD MTS video on Moto G34 5G?</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/in-2024-epic-tiktok-success-the-virality-formula/"><u>In 2024, Epic TikTok Success The Virality Formula</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/in-2024-permanent-tiktok-account-elimination-guide/"><u>In 2024, Permanent TikTok Account Elimination Guide</u></a></li>
+<li><a href="https://extra-information.techidaily.com/selecting-superior-free-srt-translation-apps-today/"><u>Selecting Superior Free SRT Translation Apps Today</u></a></li>
+<li><a href="https://solve-lab.techidaily.com/top-applications-to-accelerate-your-computer-performance-insights-by-yl-computing/"><u>Top Applications to Accelerate Your Computer Performance: Insights by YL Computing</u></a></li>
+<li><a href="https://extra-information.techidaily.com/top-iosandroid-apps-for-creative-photo-captions/"><u>Top iOS/Android Apps for Creative Photo Captions</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/upload-wisdom-tiktok-video-rights-and-compliance-guide/"><u>Upload Wisdom TikTok Video Rights & Compliance Guide</u></a></li>
 </ul></div>
 

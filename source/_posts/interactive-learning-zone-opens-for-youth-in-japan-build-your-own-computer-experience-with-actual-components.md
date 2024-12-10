@@ -1,7 +1,7 @@
 ---
 title: Interactive Learning Zone Opens for Youth in Japan - 'Build Your Own Computer' Experience with Actual Components
-date: 2024-11-26T01:46:29.513Z
-updated: 2024-12-03T02:13:22.823Z
+date: 2024-12-07T04:44:20.777Z
+updated: 2024-12-10T05:28:17.003Z
 tags:
   - desktop
 categories:
@@ -50,7 +50,7 @@ One-Netbook, the team behind the OneXPlayer handheld console and the OneXGPU GPU
  Pre-orders for a 32 GB RAM / 1 TB SSD OneXPlayer M1 are already in Japan at JPY142,310 (or around $900). But if you bundle it with the OneXGPU, you get a 10% discount on the eGPU. So, if you’re looking for a small PC you can quickly move around but don’t sacrifice performance and graphical power, you should watch out for the OneXPlayer M1 mini-PC.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -76,19 +76,17 @@ One-Netbook, the team behind the OneXPlayer handheld console and the OneXGPU GPU
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-skills.techidaily.com/new-matching-tunes-to-themes-in-film-clips/"><u>[New] Matching Tunes to Themes in Film Clips</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/outube-moguls-and-millionaires/"><u>[New] YouTube Moguls and Millionaires</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-eating-the-trend-top-food-moments-on-tiktok/"><u>[Updated] 2024 Approved Eating the Trend Top Food Moments on TikTok</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-momentfreeze-immediate-screen-grab-guide/"><u>[Updated] 2024 Approved MomentFreeze Immediate Screen Grab Guide</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-essential-apps-for-cleaning-tiktok-video-logos/"><u>[Updated] In 2024, Essential Apps for Cleaning TikTok Video Logos</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-professional-insights-enhancing-digital-videos-and-photos-online-for-2024/"><u>[Updated] Professional Insights Enhancing Digital Videos & Photos Online for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/2024-approved-enhancing-tiktok-metrics-with-innovative-and-memorable-usernames/"><u>2024 Approved Enhancing TikTok Metrics with Innovative and Memorable Usernames</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-navigating-instagrams-inconsistent-video-timings/"><u>2024 Approved Navigating Instagram's Inconsistent Video Timings</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/embracing-whimsy-cartoon-face-magic-in-snapchat/"><u>Embracing Whimsy Cartoon Face Magic in Snapchat</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/mastering-program-installation-on-windows-11/"><u>Mastering Program Installation on Windows 11</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/phonetic-mastery-demystifying-tough-lexical-items/"><u>Phonetic Mastery: Demystifying Tough Lexical Items</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/secrets-of-seamlessly-sharing-in-tiktok-livestreams-for-2024/"><u>Secrets of Seamlessly Sharing in TikTok Livestreams for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/snapchat-recovery-quickly-recover-photosvideos/"><u>Snapchat Recovery Quickly Recover Photos/Videos</u></a></li>
-<li><a href="https://win-bits.techidaily.com/tecniche-essenziali-per-lottimizzazione-del-backup-e-mail-un-guida-completa/"><u>Tecniche Essenziali per L'ottimizzazione Del Backup E-Mail: Un Guida Completa</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/omprehensive-list-of-top-9-free-video-channel-branding-aids-for-2024/"><u>[New] Comprehensive List of Top 9 Free Video Channel Branding Aids for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-innovating-your-ultimate-tiktok-seal/"><u>[New] Innovating Your Ultimate TikTok Seal</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-gradual-amplitude-reduction-guide/"><u>[Updated] 2024 Approved Gradual Amplitude Reduction Guide</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-meme-magic-sending-laughs-across-fb-and-insta-with-video-content/"><u>[Updated] 2024 Approved Meme Magic Sending Laughs Across FB & Insta with Video Content</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-crafting-the-perfect-anime-story-best-ideas-for-viral-videos/"><u>[Updated] Crafting the Perfect Anime Story Best Ideas for Viral Videos</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-drone-trailblazers-the-most-attentive-models/"><u>[Updated] In 2024, Drone Trailblazers The Most Attentive Models</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-proactive-copyright-verification-for-your-tiktok-videos/"><u>[Updated] In 2024, Proactive Copyright Verification for Your TikTok Videos</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-secure-paths-for-boosting-tiktok-profile-visibility-for-2024/"><u>[Updated] Secure Paths for Boosting TikTok Profile Visibility for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/crafting-compelling-storylines-with-top-20-anime-influences-on-tiktok/"><u>Crafting Compelling Storylines with Top 20 Anime Influences on TikTok</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/elevate-your-videogame-experience-record-on-steam-for-2024/"><u>Elevate Your Videogame Experience - Record on Steam for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/streamline-your-media-files-8-pro-convertors-sub-to-srt-style/"><u>Streamline Your Media Files 8 Pro Convertors, Sub to Srt Style</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/top-picks-best-ssd-and-hdd-offers/"><u>Top Picks: Best SSD & HDD Offers</u></a></li>
 </ul></div>
 

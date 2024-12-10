@@ -1,7 +1,7 @@
 ---
 title: "Experience Lightning-Fast Performance: DIY Kit Enables Direct PCIe Link Between Mini PC and eGPU Surpassing Thunderbolt Amo"
-date: 2024-12-01T01:59:35.774Z
-updated: 2024-12-03T02:32:19.387Z
+date: 2024-12-03T00:35:58.896Z
+updated: 2024-12-10T08:16:34.789Z
 tags:
   - desktop
 categories:
@@ -36,7 +36,7 @@ Over on Chinese videosharing platform Bilibili, user 苏打baka uploaded a lengt
  So, what happened? Did the static buildup short out the PC or something? Fortunately, nothing so mundane. Instead, the fan PC was tested at increasingly higher speeds until the[weighty cooler](https://www.tomshardware.com/news/noctua-fanless-cooler-enters-production) was violently flung from the PC in the last moments of the original video. No wonder Sodabaka hid behind a riot shield for much of the video demo.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -62,18 +62,24 @@ Over on Chinese videosharing platform Bilibili, user 苏打baka uploaded a lengt
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-fix-the-tiktok-refresh-error-instantly/"><u>[New] 2024 Approved Fix the TikTok Refresh Error Instantly</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-the-ultimate-guide-to-mac-based-sound-capture-in-audacity-for-2024/"><u>[New] The Ultimate Guide to Mac-Based Sound Capture in Audacity for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-ahead-of-the-curve-tiktoks-freshest-acts/"><u>[Updated] 2024 Approved Ahead of the Curve TikTok's Freshest Acts</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-anime-inspired-filters-and-overlays-for-trendy-tiktok-videos/"><u>[Updated] 2024 Approved Anime-Inspired Filters & Overlays for Trendy TikTok Videos</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-architecting-an-inspiring-tiktok-conclusion/"><u>[Updated] 2024 Approved Architecting an Inspiring TikTok Conclusion</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-crafting-content-that-captivates-instagrams-roadmap-to-success/"><u>[Updated] 2024 Approved Crafting Content that Captivates Instagram’s Roadmap to Success</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-focus-on-the-frame-master-logitech-cam-edits-for-2024/"><u>[Updated] Focus on the Frame Master Logitech Cam Edits for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-top-5-ios-tools-to-download-facebook-movies-and-clips/"><u>[Updated] In 2024, Top 5 iOS Tools to Download Facebook Movies & Clips</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-synchronizing-tracks-through-effective-crossfading/"><u>2024 Approved Synchronizing Tracks Through Effective Crossfading</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/avoiding-fraudgpts-snares-digital-vigilance-for-everyone/"><u>Avoiding FraudGPT's Snares: Digital Vigilance for Everyone</u></a></li>
-<li><a href="https://win-able.techidaily.com/1722983010599-no-more-screen-shimmers-your-definitive-guide-to-banishing-the-blink/"><u>No More Screen Shimmers – Your Definitive Guide to Banishing the Blink</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/spotlight-on-pioneers-bdr-xd0-blu-ray-player-a-detailed-look-at-its-drawbacks/"><u>Spotlight on Pioneer's BDR-XD0지오 Blu-Ray Player: A Detailed Look at Its Drawbacks</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/unbeatable-memorial-day-deal-save-60-on-the-apple-watch-se-top-pick-of-the-year/"><u>Unbeatable Memorial Day Deal: Save $60 on the Apple Watch SE - Top Pick of the Year !</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-from-start-to-finish-seamless-editing-with-kinemaster/"><u>[Updated] 2024 Approved From Start to Finish Seamless Editing with Kinemaster</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-enhancing-tiktok-content-adding-speech-to-song-conversion-for-2024/"><u>[Updated] Enhancing TikTok Content Adding Speech-to-Song Conversion for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-beats-at-breakneck-speed-the-fastest-rising-tiktok-hits/"><u>[Updated] In 2024, Beats at Breakneck Speed The Fastest-Rising TikTok Hits</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-foodie-festivals-viral-virtues-of-tiktok-meals/"><u>[Updated] In 2024, Foodie Festivals Viral Virtues of TikTok Meals</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-unlocking-the-process-of-saving-whatsapp-dialogues-for-2024/"><u>[Updated] Unlocking the Process of Saving WhatsApp Dialogues for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-inspiring-tiktok-lyrics-to-boost-your-content/"><u>2024 Approved Inspiring TikTok Lyrics to Boost Your Content</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-mastering-complete-tiktok-deletion-process/"><u>2024 Approved Mastering Complete TikTok Deletion Process</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/choosing-between-roku-players-express-or-stick-a-comprehensive-guide/"><u>Choosing Between Roku Players: Express or Stick – A Comprehensive Guide</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/crafting-an-engaging-tiktok-closing-credits/"><u>Crafting An Engaging TikTok Closing Credits</u></a></li>
+<li><a href="https://win11.techidaily.com/customizing-user-profiles-with-precise-gpo-settings-in-win-oses/"><u>Customizing User Profiles with Precise GPO Settings in Win OSes</u></a></li>
+<li><a href="https://driver-download.techidaily.com/download-and-install-the-latest-insignia-bluetooth-dongle-driver-on-windows/"><u>Download & Install the Latest Insignia Bluetooth Dongle Driver on Windows</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/in-2024-streamline-your-tiktok-lives-4-essential-desktop-practices/"><u>In 2024, Streamline Your TikTok Lives 4 Essential Desktop Practices</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/in-2024-the-process-to-pinpoint-a-personalized-identifier-for-tiktok/"><u>In 2024, The Process to Pinpoint a Personalized Identifier for TikTok</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/maximize-account-performance-with-these-premier-tiktok-metrics/"><u>Maximize Account Performance with These Premier TikTok Metrics</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/sonys-pursuit-of-perfection-the-4k-smartphone-experience/"><u>Sony's Pursuit of Perfection The 4K Smartphone Experience</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/streamline-conferencing-top-tactics-using-zoom-coder-for-2024/"><u>Streamline Conferencing Top Tactics Using Zoom Coder for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/tips-to-communicate-with-youtube-subscribers-for-2024/"><u>Tips to Communicate with YouTube Subscribers for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/troubleshooting-onedrive-media-errors-for-seamless-video-streaming/"><u>Troubleshooting OneDrive Media Errors for Seamless Video Streaming</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/unlocking-made-easy-the-best-10-apps-for-unlocking-your-lava-yuva-3-pro-device-by-drfone-android/"><u>Unlocking Made Easy The Best 10 Apps for Unlocking Your Lava Yuva 3 Pro Device</u></a></li>
 </ul></div>
 

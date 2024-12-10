@@ -1,7 +1,7 @@
 ---
 title: Unlocking Potential in Projects with ChatGPT - A How-To Approach
-date: 2024-11-26T10:30:50.642Z
-updated: 2024-12-03T09:57:19.271Z
+date: 2024-12-09T09:22:57.082Z
+updated: 2024-12-10T07:01:43.284Z
 tags:
   - chatgpt
   - open-ai
@@ -24,7 +24,7 @@ thumbnail: https://thmb.techidaily.com/2546a6e6db1c838a1a7b59103067ea8f9dccc09f3
 ![WebChatGPT takes your ChatGPT prompt and performs a search query with it first, and then instructs ChatGPT to use those search results while answering your query so that its data is more updated](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/best-chatgpt-browser-extensions-chrome-webchatgpt.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  As impressive as ChatGPT's answers are, it's still limited. If you know[how ChatGPT works](https://www.makeuseof.com/how-does-chatgpt-work/) , you'll know that it isn't scraping the internet for the latest information about any topic or news. The AI works on older data and doesn't search the internet. WebChatGPT is an innovative workaround for this problem that adds web search results to ChatGPT.
@@ -38,10 +38,6 @@ thumbnail: https://thmb.techidaily.com/2546a6e6db1c838a1a7b59103067ea8f9dccc09f3
  You can customize the default revised prompt that WebChatGPT uses, but as a new user, we wouldn't suggest that. Once you're more accustomed to using this extension, feel free to look into options that improve your queries
 
 **Download:** WebChatGPT for[Chrome](https://chrome.google.com/webstore/detail/chatgpt-advanced/lpfemeioodjbpieminkklglpmhlngfcn) |[Firefox](https://addons.mozilla.org/en-US/firefox/addon/web-chatgpt/) (Free)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 2\. ChatGPT Prompt Genius
 
@@ -67,15 +63,15 @@ thumbnail: https://thmb.techidaily.com/2546a6e6db1c838a1a7b59103067ea8f9dccc09f3
 
 ![an email reply using chatgpt writer](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/chatgpt-writer-1.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  ChatGPT Writer will take a few seconds and then compose a long, professional message along those lines. You can change or edit any words within the box, or redo your prompt if it's not satisfactory. When you're happy with the result, insert it directly into the**Reply** box, and you're ready to send it.
 
  The first time you use ChatpGPT Writer, you'll need to log in to your OpenAI account with it. The extension works with any Chromium browser such as Chrome, Brave, or Edge. While it's currently best for replying to professional emails, you can also give it non-work prompts to write casual and personal email messages.
 
 **Download:** ChatGPT Writer for[Chrome](https://chrome.google.com/webstore/detail/chatgpt-writer-write-mail/pdnenlnelpdomajfejgapbdpmjkfpjkp/) (Free)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 4\. YouTube Summary With ChatGPT
 
@@ -88,7 +84,7 @@ thumbnail: https://thmb.techidaily.com/2546a6e6db1c838a1a7b59103067ea8f9dccc09f3
 ![using the 'transcript and summary box' from youtube summary extension](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/youtube-summary-extension.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  The extension also has a button to view an AI-generated summary of the video. Clicking this takes you to ChatGPT, with the transcript already typed in the prompt. All you have to do now is prompt ChatGPT to summarize the text, and you'll get an instant summary.
@@ -98,7 +94,7 @@ thumbnail: https://thmb.techidaily.com/2546a6e6db1c838a1a7b59103067ea8f9dccc09f3
 **Download:** YouTube Summary With ChatGPT for[Chrome](https://chrome.google.com/webstore/detail/youtube-summary-with-chat/nmmicjeknamkfloonkhhcjmomieiodli) |[Safari](https://apps.apple.com/us/app/glasp-social-web-highlighter/id1605690124) (Free)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 5\. Talk-to-ChatGPT
@@ -118,6 +114,10 @@ thumbnail: https://thmb.techidaily.com/2546a6e6db1c838a1a7b59103067ea8f9dccc09f3
  You'll find the AI answers in the right sidebar next to regular search results. The extension can run for every search, for keywords that end with a question mark, or you can trigger it manually when you want to. Clicking the extension icon opens a shortcut to run a ChatGPT query directly through a drop-down panel.
 
 **Download:** ChatGPT for Search Engines for[Chrome](https://chrome.google.com/webstore/detail/chatgpt-for-search-engine/feeonheemodpkdckaljcjogdncpiiban/) |[Firefox](https://addons.mozilla.org/en-US/firefox/addon/chatgpt-for-search-engines/) |[Edge](https://microsoftedge.microsoft.com/addons/detail/chatgpt-for-search-engine/pnglghgjhaklojnjpkhcdidgalehmkbn) (Free)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 7\. Perplexity AI
 
@@ -152,18 +152,24 @@ thumbnail: https://thmb.techidaily.com/2546a6e6db1c838a1a7b59103067ea8f9dccc09f3
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-clips.techidaily.com/new-unleashing-potential-the-best-anime-ideas-in-videos-for-2024/"><u>[New] Unleashing Potential The Best Anime Ideas in Videos for 2024</u></a></li>
-<li><a href="https://some-tips.techidaily.com/new-unlock-the-hidden-potential-of-windows-11-with-these-tips/"><u>[New] Unlock the Hidden Potential of Windows 11 with These Tips</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-mastering-tiktok-self-cloning-a-beginners-roadmap/"><u>[Updated] 2024 Approved Mastering TikTok Self-Cloning A Beginner's Roadmap</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-how-to-stay-ahead-of-the-curve-in-tiktok-world/"><u>[Updated] In 2024, How to Stay Ahead of the Curve in TikTok World</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/affordable-pruveeo-fhd-dashcam-with-full-hd-recording-in-depth-review/"><u>Affordable Pruveeo FHD Dashcam with Full HD Recording - In-Depth Review!</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/essential-techniques-for-musical-tiktok-creation-for-2024/"><u>Essential Techniques for Musical TikTok Creation for 2024</u></a></li>
-<li><a href="https://win-awesome.techidaily.com/fixing-the-unavailable-windows-11-launch-day-functionality-a-comprehensive-5-step-guide/"><u>Fixing the Unavailable Windows 11 Launch Day Functionality – A Comprehensive 5-Step Guide</u></a></li>
-<li><a href="https://fox-that.techidaily.com/how-to-fix-aol-mail-not-working-on-iphone-6-solutions/"><u>How to Fix AOL Mail Not Working on iPhone: 6 Solutions</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/how-to-un-reload-your-loved-tiktok-videos/"><u>How to Un-Reload Your Loved TikTok Videos</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-10-easy-to-use-frp-bypass-tools-for-unlocking-google-accounts-on-nokia-c12-pro-by-drfone-android/"><u>In 2024, 10 Easy-to-Use FRP Bypass Tools for Unlocking Google Accounts On Nokia C12 Pro</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-starters-kit-establishing-yourself-on-youtube-profitably/"><u>In 2024, Starter's Kit Establishing Yourself on YouTube Profitably</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-will-the-ipogo-get-you-banned-and-how-to-solve-it-on-motorola-moto-g04-drfone-by-drfone-virtual-android/"><u>In 2024, Will the iPogo Get You Banned and How to Solve It On Motorola Moto G04 | Dr.fone</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/voiceover-techniques-for-tiktok-video-amplification-for-2024/"><u>Voiceover Techniques for TikTok Video Amplification for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-unleash-your-potential-strategies-for-recreating-yourself-on-tiktok-for-2024/"><u>[New] Unleash Your Potential Strategies for Recreating Yourself on TikTok for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-how-to-pinpoint-the-perfect-tag-for-your-personalized-tiktok-stream/"><u>[Updated] 2024 Approved How to Pinpoint the Perfect Tag for Your Personalized TikTok Stream</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-exploring-charms-galore-uncover-top-7-tiktok-emojis-and-their-covert-counterparts/"><u>[Updated] Exploring Charms Galore – Uncover Top 7 TikTok Emojis & Their Covert Counterparts</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-infuse-vibrancy-mastering-music-integration-in-social-media-videos/"><u>[Updated] Infuse Vibrancy Mastering Music Integration in Social Media Videos</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-rapid-tiktok-filming-techniques-to-enhance-frame-rate/"><u>[Updated] Rapid TikTok Filming Techniques to Enhance Frame Rate</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-chucklebox-build-memes-free-of-charge/"><u>2024 Approved ChuckleBox Build Memes Free of Charge</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-easy-steps-to-dance-and-unwind-with-these-top-20-songs-country-edition/"><u>2024 Approved Easy Steps to Dance & Unwind with These Top 20 Songs (Country Edition)</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-how-to-ride-on-others-tiktok-waves-as-a-guest/"><u>2024 Approved How to Ride on Others' TikTok Waves as a Guest</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-secrets-to-standout-final-scenes-on-yt-platforms/"><u>2024 Approved Secrets to Standout Final Scenes on YT Platforms</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/creating-an-individualistic-tiktok-identifier-for-2024/"><u>Creating an Individualistic TikTok Identifier for 2024</u></a></li>
+<li><a href="https://windows11.techidaily.com/direct-routes-to-windows-11s-system32/"><u>Direct Routes to Windows 11'S System32</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-erase-iphone-11-pro-max-data-permanently-drfone-by-drfone-ios-full-data-eraser-ios-full-data-eraser/"><u>How To Erase iPhone 11 Pro Max Data Permanently | Dr.fone</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/in-2024-constructing-a-dynamic-tiktok-end-slide/"><u>In 2024, Constructing a Dynamic TikTok End Slide</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-forgotten-the-voicemail-password-of-oneplus-11r-try-these-fixes-by-drfone-android/"><u>In 2024, Forgotten The Voicemail Password Of OnePlus 11R? Try These Fixes</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-come-up-with-the-best-pokemon-team-on-oneplus-12r-drfone-by-drfone-virtual-android/"><u>In 2024, How to Come up With the Best Pokemon Team On OnePlus 12R? | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/ispoofer-is-not-working-on-zte-axon-40-lite-fixed-drfone-by-drfone-virtual-android/"><u>iSpoofer is not working On ZTE Axon 40 Lite? Fixed | Dr.fone</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-2024-approved-intuitive-vocal-modification-mechanisms-an-insight-into-operational-aspects-standards-and-workarounds/"><u>Updated 2024 Approved Intuitive Vocal Modification Mechanisms An Insight Into Operational Aspects, Standards, and Workarounds</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/upgrading-systemtray-with-numlock-icon-windows-11-guide/"><u>Upgrading SystemTray with NumLock Icon: Windows 11 Guide</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/wacky-warriors-tiktoks-most-ingenious-gaming-experienences/"><u>Wacky Warriors TikTok's Most Ingenious Gaming Experienences</u></a></li>
 </ul></div>
 
