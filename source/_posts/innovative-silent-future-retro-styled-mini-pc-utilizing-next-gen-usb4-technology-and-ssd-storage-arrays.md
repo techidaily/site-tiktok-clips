@@ -1,7 +1,7 @@
 ---
 title: Innovative, Silent 'Future Retro'-Styled Mini PC Utilizing Next-Gen USB4 Technology & SSD Storage Arrays
-date: 2024-12-04T20:12:44.881Z
-updated: 2024-12-09T21:19:07.291Z
+date: 2024-12-08T22:17:05.771Z
+updated: 2024-12-15T18:39:32.046Z
 tags:
   - desktop
 categories:
@@ -32,7 +32,7 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
  The Turbo Mini X is loaded with ports, including a 10 Gbps USB-C port that can output 45 watts for charging, a 20 Gbps USB-C port and 5 USB Type-A ports. But what's most interesting is a proprietary port that connects to the Mini Maker StreamPlay X External Graphics Box, which is sold separately. The port uses USB-C, but according to Mini Maker, it enables a direct PCIe connection which is faster than what you get when using Thunderbolt 4 to connect a laptop to an after-market eGPU like the Razer Core X.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -50,7 +50,7 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
 ![Mini Maker StreamPlay X Cable](https://cdn.mos.cms.futurecdn.net/7PWKa2qagFoGCQJ7GH9t5H-320-80.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  (Image credit: Tom's Hardware)
@@ -62,7 +62,7 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
 ![Mini Maker StreamPlay X](https://cdn.mos.cms.futurecdn.net/bofwgvfDKpeYqVAheTShC9-320-80.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  (Image credit: Tom's Hardware)
@@ -88,20 +88,22 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-elite-meme-conceptualization-tools/"><u>[New] 2024 Approved Elite Meme Conceptualization Tools</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-from-page-to-screen-jujutsu-kaisen-on-tiktok/"><u>[New] From Page to Screen Jujutsu Kaisen on TikTok</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-cinematographic-savoir-faire-food-videographers-essentials/"><u>[New] In 2024, Cinematographic Savoir-Faire Food Videographer's Essentials</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-restoring-your-tiktok-profile-visibility/"><u>[New] In 2024, Restoring Your TikTok Profile Visibility</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-the-seamless-swivel-rotating-your-media-masterpieces-on-social-sites/"><u>[New] In 2024, The Seamless Swivel Rotating Your Media Masterpieces on Social Sites</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-mastering-the-social-media-game-the-best-30-nicknames-for-tiktok/"><u>[New] Mastering the Social Media Game The Best 30 Nicknames for TikTok</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-seamless-computer-based-tiktok-live-broadcast-setup/"><u>[Updated] In 2024, Seamless Computer-Based TikTok LIVE Broadcast Setup</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-immersive-vr-bicycle-journeys-to-try/"><u>2024 Approved Immersive VR Bicycle Journeys to Try</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/bi-language-proficiencys-pros-6-benefits-explored/"><u>Bi-Language Proficiency's Pros: #6 Benefits Explored</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/building-a-business-on-snapchat-a-beginners-blueprint/"><u>Building a Business on Snapchat A Beginner's Blueprint</u></a></li>
-<li><a href="https://blog-min.techidaily.com/drm-free-conversion-methods-for-ebook-pages-up-to-chapter-16/"><u>DRM-Free Conversion Methods for EBook Pages Up to Chapter 16</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-unlock-samsung-galaxy-a14-5g-phone-without-password-by-drfone-android/"><u>How To Unlock Samsung Galaxy A14 5G Phone Without Password?</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-hidefake-snapchat-location-on-your-honor-magic-v2-drfone-by-drfone-virtual-android/"><u>In 2024, How to Hide/Fake Snapchat Location on Your Honor Magic V2 | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-the-best-android-sim-unlock-code-generators-unlock-your-samsung-galaxy-s23-ultra-phone-hassle-free-by-drfone-android/"><u>In 2024, The Best Android SIM Unlock Code Generators Unlock Your Samsung Galaxy S23 Ultra Phone Hassle-Free</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/step-by-step-tutorial-on-adding-captions-to-tiktok-videos/"><u>Step-by-Step Tutorial on Adding Captions to TikTok Videos</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-conquer-joining-on-tiktok-with-confidence-and-flair/"><u>[New] 2024 Approved Conquer Joining on TikTok with Confidence and Flair</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-essential-guides-to-the-top-10-student-focused-history-vlogs/"><u>[New] 2024 Approved Essential Guides to the Top 10 Student-Focused History Vlogs</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-insta-magic-rotation-elevate-your-video-game/"><u>[New] Insta-Magic Rotation Elevate Your Video Game</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-examining-social-media-comment-standouts/"><u>[Updated] 2024 Approved Examining Social Media Comment Standouts</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-insider-wisdom-how-to-effortlessly-upload-photosvideos-in-win11/"><u>[Updated] 2024 Approved Insider Wisdom How to Effortlessly Upload Photos/Videos in Win11</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-ultimate-vr-selection-top-8-must-have-titles/"><u>[Updated] 2024 Approved Ultimate VR Selection Top 8 Must-Have Titles</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-top-7-cost-free-tiktok-edits-for-mac-users-for-2024/"><u>[Updated] Top 7 Cost-Free TikTok Edits for Mac Users for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-a-bite-into-tiktoks-most-engaging-dishes/"><u>2024 Approved A Bite Into TikTok's Most Engaging Dishes</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-crossing-into-a-shared-tiktok-space-easy-ways/"><u>2024 Approved Crossing Into a Shared TikTok Space Easy Ways</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-game-on-and-store-more-top-5-ssd-reviews-for-xbox/"><u>2024 Approved Game On & Store More Top 5 SSD Reviews for Xbox</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-seamless-conversion-of-tiktok-to-professional-quality-mp4/"><u>2024 Approved Seamless Conversion of TikTok to Professional Quality MP4</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/crafting-a-distinctive-tiktok-stream-hashcode/"><u>Crafting a Distinctive TikTok Stream Hashcode</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/creating-impressive-slideshows-with-video-delays-in-snapchat/"><u>Creating Impressive Slideshows with Video Delays in Snapchat</u></a></li>
+<li><a href="https://win-dash.techidaily.com/how-to-secure-newest-updates-and-downloads-of-the-hp-laserjet-pro-m404n-printer-driver/"><u>How to Secure Newest Updates & Downloads of the HP LaserJet Pro M404n Printer Driver</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/navigating-like-a-pro-tips-for-macwindows-tiktok-users/"><u>Navigating Like a Pro Tips for Mac/Windows TikTok Users</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/playstation-portable-pre-release-guide-insights-into-release-timeline-price-range-tech-details-and-buying-options/"><u>PlayStation Portable Pre-Release Guide: Insights Into Release Timeline, Price Range, Tech Details & Buying Options</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/the-gamers-guide-to-easily-correcting-a-steam-disk-corruption-problem/"><u>The Gamer’s Guide to Easily Correcting a Steam Disk Corruption Problem</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Carry Unprecedented Storage Power Anywhere: Discover the Briefcase Housing 368TB of NVMe SSDs and Advanced Tech Specs"
-date: 2024-12-06T06:52:44.524Z
-updated: 2024-12-09T22:54:24.115Z
+date: 2024-12-11T06:49:44.255Z
+updated: 2024-12-15T20:41:32.680Z
 tags:
   - desktop
 categories:
@@ -48,7 +48,7 @@ Ordinary canned air products shoot out jets of gas with a surprising amount of v
  In tests, the canned air soon ran out of pressure between bursts, but more consistent shock diamonds were pictured from the nozzle of an air compressor (90 PSI). However, the YouTuber's favorite demo was delivered using the ball pump nozzle on the air compressor hose. Have a look through the gallery above for some of the great shock diamonds emitted from the canned air and various nozzles attached to a shop compressor.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -74,18 +74,18 @@ Ordinary canned air products shoot out jets of gas with a surprising amount of v
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-how-to-un-reload-your-loved-tiktok-videos/"><u>[New] 2024 Approved How to Un-Reload Your Loved TikTok Videos</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-from-observer-to-participant-tips-for-guesting-on-tiktoks-for-2024/"><u>[New] From Observer to Participant Tips for Guesting on TikToks for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-create-professional-movies-on-youtube-quickly/"><u>[Updated] In 2024, Create Professional Movies on YouTube Quickly</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-unveiling-the-secrets-of-effective-video-captioning-for-tiktoks/"><u>[Updated] In 2024, Unveiling the Secrets of Effective Video Captioning for TikToks</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/how-to-blur-the-video-background-or-some-parts-of-the-video-you-can-know-how-to-blur-videos-with-some-free-online-tools-in-this-article/"><u>How to Blur the Video Background or some Parts of the Video? You Can Know How to Blur Videos with some Free Online Tools in This Article</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-cast-samsung-galaxy-f15-5g-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>How to Cast Samsung Galaxy F15 5G to Computer for iPhone and Android? | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-watch-avchd-mts-video-on-moto-g34-5g-by-aiseesoft-video-converter-play-mts-on-android/"><u>How to watch AVCHD MTS video on Moto G34 5G?</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/in-2024-epic-tiktok-success-the-virality-formula/"><u>In 2024, Epic TikTok Success The Virality Formula</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/in-2024-permanent-tiktok-account-elimination-guide/"><u>In 2024, Permanent TikTok Account Elimination Guide</u></a></li>
-<li><a href="https://extra-information.techidaily.com/selecting-superior-free-srt-translation-apps-today/"><u>Selecting Superior Free SRT Translation Apps Today</u></a></li>
-<li><a href="https://solve-lab.techidaily.com/top-applications-to-accelerate-your-computer-performance-insights-by-yl-computing/"><u>Top Applications to Accelerate Your Computer Performance: Insights by YL Computing</u></a></li>
-<li><a href="https://extra-information.techidaily.com/top-iosandroid-apps-for-creative-photo-captions/"><u>Top iOS/Android Apps for Creative Photo Captions</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/upload-wisdom-tiktok-video-rights-and-compliance-guide/"><u>Upload Wisdom TikTok Video Rights & Compliance Guide</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-bypassing-tiktoks-watermarking-for-iphones-how-to-guide/"><u>[New] 2024 Approved Bypassing TikTok's Watermarking for iPhones – How-To Guide</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-cut-mark-clutter-quickly-tiktok-overlay-remover-for-2024/"><u>[New] Cut Mark Clutter Quickly TikTok Overlay Remover for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-expert-tips-mastering-the-skip-button-on-tiktok/"><u>[New] In 2024, Expert Tips Mastering the Skip Button on TikTok</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-top-10-favorites-spotify-edition-for-2024/"><u>[New] Top 10 Favorites Spotify Edition for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-unlock-the-potential-of-your-tiktok-videos-with-new-backgrounds/"><u>[New] Unlock the Potential of Your TikTok Videos with New Backgrounds</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-elevating-your-macs-tiktok-opener-quality-for-2024/"><u>[Updated] Elevating Your Mac's TikTok Opener Quality for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-unlocking-financial-gains-with-these-8-tiktok-tricks/"><u>[Updated] In 2024, Unlocking Financial Gains with These 8 TikTok Tricks</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-visual-storytelling-hack-crafting-youtube-thumbnails-on-mobiles/"><u>[Updated] Visual Storytelling Hack Crafting YouTube Thumbnails on Mobiles</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-to-bypass-rog-phone-7-s-lock-screen-pattern-pin-or-password-by-drfone-android-unlock-android-unlock/"><u>How to bypass ROG Phone 7’s lock screen pattern, PIN or password</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/step-by-step-guide-organizing-your-workspace-with-multi-monitor-setup-in-windows-10/"><u>Step-by-Step Guide: Organizing Your Workspace with Multi-Monitor Setup in Windows 10</u></a></li>
+<li><a href="https://solve-lab.techidaily.com/trasforma-i-tuoi-video-3gp-in-mp3-senza-costi-utilizzando-il-servizio-di-movavi/"><u>Trasforma I Tuoi Video 3GP in MP3 Senza Costi Utilizzando Il Servizio Di Movavi</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-in-2024-master-your-tunes-the-best-iphone-and-android-applications-for-music-arrangement/"><u>Updated In 2024, Master Your Tunes The Best iPhone & Android Applications for Music Arrangement</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/why-the-iphone-14-still-wins-over-the-iphone-16-pro-insights-from-a-tech-expert/"><u>Why the iPhone 14 Still Wins Over the iPhone 16 Pro - Insights From a Tech Expert</u></a></li>
 </ul></div>
 

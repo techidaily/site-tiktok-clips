@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Speedy TikTok Video Performance  A Step-by-Step Plan\""
-date: 2024-12-05T07:56:17.280Z
-updated: 2024-12-10T07:46:16.283Z
+date: 2024-12-14T13:19:16.641Z
+updated: 2024-12-16T06:21:48.480Z
 tags:
   - ai video
   - ai tiktok
@@ -34,7 +34,7 @@ Whether uploading or recording, you can easily speed up TikTok videos on your an
 05 [How to Make a Speed up Video for TikTok](#part5)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: How to Speed up a Video on TikTok While Recording? (Using Android Phone)
@@ -47,11 +47,11 @@ Step 2: To speed up a video on TikTok while recording, choose either the 2X or 3
 
 ![record tiktok video speed up](https://images.wondershare.com/filmora/article-images/record-tiktok-video-speed-up.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step 3: Click the red button at the bottom center of the screen to start recording your video at a faster speed. Add any other video effect you desire and post the video.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: How to Speed Up a Video on TikTok While Uploading
 
@@ -78,6 +78,10 @@ Step 1: Open the TikTok app on your iPhone and Android phone, and then switch to
 Step 2: Press and hold the video for about 2 seconds, and then you will see some options such as Favorite, Not Interested, Duet, and Speed.
 
 Step 3: Click the speed icon, and then select 1.5X or 2X to speed up the video when watching.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Method 2: Speed Up TikTok Video Playback on Computer
 
@@ -158,7 +162,7 @@ Step 3: Click on the **Upload** button located to the bottom right-hand side of 
 ![speed up tiktok video uploading](https://images.wondershare.com/filmora/article-images/speed-up-tiktok-video-uploading.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step 4: Tap on the red arrow pointing to the right at the bottom right, describe your video, and click **Post**.
@@ -174,6 +178,10 @@ Step 1: Open the TikTok app on your iPhone and Android phone, and then switch to
 Step 2: Press and hold the video for about 2 seconds, and then you will see some options such as Favorite, Not Interested, Duet, and Speed.
 
 Step 3: Click the speed icon, and then select 1.5X or 2X to speed up the video when watching.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Method 2: Speed Up TikTok Video Playback on Computer
 
@@ -195,10 +203,6 @@ You can now watch your TikTok video at a faster playback speed.
 
 The most convenient way to speed up any TikTok video online is by using [online video speed changers](https://tools.techidaily.com/wondershare/filmora/download/).
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 2\. Kapwing
 
 Kapwing is one of them and it is a free trial online video editing tool that besides speeding up TikTok video online can be used to add effects and share your videos to any social media platform.
@@ -211,10 +215,6 @@ This is how to speed up any TikTok video online using Kapwing:
 
 ![copy tiktok video link](https://images.wondershare.com/filmora/article-images/copy-tiktok-video-link.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 3:** Paste your TikTok video link in the **Paste a URL** box.
 
 **Step 4:** To the left-hand side of the Kapwing are some of the video editing features. The speed feature allows one to speed up videos up to 4 times the normal speed. The speed levels include: **1.15X, 1.25X, 1.5X, 1.75X, 2 and 4X.**
@@ -222,7 +222,7 @@ This is how to speed up any TikTok video online using Kapwing:
 ![change video speed online kapwing](https://images.wondershare.com/filmora/article-images/change-video-speed-online-kapwing.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 5:** Tap the Export Video button highlighted in green color, and then click on the **Download** button or the TikTok icon to share your TikTok video.
@@ -295,6 +295,10 @@ Step 4: Click on the three vertical buttons located at the bottom right and sele
 
 You can now watch your TikTok video at a faster playback speed.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 4: How to Speed Up Any TikTok Video Online
 
 The most convenient way to speed up any TikTok video online is by using [online video speed changers](https://tools.techidaily.com/wondershare/filmora/download/).
@@ -343,6 +347,10 @@ Step 2: To speed up a video on TikTok while recording, choose either the 2X or 3
 
 ![record tiktok video speed up](https://images.wondershare.com/filmora/article-images/record-tiktok-video-speed-up.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step 3: Click the red button at the bottom center of the screen to start recording your video at a faster speed. Add any other video effect you desire and post the video.
 
 ## Part 2: How to Speed Up a Video on TikTok While Uploading
@@ -356,6 +364,10 @@ Step 2: Choose any of the high-speed options (2X and 3X) by tapping on the numbe
 Step 3: Click on the **Upload** button located to the bottom right-hand side of the screen. A new page with **Videos** and **Photos** will pop up. Select the video you want to speed up on TikTok while uploading from the gallery.
 
 ![speed up tiktok video uploading](https://images.wondershare.com/filmora/article-images/speed-up-tiktok-video-uploading.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step 4: Tap on the red arrow pointing to the right at the bottom right, describe your video, and click **Post**.
 
@@ -381,27 +393,15 @@ Step 3: Using the right button on your mouse, right-click on the video and choos
 
 ![tiktok on computer show all controls](https://images.wondershare.com/filmora/article-images/tiktok-on-computer-show-all-controls.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step 4: Click on the three vertical buttons located at the bottom right and select Playback speed. If you're operating on Windows 11, the speed options that will speed up your playback speed are **1.25X, 1.5** **X, 1.75X, and 2** **X.**
 
 ![speed up tiktok video playback on computer](https://images.wondershare.com/filmora/article-images/speed-up-tiktok-video-playback-on-computer.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 You can now watch your TikTok video at a faster playback speed.
 
 ## Part 4: How to Speed Up Any TikTok Video Online
 
 The most convenient way to speed up any TikTok video online is by using [online video speed changers](https://tools.techidaily.com/wondershare/filmora/download/).
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\. Kapwing
 
@@ -414,6 +414,10 @@ This is how to speed up any TikTok video online using Kapwing:
 **Step 2:** Copy the video link displayed on the right side of the pc screen.
 
 ![copy tiktok video link](https://images.wondershare.com/filmora/article-images/copy-tiktok-video-link.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 3:** Paste your TikTok video link in the **Paste a URL** box.
 
@@ -440,10 +444,6 @@ The most effective trick to compress your 3-minute video to 60 seconds is to spe
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Master Everyday Filming Techniques: A Comprehensive TikTok Guide
 
@@ -457,24 +457,24 @@ And, we'll also look at how to do a voiceover on TikTok using the step-by-step g
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-exclusive-guide-to-outstanding-sandbox-games/"><u>[New] 2024 Approved Exclusive Guide to Outstanding Sandbox Games</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-chuckle-cluster-a-curated-collection-of-funny-tiktok-jokes-and-riddles-for-2024/"><u>[New] Chuckle Cluster A Curated Collection of Funny TikTok Jokes and Riddles for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-effortless-tiktok-video-enhancement-replace-backdrop-techniques/"><u>[New] Effortless TikTok Video Enhancement Replace Backdrop Techniques</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-unmask-tiktok-on-devices-best-watermark-apps-for-iphone-and-android/"><u>[New] In 2024, Unmask TikTok on Devices Best Watermark Apps for iPhone & Android</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-understanding-and-uphold-points-in-tiktok-copyright-law/"><u>[New] Understanding and Uphold Points in TikTok Copyright Law</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-freely-collect-tiktok-masterpieces-no-marks-included/"><u>[Updated] 2024 Approved Freely Collect TikTok Masterpieces - No Marks Included</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-finding-the-central-node-of-youtube-video-management/"><u>[Updated] Finding the Central Node of YouTube Video Management</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-short-form-video-rivals-can-likes-overtake-tiktoks-global-fanbase/"><u>[Updated] In 2024, Short-Form Video Rivals Can Likes Overtake TikTok’s Global Fanbase?</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-the-clones-playbook-secrets-to-mirror-success-on-the-tiktok-sphere/"><u>[Updated] The Clone's Playbook Secrets to Mirror Success on the TikTok Sphere</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-legal-harmonies-unpacking-music-policy-on-instagram/"><u>2024 Approved Legal Harmonies Unpacking Music Policy on Instagram</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-pinnacle-virtual-lecture-identifier/"><u>2024 Approved Pinnacle Virtual Lecture Identifier</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/energy-efficiency-improvements-across-various-sectors-industry-transportation-buildings-lower-overall-energy-consumption-and-associated-emissions/"><u>Energy Efficiency Improvements Across Various Sectors (Industry, Transportation, Buildings) Lower Overall Energy Consumption and Associated Emissions.</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/expert-tips-for-snapchats-magic-invisible-hands-make-the-picture-pop/"><u>Expert Tips for Snapchat's Magic Invisible Hands Make the Picture Pop</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-constructing-the-ideal-home-computer-for-advanced-video-editing/"><u>In 2024, Constructing the Ideal Home Computer for Advanced Video Editing</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-lut-techniques-for-enhanced-ae-visuals/"><u>In 2024, LUT Techniques for Enhanced AE Visuals</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/in-2024-secure-your-content-copyright-checks-before-tiktok-sharing/"><u>In 2024, Secure Your Content Copyright Checks Before TikTok Sharing</u></a></li>
-<li><a href="https://voice-adjusting.techidaily.com/in-2024-transform-your-auditory-perception-with-internet-based-audio-modification-tools/"><u>In 2024, Transform Your Auditory Perception with Internet-Based Audio Modification Tools</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/mastering-android-device-manager-the-ultimate-guide-to-unlocking-your-samsung-galaxy-m34-5g-device-by-drfone-android/"><u>Mastering Android Device Manager The Ultimate Guide to Unlocking Your Samsung Galaxy M34 5G Device</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/unveiling-the-big-6-in-ai-your-comprehchek-of-premium-language-systems/"><u>Unveiling The Big 6 in AI: Your Comprehchek of Premium Language Systems</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-guide-to-discovering-your-unique-tiktok-tag/"><u>[New] In 2024, Guide to Discovering Your Unique TikTok Tag</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-the-ultimate-immersion-guide-to-lgs-360-vr-headset/"><u>[New] In 2024, The Ultimate Immersion Guide to LG's 360 VR Headset</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-real-time-music-videos-on-douyin-for-2024/"><u>[New] Real-Time Music Videos on Douyin for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-tiktok-livestream-immersion-your-playbook-for-2024/"><u>[New] TikTok Livestream Immersion Your Playbook for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-eating-the-trend-top-food-moments-on-tiktok/"><u>[Updated] 2024 Approved Eating the Trend Top Food Moments on TikTok</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-enhanced-clarity-clear-background-in-cam-recordings-for-2024/"><u>[Updated] Enhanced Clarity Clear Background in Cam Recordings for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-essential-guide-to-top-16-free-video-enthusiasts-for-2024/"><u>[Updated] Essential Guide to Top 16 Free Video Enthusiasts for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-essential-apps-for-cleaning-tiktok-video-logos/"><u>[Updated] In 2024, Essential Apps for Cleaning TikTok Video Logos</u></a></li>
+<li><a href="https://some-tips.techidaily.com/2024-approved-thrilling-twists-and-turns-short-track-22/"><u>2024 Approved Thrilling Twists & Turns - Short Track '22</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/earn-big-on-snapchat-the-ultimate-guide-to-money-making-tips/"><u>Earn Big on Snapchat The Ultimate Guide to Money-Making Tips</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/embracing-whimsy-cartoon-face-magic-in-snapchat/"><u>Embracing Whimsy Cartoon Face Magic in Snapchat</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/fix-your-new-era-audio-issues-with-these-simple-steps/"><u>Fix Your New Era Audio Issues with These Simple Steps</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/flavorful-journeys-on-tiktoks-culinary-map-for-2024/"><u>Flavorful Journeys on TikTok's Culinary Map for 2024</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-best-free-video-editors-for-webm-files-2023-edition/"><u>In 2024, Best Free Video Editors for WebM Files 2023 Edition</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-boost-your-farming-skills-with-stardews-top-7-mods/"><u>In 2024, Boost Your Farming Skills with Stardew's Top 7 Mods</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-spotify-location-after-moving-to-another-country-on-nokia-c12-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Spotify Location After Moving to Another Country On Nokia C12 Pro | Dr.fone</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/secrets-of-seamlessly-sharing-in-tiktok-livestreams-for-2024/"><u>Secrets of Seamlessly Sharing in TikTok Livestreams for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/secrets-of-stealth-browsing-disappear-online-with-chrome-edge-firefox-safari-opera-techniques/"><u>Secrets of Stealth Browsing: Disappear Online with Chrome, Edge, Firefox, Safari, Opera Techniques</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/the-ultimate-review-of-the-elegant-and-clever-samsung-un65ru8000fxza-televisor/"><u>The Ultimate Review of the Elegant & Clever Samsung UN65RU8000FXZA Televisor</u></a></li>
 </ul></div>
 

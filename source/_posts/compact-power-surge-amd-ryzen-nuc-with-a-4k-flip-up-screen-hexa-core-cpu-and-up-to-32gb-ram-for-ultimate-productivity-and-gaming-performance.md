@@ -1,7 +1,7 @@
 ---
 title: "Compact Power Surge: AMD Ryzen NUC with a 4K Flip-Up Screen, Hexa-Core CPU & Up To 32GB RAM for Ultimate Productivity and Gaming Performance"
-date: 2024-12-06T21:11:13.920Z
-updated: 2024-12-09T21:38:56.431Z
+date: 2024-12-11T13:54:39.224Z
+updated: 2024-12-16T12:36:24.707Z
 tags:
   - desktop
 categories:
@@ -46,7 +46,7 @@ The Xyber Team launched its Xyber XPC Mini Desktop Computer campaign on[Indiegog
  We don’t have pricing information yet about the Xyber XPC, though, as it’s still in the campaign pre-launch stage. But the team behind the mini-PC Cybertruck says that they’re optimizing the BIOS and OS to get the best performance out of this small desktop computer.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -74,15 +74,24 @@ The Xyber Team launched its Xyber XPC Mini Desktop Computer campaign on[Indiegog
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-navigating-tiktok-lives-as-a-virtual-attendee/"><u>[New] In 2024, Navigating TikTok Lives as a Virtual Attendee</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-innovating-your-ultimate-tiktok-seal-for-2024/"><u>[New] Innovating Your Ultimate TikTok Seal for 2024</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-compare-and-contrast-best-software-for-screen-grabs-obsfraps/"><u>[Updated] 2024 Approved Compare and Contrast Best Software for Screen Grabs (OBS/Fraps)</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-trailblazing-tiktok-profile-features-to-become-iconic/"><u>[Updated] Trailblazing TikTok Profile Features to Become Iconic</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/in-2024-3dlut-mobility-boost-image-and-video-quality/"><u>In 2024, 3DLUT Mobility Boost Image & Video Quality</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-5-easy-ways-to-copy-contacts-from-samsung-galaxy-m14-4g-to-iphone-14-and-15-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Easy Ways to Copy Contacts from Samsung Galaxy M14 4G to iPhone 14 and 15 | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/in-2024-repair-inaccessible-facebook-playback-icon/"><u>In 2024, Repair Inaccessible Facebook Playback Icon</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-top-10-text-boosting-techniques-in-videos/"><u>In 2024, Top 10 Text Boosting Techniques in Videos</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/mastering-live-stream-entry-tiktok-edition-for-2024/"><u>Mastering Live-Stream Entry TikTok Edition for 2024</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/where-is-the-best-place-to-catch-dratini-on-infinix-note-30-vip-racing-edition-drfone-by-drfone-virtual-android/"><u>Where Is the Best Place to Catch Dratini On Infinix Note 30 VIP Racing Edition | Dr.fone</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-exploring-jujutsu-kaisen-through-creative-tiktok-content-for-2024/"><u>[New] Exploring Jujutsu Kaisen Through Creative TikTok Content for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-2023s-top-no-cost-fb-photo-and-video-crafting/"><u>[New] In 2024, 2023'S Top No-Cost FB Photo & Video Crafting</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-harnessing-instagrams-potential-with-video-posts/"><u>[New] In 2024, Harnessing Instagram's Potential with Video Posts</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-vocal-choirs-on-tiktoks-digital-stage/"><u>[New] In 2024, Vocal Choirs on TikTok's Digital Stage</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-the-complete-guide-to-mastering-slow-time-on-tiktok-for-2024/"><u>[New] The Complete Guide to Mastering Slow Time on TikTok for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-top-8-tools-for-efficiently-planning-instagram-content/"><u>[New] Top 8 Tools for Efficiently Planning Instagram Content</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-transform-your-video-footage-with-advanced-screen-recording-tech-for-2024/"><u>[New] Transform Your Video Footage with Advanced Screen Recording Tech for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-unveiling-tiktoks-secrets-a-guide-for-macpc-owners-for-2024/"><u>[New] Unveiling TikTok's Secrets A Guide for Mac/PC Owners for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-how-to-lock-in-your-favorite-tiktok-moments-smartly/"><u>[Updated] 2024 Approved How to Lock in Your Favorite TikTok Moments - Smartly</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-understanding-and-uphold-points-in-tiktok-copyright-law/"><u>[Updated] 2024 Approved Understanding and Uphold Points in TikTok Copyright Law</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/from-snaps-to-savings-on-snapchat/"><u>From Snaps to Savings on Snapchat</u></a></li>
+<li><a href="https://program-issues.techidaily.com/guide-to-correcting-network-packet-loss-issues-in-discord-chat-platforms/"><u>Guide to Correcting Network Packet Loss Issues in Discord Chat Platforms</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-do-i-stop-someone-from-tracking-my-infinix-smart-8-hd-drfone-by-drfone-virtual-android/"><u>In 2024, How Do I Stop Someone From Tracking My Infinix Smart 8 HD? | Dr.fone</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/keep-your-content-safe-guidelines-for-clearance-of-tiktok-videos-for-2024/"><u>Keep Your Content Safe Guidelines for Clearance of TikTok Videos for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/modern-solutions-for-non-working-rust-mics-a-step-by-step-2024-manual/"><u>Modern Solutions for Non-Working Rust Mics: A Step-by-Step 2024 Manual</u></a></li>
+<li><a href="https://ai-video-translation.techidaily.com/new-how-to-make-lip-sync-video-without-installing-any-app/"><u>New How to Make Lip Sync Video Without Installing Any App</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-s-top-rated-ipad-video-editors-a-comprehensive-guide-for-2024/"><u>New S Top-Rated iPad Video Editors A Comprehensive Guide for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/speedy-video-scrolling-on-tiktok-uncovered/"><u>Speedy Video Scrolling on TikTok Uncovered</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/watch-all-the-star-trek-movies-in-correct-order-your-complete-roadmap/"><u>Watch All the Star Trek Movies in Correct Order - Your Complete Roadmap</u></a></li>
 </ul></div>
 

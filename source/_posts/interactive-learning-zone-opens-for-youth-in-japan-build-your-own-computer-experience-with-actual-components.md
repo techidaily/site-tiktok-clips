@@ -1,7 +1,7 @@
 ---
 title: Interactive Learning Zone Opens for Youth in Japan - 'Build Your Own Computer' Experience with Actual Components
-date: 2024-12-07T04:44:20.777Z
-updated: 2024-12-10T05:28:17.003Z
+date: 2024-12-12T23:51:24.788Z
+updated: 2024-12-15T21:27:09.423Z
 tags:
   - desktop
 categories:
@@ -50,7 +50,7 @@ One-Netbook, the team behind the OneXPlayer handheld console and the OneXGPU GPU
  Pre-orders for a 32 GB RAM / 1 TB SSD OneXPlayer M1 are already in Japan at JPY142,310 (or around $900). But if you bundle it with the OneXGPU, you get a 10% discount on the eGPU. So, if you’re looking for a small PC you can quickly move around but don’t sacrifice performance and graphical power, you should watch out for the OneXPlayer M1 mini-PC.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -76,17 +76,24 @@ One-Netbook, the team behind the OneXPlayer handheld console and the OneXGPU GPU
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/omprehensive-list-of-top-9-free-video-channel-branding-aids-for-2024/"><u>[New] Comprehensive List of Top 9 Free Video Channel Branding Aids for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-innovating-your-ultimate-tiktok-seal/"><u>[New] Innovating Your Ultimate TikTok Seal</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-2024-approved-gradual-amplitude-reduction-guide/"><u>[Updated] 2024 Approved Gradual Amplitude Reduction Guide</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-meme-magic-sending-laughs-across-fb-and-insta-with-video-content/"><u>[Updated] 2024 Approved Meme Magic Sending Laughs Across FB & Insta with Video Content</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-crafting-the-perfect-anime-story-best-ideas-for-viral-videos/"><u>[Updated] Crafting the Perfect Anime Story Best Ideas for Viral Videos</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-drone-trailblazers-the-most-attentive-models/"><u>[Updated] In 2024, Drone Trailblazers The Most Attentive Models</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-proactive-copyright-verification-for-your-tiktok-videos/"><u>[Updated] In 2024, Proactive Copyright Verification for Your TikTok Videos</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-secure-paths-for-boosting-tiktok-profile-visibility-for-2024/"><u>[Updated] Secure Paths for Boosting TikTok Profile Visibility for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/crafting-compelling-storylines-with-top-20-anime-influences-on-tiktok/"><u>Crafting Compelling Storylines with Top 20 Anime Influences on TikTok</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/elevate-your-videogame-experience-record-on-steam-for-2024/"><u>Elevate Your Videogame Experience - Record on Steam for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/streamline-your-media-files-8-pro-convertors-sub-to-srt-style/"><u>Streamline Your Media Files 8 Pro Convertors, Sub to Srt Style</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/top-picks-best-ssd-and-hdd-offers/"><u>Top Picks: Best SSD & HDD Offers</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-achieving-massive-props-in-tiktok-videos/"><u>[New] Achieving Massive Props in TikTok Videos</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-get-save-and-enjoy-discover-these-6-excellent-linkedin-downloader-tools-for-2024/"><u>[New] Get, Save, and Enjoy Discover These 6 Excellent LinkedIn Downloader Tools for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-avoiding-common-mistakes-how-to-go-live-on-tiktok-from-pc/"><u>[New] In 2024, Avoiding Common Mistakes – How to Go Live On TikTok From PC</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-ensuring-compliance-a-guide-to-pre-upload-on-tiktok/"><u>[New] In 2024, Ensuring Compliance A Guide to Pre-Upload on TikTok</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-speeding-up-tiktok-videos-made-simple-for-2024/"><u>[New] Speeding Up TikTok Videos Made Simple for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-exploring-leading-tiktok-gif-conversion-apps-today/"><u>[Updated] 2024 Approved Exploring Leading TikTok GIF Conversion Apps Today</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-generating-a-signature-tiktok-keyphrase/"><u>[Updated] 2024 Approved Generating a Signature TikTok Keyphrase</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-unveil-the-secrets-of-exceptional-tiktok-intro-videos-mac/"><u>[Updated] 2024 Approved Unveil the Secrets of Exceptional TikTok Intro Videos (Mac)</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-amp-up-your-tiktok-profile-with-distinctive-pfp-concepts/"><u>[Updated] In 2024, Amp up Your TikTok Profile with Distinctive PFP Concepts</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-integrating-cognitive-science-into-organizational-leadership-practices/"><u>[Updated] Integrating Cognitive Science Into Organizational Leadership Practices</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-pinnacle-programs-for-peak-webcam-video-quality-for-2024/"><u>[Updated] Pinnacle Programs for Peak Webcam Video Quality for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-playlands-picks-top-10-no-cost-online-roleplayers-for-2024/"><u>[Updated] Playland's Picks Top 10 No-Cost Online Roleplayers for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-inverting-photo-colors-with-advanced-tools/"><u>2024 Approved Inverting Photo Colors with Advanced Tools</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-maximize-tiktok-impact-unique-usernames-that-attract-viewers/"><u>2024 Approved Maximize TikTok Impact Unique Usernames That Attract Viewers</u></a></li>
+<li><a href="https://techtrends.techidaily.com/convertis-gratuitement-un-fichier-mka-en-format-aac-avec-une-application-en-ligne-movavi/"><u>Convertis Gratuitement Un Fichier MKA en Format AAC Avec Une Application en Ligne - Movavi</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/engineering-unique-tiktok-outro-animations/"><u>Engineering Unique TikTok Outro Animations</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/experience-the-best-of-both-worlds-with-blueears-bluetooth-enabled-fashionable-beanie-hat-audiophile-approved/"><u>Experience the Best of Both Worlds with Blueear's Bluetooth-Enabled Fashionable Beanie Hat - Audiophile Approved!</u></a></li>
+<li><a href="https://win11.techidaily.com/fixing-system-files-on-windows-11-and-11-pro/"><u>Fixing System Files on Windows 11 and 11 Pro</u></a></li>
+<li><a href="https://article-tips.techidaily.com/heroblack-vs-yi-4k-updates-gopro-and-yi-showcase-their-best/"><u>HeroBlack Vs. Yi 4K Updates - GoPro and Yi Showcase Their Best</u></a></li>
 </ul></div>
 
