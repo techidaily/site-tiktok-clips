@@ -1,7 +1,7 @@
 ---
 title: "Experience Lightning-Fast Performance: DIY Kit Enables Direct PCIe Link Between Mini PC and eGPU Surpassing Thunderbolt Amo"
-date: 2024-12-13T17:35:04.931Z
-updated: 2024-12-16T04:27:33.168Z
+date: 2024-12-23T22:54:41.204Z
+updated: 2024-12-24T17:01:20.228Z
 tags:
   - desktop
 categories:
@@ -36,7 +36,7 @@ Over on Chinese videosharing platform Bilibili, user 苏打baka uploaded a lengt
  So, what happened? Did the static buildup short out the PC or something? Fortunately, nothing so mundane. Instead, the fan PC was tested at increasingly higher speeds until the[weighty cooler](https://www.tomshardware.com/news/noctua-fanless-cooler-enters-production) was violently flung from the PC in the last moments of the original video. No wonder Sodabaka hid behind a riot shield for much of the video demo.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -62,22 +62,18 @@ Over on Chinese videosharing platform Bilibili, user 苏打baka uploaded a lengt
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-from-fresh-footage-to-flashy-frames-best-gif-tools/"><u>[New] 2024 Approved From Fresh Footage to Flashy Frames Best GIF Tools</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-boosting-interactions-on-tiktok-top-30-creative-username-suggestions/"><u>[New] Boosting Interactions on TikTok - Top 30 Creative Username Suggestions</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-how-to-un-reload-your-loved-tiktok-videos/"><u>[New] How to Un-Reload Your Loved TikTok Videos</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-mastering-the-art-of-sound-in-tiktok-videos/"><u>[New] In 2024, Mastering the Art of Sound in TikTok Videos</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-discovering-innovation-in-tiktok-a-complete-backdrop-transformation-handbook-for-2024/"><u>[Updated] Discovering Innovation in TikTok A Complete Backdrop Transformation Handbook for 2024</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-streamlined-techniques-to-capture-webinars-efficiently-windows-mac/"><u>[Updated] Streamlined Techniques to Capture Webinars Efficiently (Windows, Mac)</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-what-does-pfp-mean-in-tiktok/"><u>[Updated] What Does PFP Mean in TikTok?</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-youtube-gurus-summit-expedition/"><u>[Updated] YouTube Gurus Summit Expedition</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/7-ways-to-lock-apps-on-iphone-xs-and-ipad-securely-drfone-by-drfone-ios/"><u>7 Ways to Lock Apps on iPhone XS and iPad Securely | Dr.fone</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/artistry-vs-algorithm-the-openai-and-meta-lawsuit-led-by-silverman/"><u>Artistry Vs. Algorithm: The OpenAI & Meta Lawsuit Led by Silverman</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/fusion-feats-mixing-genres-in-the-worlds-most-engaging-tiktoks-for-2024/"><u>Fusion Feats Mixing Genres in the World's Most Engaging TikToks for 2024</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-change-google-play-location-on-xiaomi-redmi-k70e-drfone-by-drfone-virtual-android/"><u>How to Change Google Play Location On Xiaomi Redmi K70E | Dr.fone</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-essential-sd-cards-for-gopro-hero-78-cameras-our-picks/"><u>In 2024, Essential SD Cards for GoPro Hero 7/8 Cameras Our Picks</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-frp-on-samsung-galaxy-a15-4g-by-drfone-android/"><u>In 2024, How to Bypass FRP on Samsung Galaxy A15 4G?</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-migrate-android-data-from-motorola-moto-g13-to-new-android-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Migrate Android Data From Motorola Moto G13 to New Android Phone? | Dr.fone</u></a></li>
-<li><a href="https://program-issues.techidaily.com/ntdlldll-failures-corrected-a-guide-for-stabilizing-your-windows-11-or-windows-10/"><u>ntdll.dll Failures Corrected: A Guide for Stabilizing Your Windows 11 or Windows 10</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/snap-sharing-made-simple-camera-roll-to-social-now/"><u>Snap Sharing Made Simple Camera Roll to Social Now</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-choreographed-vocal-harmony-on-tiktok-for-2024/"><u>[New] Choreographed Vocal Harmony on TikTok for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-immerse-in-tiktok-entertainment-with-ease-and-grace/"><u>[New] Immerse in TikTok Entertainment with Ease and Grace</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-top-5-factors-to-master-when-using-tiktok-web-mac/"><u>[New] In 2024, Top 5 Factors to Master When Using TikTok Web (Mac)</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-choreographing-the-finale-for-your-tiktok-story/"><u>[Updated] In 2024, Choreographing the Finale for Your TikTok Story</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/8-youtube-marketing-apps-and-solutions/"><u>Best 8 YouTube Marketing Apps & Solutions</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/1721938799969-best-large-language-model-showdown-googles-bard-vs-microsofts-chatgpt-vs-solo-alpaca/"><u>Best Large Language Model Showdown: Google's Bard vs Microsoft's ChatGPT vs Solo Alpaca</u></a></li>
+<li><a href="https://solve-info.techidaily.com/boosting-robotic-automation-through-an-integrated-business-process-insight-platform/"><u>Boosting Robotic Automation Through an Integrated Business Process Insight Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-down-facebooks-subscription-tactics-that-overtake-apples-model/"><u>Breaking Down Facebook's Subscription Tactics That Overtake Apple’s Model</u></a></li>
+<li><a href="https://common-error.techidaily.com/fixing-windows-11-how-to-eliminate-persistent-keyboard-lag/"><u>Fixing Windows 11: How to Eliminate Persistent Keyboard Lag</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-unlocking-the-secrets-of-google-podcast-uploads/"><u>In 2024, Unlocking the Secrets of Google Podcast Uploads</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/lenovos-easy-pathway-to-screen-recording-for-2024/"><u>Lenovo's Easy Pathway to Screen Recording for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/safe-sharing-starts-here-the-copyright-check-for-tiktok-videos/"><u>Safe Sharing Starts Here The Copyright Check for TikTok Videos</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/secrets-to-joining-friends-tiktok-live-events/"><u>Secrets to Joining Friends' TikTok Live Events</u></a></li>
 </ul></div>
 

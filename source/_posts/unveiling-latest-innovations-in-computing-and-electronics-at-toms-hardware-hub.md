@@ -1,7 +1,7 @@
 ---
 title: Unveiling Latest Innovations in Computing & Electronics at Tom's Hardware Hub
-date: 2024-12-13T21:36:08.129Z
-updated: 2024-12-16T02:59:28.805Z
+date: 2024-12-20T16:45:21.928Z
+updated: 2024-12-25T01:06:44.419Z
 tags:
   - desktop
 categories:
@@ -14,7 +14,7 @@ thumbnail: https://cdn.mos.cms.futurecdn.net/LCbG8RwNDZHdVnhQuwPna5-320-80.jpg
 [Hewlett Packard](https://www.tomshardware.com/tag/hewlett-packard) [Enterprise](https://www.tomshardware.com/tag/enterprise) (HPE), one of the world's largest makers of servers, has initiated a legal battle against Inspur Group, China's largest server maker, and its affiliates, alleging server patent infringements. HPE accuses Inspur of engaging in deceptive practices and renaming its subsidiaries in the U.S. to continue its business with American companies despite being included into the Entity List.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## HPE: Inspur infringes our patents
@@ -28,7 +28,7 @@ thumbnail: https://cdn.mos.cms.futurecdn.net/LCbG8RwNDZHdVnhQuwPna5-320-80.jpg
  LATEST VIDEOS FROM tomshardware Tom's Hardware
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Despite being on the Entity List, Inspur continues operations in the U.S
@@ -38,7 +38,7 @@ thumbnail: https://cdn.mos.cms.futurecdn.net/LCbG8RwNDZHdVnhQuwPna5-320-80.jpg
  The complaint claims that Inspur that inspur continues its operations in the United States under Aivres Systems and Betapex. Inspur allegedly removed its branding from products sold in the U.S. and continues to sell them. For example, Inspur's IR5280M6 server is Aivres's 5280M6 machine, it has the same specification and design, according to HPE's complaint. Meanwhile, Inspur has also worked as a contract maker of servers, according to The Register. Yet, if a U.S. entity plans to work with Inspur (or any other party from the Entity List), it has to get a special license from the U.S. government.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -64,20 +64,19 @@ thumbnail: https://cdn.mos.cms.futurecdn.net/LCbG8RwNDZHdVnhQuwPna5-320-80.jpg
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-ancient-roguelike-tactics-vs-innovative-approaches/"><u>[New] 2024 Approved Ancient Roguelike Tactics Vs. Innovative Approaches</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-spin-the-wheels-developing-dances-on-your-macos/"><u>[New] In 2024, Spin the Wheels Developing Dances on Your MacOS</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-pinpointing-the-perfect-stream-tagline-for-you-on-tiktok-for-2024/"><u>[New] Pinpointing the Perfect Stream Tagline for You on TikTok for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-social-medias-food-scene-tiktoks-top-trends/"><u>[New] Social Media's Food Scene TikTok's Top Trends</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-spinning-jujutsu-kaisen-stories-on-tiktok/"><u>[New] Spinning Jujutsu Kaisen Stories on TikTok</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-jujutsu-kaisens-tiktok-a-creative-journey/"><u>[Updated] 2024 Approved Jujutsu Kaisen's TikTok A Creative Journey</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-leading-ios-emulators-virtual-ps2-world/"><u>[Updated] In 2024, Leading iOS Emulators Virtual PS2 World</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-srt-mastery-a-technological-deep-dive-for-media-professionals/"><u>[Updated] SRT Mastery A Technological Deep-Dive for Media Professionals</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-streamlining-your-video-creation-ootd-on-a-mac/"><u>[Updated] Streamlining Your Video Creation OOTD on a Mac</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/2024-approved-infuse-your-tiktok-with-popular-anime-themes-and-styles/"><u>2024 Approved Infuse Your TikTok with Popular Anime Themes & Styles</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-transfer-music-from-xiaomi-redmi-k70e-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways to Transfer Music from Xiaomi Redmi K70E to Other Android Devices Easily | Dr.fone</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-perfect-your-iphone-photo-craftsmanship-with-top-10-design-tips/"><u>In 2024, Perfect Your iPhone Photo Craftsmanship with Top 10 Design Tips</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-streamline-your-videos-with-these-titans/"><u>In 2024, Streamline Your Videos with These Titans</u></a></li>
-<li><a href="https://win11.techidaily.com/leading-painting-programs-beyond-the-procreate-window-experience/"><u>Leading Painting Programs Beyond the Procreate Window Experience</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/pluraleyes-the-best-plug-in-to-sync-audio-in-premiere-pro/"><u>PluralEyes The Best Plug in to Sync Audio in Premiere Pro</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-essential-tips-for-harnessing-tiktoks-creative-power/"><u>[New] 2024 Approved Essential Tips for Harnessing TikTok's Creative Power</u></a></li>
+<li><a href="https://program-issues.techidaily.com/sovled-necromunda-hired-gun-keeps-crashing-on-pc/"><u>[SOVLED] Necromunda: Hired Gun Keeps Crashing on PC</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-celestial-composition-the-art-of-nighttime-photography-mastery/"><u>[Updated] 2024 Approved Celestial Composition The Art of Nighttime Photography Mastery</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-elevate-your-tiktok-presence-with-exquisite-video-templates/"><u>[Updated] In 2024, Elevate Your TikTok Presence with Exquisite Video Templates</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-optimizing-video-speed-on-tiktok-platform/"><u>[Updated] In 2024, Optimizing Video Speed on TikTok Platform</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-surgical-switch-mastering-the-process-of-changing-your-tiktok-username/"><u>[Updated] Surgical Switch Mastering the Process of Changing Your TikTok Username</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/diagnosing-and-repairing-ethernet-connection-failures-on-pcs-running-windows-11-or-7/"><u>Diagnosing and Repairing Ethernet Connection Failures on PCs Running Windows 11 or 7</u></a></li>
+<li><a href="https://iphone-location.techidaily.com/how-to-change-your-location-on-apple-iphone-8-plus-drfone-by-drfone-virtual-ios/"><u>How to Change Your Location on Apple iPhone 8 Plus | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-overview-of-the-best-htc-u23-screen-mirroring-app-drfone-by-drfone-android/"><u>In 2024, Overview of the Best HTC U23 Screen Mirroring App | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-thinking-about-changing-your-netflix-region-without-a-vpn-on-realme-c55-drfone-by-drfone-virtual-android/"><u>In 2024, Thinking About Changing Your Netflix Region Without a VPN On Realme C55? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-5-tracking-apps-to-track-itel-s23plus-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, Top 5 Tracking Apps to Track Itel S23+ without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/master-the-art-of-attraction-8-proven-techniques-for-reel-success/"><u>Master the Art of Attraction 8 Proven Techniques for Reel Success</u></a></li>
+<li><a href="https://techidaily.com/remove-the-lock-of-redmi-a2-by-drfone-android-unlock-android-unlock/"><u>Remove the lock of Redmi A2</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/top-30-anime-inspired-videos-reshaping-online-culture/"><u>Top 30 Anime-Inspired Videos Reshaping Online Culture</u></a></li>
 </ul></div>
 

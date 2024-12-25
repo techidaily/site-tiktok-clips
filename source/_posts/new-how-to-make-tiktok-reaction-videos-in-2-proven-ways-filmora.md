@@ -1,7 +1,7 @@
 ---
 title: "\"[New] How to Make TikTok Reaction Videos in 2 Proven Ways - Filmora\""
-date: 2024-12-09T13:57:13.013Z
-updated: 2024-12-16T12:20:24.965Z
+date: 2024-12-17T18:36:36.184Z
+updated: 2024-12-25T06:21:17.098Z
 tags:
   - ai video
   - ai tiktok
@@ -52,15 +52,19 @@ Start TikTok, play the video you want to react on, tap the **Share** icon from t
 
 ![ Make reaction video in tiktok](https://images.wondershare.com/filmora/article-images/make-reaction-video-tiktok.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 2\. Apply Filters
 
 Tap the **Filters** icon from the top-right corner, tap to pick a filter from those available at the bottom, and tap anywhere on the screen to accept the one you selected and to get back to the previous window.
 
 ![Add Filters to TikTok Reaction Video](https://images.wondershare.com/filmora/article-images/apply-filters-tiktok-reaction-video.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. Manage Audio
 
@@ -75,13 +79,13 @@ Tap the **Who can view this video** option to manage your reaction’s visibilit
 ![Post TikTok Reaction Video](https://images.wondershare.com/filmora/article-images/post-reaction-video-tiktok.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 More creative tricks about TikTok video: [Clone Yourself in TikTok](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: How to Make Reaction Videos with Filmora
@@ -94,6 +98,10 @@ You can learn how to make **TikTok reaction videos**  using Wondershare Filmora 
 
 **Note:**  Before proceeding, make sure that you have already copied the source (and the reaction) video(s) from your smartphone to your computer.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1\. Create New Project and Set Preferences
 
 Start Wondershare Filmora on your Windows or Mac PC, go to **File**  \> **New Project** and click **9:16 (Portrait)**  from the submenu that appears.
@@ -102,10 +110,6 @@ Click **Split Screen** from the standard toolbar at the top, hover mouse to the 
 
 ![Filmora9 portrait mode split screen presets](https://images.wondershare.com/filmora/article-images/portrait-mode-split-screen-presets.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 2\. Import and Add Video(s) Preview/Timeline
 
 Click the **Media** button from the standard toolbar, click anywhere inside the **Media** window at the upper-left corner, and when the **Open** box comes up, select and import the video file(s) you want to participate in the **TikTok reaction**. Alternatively, you can also click **Record** from below the standard toolbar, and choose any of the options to record your own video or voice right from within Wondershare Filmora itself.
@@ -113,7 +117,7 @@ Click the **Media** button from the standard toolbar, click anywhere inside the 
 Next, click and drag each of the imported videos to their corresponding screen sections in the **Preview** window in the upper-right area. Notice how the files are automatically added to the Timeline at the bottom.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3\. Add Elements and Titles
@@ -121,14 +125,6 @@ Next, click and drag each of the imported videos to their corresponding screen s
 Click **Elements** from the standard toolbar, hover mouse to the element you want to add to the reaction, click the **\+**  icon that appears at the center of the thumbnail, and reposition the element in the Timeline to match the duration with that of the reaction you are creating.
 
 ![Filmora9 make reaction video with split screen presets and elements](https://images.wondershare.com/filmora/article-images/make-reaction-video-tiktok-with-element-titles.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 4\. Export the Reaction
 
@@ -148,6 +144,10 @@ A **TikTok reaction** enables you to make the source videos more fun and enterta
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -163,21 +163,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-simplified-techniques-for-reordering-yt-videos/"><u>[New] 2024 Approved Simplified Techniques for Reordering YT Videos</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-computerized-creativity-unleashed-steps-to-initiate-a-live-show-on-tiktok-for-2024/"><u>[New] Computerized Creativity Unleashed Steps to Initiate a Live Show on TikTok for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-fast-forwards-and-flashbacks-in-creative-tiktoks/"><u>[New] In 2024, Fast Forwards and Flashbacks in Creative TikToks</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-breaking-down-instagrams-hashtag-system-tips-and-techniques/"><u>[Updated] 2024 Approved Breaking Down Instagram's Hashtag System Tips and Techniques</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-planning-a-dynamic-tiktok-outro-experience/"><u>[Updated] 2024 Approved Planning a Dynamic TikTok Outro Experience</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-make-a-buzz-on-tiktok-thematic-templates-for-viral-video-creation-for-2024/"><u>[Updated] Make a Buzz on TikTok Thematic Templates for Viral Video Creation for 2024</u></a></li>
-<li><a href="https://android-location.techidaily.com/10-fake-gps-location-apps-on-android-of-your-lava-blaze-2-pro-drfone-by-drfone-virtual/"><u>10 Fake GPS Location Apps on Android Of your Lava Blaze 2 Pro | Dr.fone</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/2024-approved-the-thread-of-thought-sharing-sewing-skills-with-tiktokers/"><u>2024 Approved The Thread of Thought Sharing Sewing Skills with TikTokers</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/composing-a-catchy-tiktok-epilogue/"><u>Composing a Catchy TikTok Epilogue</u></a></li>
-<li><a href="https://techtrends.techidaily.com/convert-spotify-playlist-data-into-editable-text-format-easily/"><u>Convert Spotify Playlist Data Into Editable Text Format Easily</u></a></li>
-<li><a href="https://win-community.techidaily.com/expert-central-backup-control-with-aomei-cyber-backup-secure-your-digital-assets/"><u>Expert Central Backup Control with AOMEI Cyber Backup – Secure Your Digital Assets!</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/from-legacy-os-to-innovative-windows-11-for-2024/"><u>From Legacy OS to Innovative Windows 11 for 2024</u></a></li>
-<li><a href="https://driver-download.techidaily.com/how-to-install-canon-dslr-d530-camera-software-update-and-improve-performance/"><u>How to Install Canon DSLR D530 Camera Software Update and Improve Performance</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/secure-your-digital-life-winning-crypto-apps-ranked-150-chars/"><u>Secure Your Digital Life: Winning Crypto Apps Ranked (150 Chars)</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/the-clones-playbook-secrets-to-mirror-success-on-the-tiktok-sphere-for-2024/"><u>The Clone's Playbook Secrets to Mirror Success on the TikTok Sphere for 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/top-10-fixes-for-phone-keep-disconnecting-from-wi-fi-on-htc-u23-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 10 Fixes for Phone Keep Disconnecting from Wi-Fi On HTC U23 | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/nalyzing-t-series-youtube-financial-gains-for-2024/"><u>[New] Analyzing T-Series Youtube Financial Gains for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-grading-made-simple-3-ways-to-amplify-your-pics/"><u>[New] In 2024, Grading Made Simple 3 Ways to Amplify Your Pics</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-mastering-unlocking-your-personalized-tiktok-hashtag-for-2024/"><u>[Updated] Mastering Unlocking Your Personalized TikTok Hashtag for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-premier-platforms-identifying-the-finest-ps2-emulation-tools-for-android-for-2024/"><u>[Updated] Premier Platforms Identifying the Finest PS2 Emulation Tools for Android for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-surgical-switch-mastering-the-process-of-changing-your-tiktok-username-for-2024/"><u>[Updated] Surgical Switch Mastering the Process of Changing Your TikTok Username for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-tiktok-video-sync-chrome-android-and-ios-integration-techniques-for-2024/"><u>[Updated] TikTok Video Sync Chrome, Android & iOS Integration Techniques for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-undead-delight-the-best-zombie-games-reviewed/"><u>[Updated] Undead Delight The Best Zombie Games Reviewed</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/avoid-legal-pitfalls-pre-upload-video-copyright-on-tiktok/"><u>Avoid Legal Pitfalls Pre-Upload Video Copyright on TikTok</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/complete-review-and-guide-to-techeligible-frp-bypass-and-more-for-oppo-reno-8t-by-drfone-android/"><u>Complete Review & Guide to Techeligible FRP Bypass and More For Oppo Reno 8T</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-dreame-bot-l1-l10-pros-capabilities-a-smart-robot-with-lidar-based-cleaning-features/"><u>Exploring the Dreame Bot L1지어 L10 Pro's Capabilities: A Smart Robot with LiDAR-Based Cleaning Features</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/google-pixel-3-review/"><u>Google Pixel 3 Review</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/innovate-your-online-identity-with-these-30-exceptional-tiktok-names/"><u>Innovate Your Online Identity with These 30 Exceptional TikTok Names</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-install-kinemaster-on-mac-a-comprehensive-tutorial/"><u>New Install KineMaster on Mac A Comprehensive Tutorial</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/top-tiktok-metrics-optimizing-account-performance-tools/"><u>Top TikTok Metrics Optimizing Account Performance Tools</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/unraveling-the-mystery-of-the-chatgpt-body-stream-issue-discover-7-troubleshooting-steps-you-need-to-know/"><u>Unraveling the Mystery of the ChatGPT Body Stream Issue: Discover 7 Troubleshooting Steps You Need to Know</u></a></li>
 </ul></div>
 
