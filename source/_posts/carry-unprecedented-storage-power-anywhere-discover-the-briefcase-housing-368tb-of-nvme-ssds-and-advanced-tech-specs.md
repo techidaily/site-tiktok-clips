@@ -1,7 +1,7 @@
 ---
 title: "Carry Unprecedented Storage Power Anywhere: Discover the Briefcase Housing 368TB of NVMe SSDs and Advanced Tech Specs"
-date: 2024-12-22T23:53:34.716Z
-updated: 2024-12-25T01:51:44.006Z
+date: 2024-12-28T17:03:17.490Z
+updated: 2025-01-03T16:28:17.297Z
 tags:
   - desktop
 categories:
@@ -48,7 +48,7 @@ Ordinary canned air products shoot out jets of gas with a surprising amount of v
  In tests, the canned air soon ran out of pressure between bursts, but more consistent shock diamonds were pictured from the nozzle of an air compressor (90 PSI). However, the YouTuber's favorite demo was delivered using the ball pump nozzle on the air compressor hose. Have a look through the gallery above for some of the great shock diamonds emitted from the canned air and various nozzles attached to a shop compressor.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -74,20 +74,22 @@ Ordinary canned air products shoot out jets of gas with a surprising amount of v
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-clips.techidaily.com/new-the-ultimate-path-to-tiktok-fun-for-macbook-owners-for-2024/"><u>[New] The Ultimate Path to TikTok Fun for MacBook Owners for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-top-tips-for-effective-tiktok-usage-on-a-mac-for-2024/"><u>[New] Top Tips for Effective TikTok Usage on a Mac for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-how-to-use-zoom-breakout-rooms/"><u>[Updated] 2024 Approved How to Use Zoom Breakout Rooms</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-top-30-inspirational-ideas-fusing-animated-themes-and-social-media/"><u>[Updated] 2024 Approved Top 30 Inspirational Ideas Fusing Animated Themes and Social Media</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-hitching-a-ride-in-high-flying-tiktok-live-shows/"><u>[Updated] Hitching a Ride in High-Flying TikTok Live Shows</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/captivating-viewers-with-tiktoks-best-captioning-practices-top-5/"><u>Captivating Viewers with TikTok's Best Captioning Practices (Top 5)</u></a></li>
-<li><a href="https://driver-download.techidaily.com/easy-install-windows-compatible-hp-officejet-pro-8600-driver-download-links/"><u>Easy Install: Windows-Compatible HP Officejet Pro 8600 Driver Download Links</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/effective-techniques-for-correcting-av-desynchronization-in-mkv-files/"><u>Effective Techniques for Correcting AV Desynchronization in MKV Files</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/from-basics-to-advanced-the-hand-trackers-playbook/"><u>From Basics to Advanced The Hand Tracker's Playbook</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/hot-deal-alert-msi-summit-e13-flip-slashed-to-60n-exclusive-insights/"><u>Hot Deal Alert: MSI Summit E13 Flip Slashed to $60N | Exclusive Insights</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/in-2024-free-screen-recorder-apowersoft-evaluation/"><u>In 2024, Free Screen Recorder Apowersoft Evaluation</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/navigating-snap-camera-feature-in-microsoft-teams/"><u>Navigating Snap Camera Feature in Microsoft Teams</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/navigating-the-challenges-of-remote-podcasting/"><u>Navigating the Challenges of Remote Podcasting</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/resolving-windows-11-keyboard-delays-expert-troubleshooting-steps/"><u>Resolving Windows 11 Keyboard Delays - Expert Troubleshooting Steps</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/the-art-of-perfection-in-tiktok-production-with-designed-video-templates-for-2024/"><u>The Art of Perfection in TikTok Production with Designed Video Templates for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-breaking-free-from-the-old-a-complete-step-by-step-guide-to-updating-your-tiktok-avatar/"><u>[New] 2024 Approved Breaking Free From the Old A Complete, Step-By-Step Guide to Updating Your TikTok Avatar</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-captivating-crowds-essential-biographical-elements-boosting-follower-count-on-tiktok-filmora/"><u>[New] 2024 Approved Captivating Crowds Essential Biographical Elements Boosting Follower Count on TikTok-Filmora</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-strategic-steps-to-leading-the-top-tiktok-marketing-moves/"><u>[New] 2024 Approved Strategic Steps to Leading the Top TikTok Marketing Moves</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-the-complete-tiktok-user-manual-for-pc-and-apple-devices/"><u>[New] 2024 Approved The Complete TikTok User Manual for PC & Apple Devices</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-the-ultimate-guide-to-creating-a-powerful-tiktok-advertising-strategy/"><u>[New] 2024 Approved The Ultimate Guide to Creating a Powerful TikTok Advertising Strategy</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-30-hot-tiktok-amazon-finds-you-must-know-for-2024/"><u>[New] 30 Hot TikTok Amazon Finds You Must Know for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-instantly-purging-unwanted-youtube-comments-made-simple/"><u>[New] Instantly Purging Unwanted YouTube Comments Made Simple</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-15-youtube-starter-templates-a-guide-to-popularity/"><u>[Updated] In 2024, 15 YouTube Starter Templates A Guide to Popularity</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-unlocking-student-engagement-using-youtube-as-a-teaching-tool/"><u>[Updated] Unlocking Student Engagement Using YouTube as a Teaching Tool</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/winx-dvd-ripper-platinum-32xwindows-11-dvd/"><u>官方 WinX DVD Ripper Platinum 32X加速技术，无上限Windows 11 DVD数字内容提取</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-fix-iphone-xs-max-unavailable-issue-with-ease-by-drfone-ios/"><u>How To Fix iPhone XS Max Unavailable Issue With Ease</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/in-2024-jumpstart-your-journey-to-tiktok-fame-with-these-hits/"><u>In 2024, Jumpstart Your Journey to TikTok Fame with These Hits</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-list-of-pokemon-go-joysticks-on-apple-iphone-12-drfone-by-drfone-virtual-ios/"><u>In 2024, List of Pokémon Go Joysticks On Apple iPhone 12 | Dr.fone</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/in-2024-speeding-up-tiktoks-simple-techniques-for-faster-videos/"><u>In 2024, Speeding Up TikToks Simple Techniques for Faster Videos</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/launching-the-system-level-driver-monitor-w11/"><u>Launching the System-Level Driver Monitor W11</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/the-ultimate-technique-for-creating-an-uneasy-potion-in-minecraft-realms/"><u>The Ultimate Technique for Creating an Uneasy Potion in Minecraft Realms</u></a></li>
+<li><a href="https://android-frp.techidaily.com/ultimate-guide-on-lava-yuva-2-pro-frp-bypass-by-drfone-android/"><u>Ultimate Guide on Lava Yuva 2 Pro FRP Bypass</u></a></li>
 </ul></div>
 

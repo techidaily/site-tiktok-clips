@@ -1,7 +1,7 @@
 ---
 title: "\"Secrets to a Never-Ending Snapstreak  Inside Knowledge\""
-date: 2024-07-25T07:52:06.701Z
-updated: 2024-07-26T07:52:06.701Z
+date: 2025-01-01T16:48:15.007Z
+updated: 2025-01-03T16:32:16.335Z
 tags:
   - ai video
   - ai snapchat
@@ -40,8 +40,9 @@ We all know how important it is to keep up our Snapchat streaks - after all, it'
 * **Snapchat Spectacle:** Any snap sent through Snapchat spectacle won't be considered a Snapstreak interaction.
 
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### (2) The Emojis Relevant To Snapchat Streak
 
 There are many new emojis on Snapchat that you can use in your snaps to communicate with your friends or family in a whole new way. However, only a handful of them is related to Snapstreaks.
@@ -64,9 +65,6 @@ Have you seen the dreaded **"hourglass"** emoji and your streak with your best f
 
 Don't worry; below, we've provided some **creative Snapstreak ideas** to help you never let your streak expire again!
 
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Tip 1\. Ideas To Create And Send Snaps Quickly
 
 Below are some tips/ideas to help you quickly create and send Snaps to keep your Snapchat streak alive:
@@ -75,9 +73,6 @@ Below are some tips/ideas to help you quickly create and send Snaps to keep your
 
 If you have run out of snap ideas, don't worry about sending a high-quality one. No one is judging you, so send a blank snap to keep the streak alive; however, edit it a little so it looks like you have put in some effort.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![sending a blank screen to keep streak alive](https://images.wondershare.com/filmora/article-images/2022/11/sending-a-blank-screen-to-keep-streak-alive.jpg)
 
 **Idea 2\. Send Black Screen**
@@ -85,6 +80,10 @@ If you have run out of snap ideas, don't worry about sending a high-quality one.
 Your Snapstreaks are about to expire, and you're freaking out? Here's a little hack that will keep them alive: send a black screen snap. That's right! You can also add some doodles or stickers to the picture to make things look more interesting.
 
 ![sending blank screen as snap](https://images.wondershare.com/filmora/article-images/2022/11/sending-blank-screen-as-snap.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Idea 3\. Use Emojis And Bitmojis**
 
@@ -95,6 +94,10 @@ You can also add emojis or Bitmojis to your photos to make them look more intere
 We all love our pets - and we also like staying connected with our friends on Snapchat. So why not combine the two? Occasionally take a picture of your pet using the app and send it to your besties to make their day and keep the streak alive!
 
 ![snap with pet to maintain streak](https://images.wondershare.com/filmora/article-images/2022/11/snap-with-pet-to-maintain-streak.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Idea 5\. Streak With Daily Food**
 
@@ -128,9 +131,6 @@ Are you trying to get the most out of Snapchat without letting it take over your
 
 To avoid losing your Snapchat streaks with any of your contacts, you should start editing their names. Snapchat lists your most contacted friends at the top, so you might not see the others who are lower on your list. Editing their names to include something that will help you search for them will make it easier to avoid forgetting to send them a snap regularly.
 
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![edit the name of your snapchat friend](https://images.wondershare.com/filmora/article-images/2022/11/edit-the-name-of-your-snapchat-friend.jpg)
 
 **Idea 2\. Pin Your Conversations**
@@ -149,10 +149,6 @@ If you're trying to keep up with multiple Snapstreaks at once, it's easy to forg
 
 Whenever you're about to send a new snap, swipe through the filters. Here, you'll see a special Snapchat streak filter, which will show how many consecutive days of successful streak you have in big white numbers next to the fire emoji.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
-DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
-<!-- affiliate ads end -->
 ## Conclusion
 
 In this article, we've compiled a list of fun and creative **Snapchat streak ideas** to help you stay connected with your friends.
@@ -184,17 +180,15 @@ Social media platforms like Snapchat have gained immense popularity among teenag
 Using Snapchat, you can not only take ordinary snaps but can also create boomerangs. The bounce feature on Snapchat was first introduced in August 2018 on all iOS devices. This feature is similar to the boomerang option available on Instagram. Through this feature, people can play their captured snap on the loop, highlighting a specific action in it. For your convenience, this article will tell **how to do a boomerang on Snapchat** in multiple ways.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 1: How to Make a Bounce on Snapchat - for iOS
 
 If you are not an Instagram user, you can still make boomerangs using Snapchat. However, you must update your Snapchat to its latest version to use the bounce feature. To update your Snapchat and learn **how to do a boomerang on Snapchat**, follow the below steps:
 
 Step1 On your iOS device, navigate to the App Store. You then need to click on your "Profile" icon displayed in the top-right corner.
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![tap on the profile icon](https://images.wondershare.com/filmora/article-images/2022/11/how-to-do-a-boomerang-on-snapchat-1.jpg)
 
 Step2 After tapping on the Profile icon, you can see all the pending updates of your installed apps. If a pending update of Snapchat is available, tap on the "Update" button displayed next to the Snapchat app.
@@ -213,44 +207,41 @@ The Bounce feature is only available on iOS devices. If you want to make a bounc
 
 On Snapchat, a Regular Loop feature allows you to play your snap without back-and-forth effect. By applying this feature, you can make your video enjoyable without the Bounce option. To use this feature, capture a video from the recording button and then press the "Infinity" icon twice. By tapping on the Infinity icon twice, you can activate the feature "Loop."
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![use snapchat regular loop](https://images.wondershare.com/filmora/article-images/2022/11/how-to-do-a-boomerang-on-snapchat-4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Method 2: Limitless Snap
 
 Apart from using the Regular Loop feature, you can use another exciting feature called "Limitless Snap." This feature lets you send snaps to your friends and post the stories in an endless loop. The limitless snap will play continuously until your added friend does not close it on his own. To utilize this feature, press the "Infinity" icon and select the timer from 1 to infinity to play the snaps on loop.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
-<!-- affiliate ads end -->
 ![select infinity loop for snap](https://images.wondershare.com/filmora/article-images/2022/11/how-to-do-a-boomerang-on-snapchat-5.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Method 3: Use Instagram to Make a Boomerang Video
 
 If you are not satisfied with the above two methods, you can use Instagram to make a boomerang video. For this, check the below steps to create a boomerang with Instagram.
 
 Step1 Open your Instagram and swipe from left to right using your finger. On the recording screen, tap on the Boomerang option displayed as the "Infinity" icon.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ![choose the boomerang feature](https://images.wondershare.com/filmora/article-images/2022/11/how-to-do-a-boomerang-on-snapchat-6.jpg)
 
 Step2 Now, you can record the video by pressing and holding the Record button. Once done, tap on the three-dot icon at the top right corner and hit the "Save" button.
 
-<!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![choose the save option](https://images.wondershare.com/filmora/article-images/2022/11/how-to-do-a-boomerang-on-snapchat-7.jpg)
 
 Step3 The boomerang video will be saved on your phone's gallery directly. To access the saved video from Snapchat, you need to open your Snapchat memories and head to the Camera Roll tab. Here, you can find the saved boomerang video created through Instagram.
 
 ![access the camera roll tab](https://images.wondershare.com/filmora/article-images/2022/11/how-to-do-a-boomerang-on-snapchat-8.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Part 3: Further Reading: How To Turn Video Into Boomerang With a Useful Tool
 
@@ -268,30 +259,24 @@ Step1 To start off with this tool, make sure you download and install it properl
 
 Step2 As the video opens up in front of you, click on the "Trim" button at the bottom of the screen. Move your cursor to the point where you want to trim the video. Click on the "Trim" button in the bottom-center of the panel to cut the video across the selected point.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![trim the unnecessary video part](https://images.wondershare.com/filmora/article-images/2022/11/how-to-do-a-boomerang-on-snapchat-10.jpg)
 
 Step3 You can select the unnecessary part of the video and simply tap on the "Delete" button on the farthest right of the panel. With the trimmed video, select it and click on the "Copy" button to make duplicates of the specific part. As you make copies of the video to loop it, you can also add effects in between the parts from the "Effect" icon.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
-<!-- affiliate ads end -->
 ![copy the required video part](https://images.wondershare.com/filmora/article-images/2022/11/how-to-do-a-boomerang-on-snapchat-11.jpg)
 
 Step4 Once you are done with your Snapchat boomerang video, set the resolution of the output video with the provided option on the top and click on the "Export" button.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ![export filmorago boomerang](https://images.wondershare.com/filmora/article-images/2022/11/how-to-do-a-boomerang-on-snapchat-12.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 Do you love making boomerang videos and want to know **how to do a boomerang on Snapchat**? Snapchat has introduced its Bounce feature, through which you can create boomerang videos and share them with your friends for fun. To achieve the best results in creating a boomerang video, you can try the smartphone tool known as Filmora. This mobile platform also comprises advanced features that can increase the quality of your boomerang video.
@@ -306,16 +291,10 @@ Step1 To start off with this tool, make sure you download and install it properl
 
 Step2 As the video opens up in front of you, click on the "Trim" button at the bottom of the screen. Move your cursor to the point where you want to trim the video. Click on the "Trim" button in the bottom-center of the panel to cut the video across the selected point.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![trim the unnecessary video part](https://images.wondershare.com/filmora/article-images/2022/11/how-to-do-a-boomerang-on-snapchat-10.jpg)
 
 Step3 You can select the unnecessary part of the video and simply tap on the "Delete" button on the farthest right of the panel. With the trimmed video, select it and click on the "Copy" button to make duplicates of the specific part. As you make copies of the video to loop it, you can also add effects in between the parts from the "Effect" icon.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![copy the required video part](https://images.wondershare.com/filmora/article-images/2022/11/how-to-do-a-boomerang-on-snapchat-11.jpg)
 
 Step4 Once you are done with your Snapchat boomerang video, set the resolution of the output video with the provided option on the top and click on the "Export" button.
@@ -323,8 +302,9 @@ Step4 Once you are done with your Snapchat boomerang video, set the resolution o
 ![export filmorago boomerang](https://images.wondershare.com/filmora/article-images/2022/11/how-to-do-a-boomerang-on-snapchat-12.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Conclusion
 
 Do you love making boomerang videos and want to know **how to do a boomerang on Snapchat**? Snapchat has introduced its Bounce feature, through which you can create boomerang videos and share them with your friends for fun. To achieve the best results in creating a boomerang video, you can try the smartphone tool known as Filmora. This mobile platform also comprises advanced features that can increase the quality of your boomerang video.
@@ -342,7 +322,16 @@ Do you love making boomerang videos and want to know **how to do a boomerang on 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-top-20-tiktok-anime-ideas/"><u>[New] 2024 Approved Top 20 TikTok Anime Ideas</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-masterful-asmr-methods-by-leading-talents/"><u>[New] Masterful ASMR Methods by Leading Talents</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-the-casual-entrants-handbook-for-tiktok-lives/"><u>[Updated] 2024 Approved The Casual Entrant's Handbook for TikTok Lives</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-feast-your-senses-15-must-try-tiktok-meal-ideas-for-2024/"><u>[Updated] Feast Your Senses 15 Must-Try TikTok Meal Ideas for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/bring-your-imaginations-to-life-time-lapse-photography-with-gopro-studio-for-2024/"><u>Bring Your Imaginations to Life Time-Lapse Photography with GoPro Studio for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/navigating-teamsnap-photo-functions-for-effective-collaboration/"><u>Navigating TeamSnap Photo Functions for Effective Collaboration</u></a></li>
+<li><a href="https://media-tips.techidaily.com/top-no-cost-vob-movie-players-the-ultimate-downloads-guide/"><u>Top No-Cost VOB Movie Players: The Ultimate Downloads Guide</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/top-rated-ipad-gadgets-and-enhancements-featured/"><u>Top-Rated iPad Gadgets and Enhancements - Featured</u></a></li>
+<li><a href="https://discover-answers.techidaily.com/understanding-the-mechanics-of-crypto-transactions-insights-from-yl-computings-expertise/"><u>Understanding the Mechanics of Crypto Transactions: Insights From YL Computing's Expertise</u></a></li>
+</ul></div>
 

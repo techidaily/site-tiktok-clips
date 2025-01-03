@@ -1,7 +1,7 @@
 ---
 title: Innovative, Silent 'Future Retro'-Styled Mini PC Utilizing Next-Gen USB4 Technology & SSD Storage Arrays
-date: 2024-12-21T23:19:31.880Z
-updated: 2024-12-24T19:31:08.118Z
+date: 2025-01-02T16:12:55.358Z
+updated: 2025-01-03T16:08:50.320Z
 tags:
   - desktop
 categories:
@@ -32,7 +32,7 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
  The Turbo Mini X is loaded with ports, including a 10 Gbps USB-C port that can output 45 watts for charging, a 20 Gbps USB-C port and 5 USB Type-A ports. But what's most interesting is a proprietary port that connects to the Mini Maker StreamPlay X External Graphics Box, which is sold separately. The port uses USB-C, but according to Mini Maker, it enables a direct PCIe connection which is faster than what you get when using Thunderbolt 4 to connect a laptop to an after-market eGPU like the Razer Core X.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -50,7 +50,7 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
 ![Mini Maker StreamPlay X Cable](https://cdn.mos.cms.futurecdn.net/7PWKa2qagFoGCQJ7GH9t5H-320-80.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  (Image credit: Tom's Hardware)
@@ -62,7 +62,7 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
 ![Mini Maker StreamPlay X](https://cdn.mos.cms.futurecdn.net/bofwgvfDKpeYqVAheTShC9-320-80.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  (Image credit: Tom's Hardware)
@@ -88,22 +88,24 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-master-the-art-of-tiktok-sharing-across-chrome-os-devices/"><u>[New] 2024 Approved Master the Art of TikTok Sharing Across Chrome OS Devices</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-icecream-screen-recorder-indepth-review/"><u>[New] In 2024, Icecream Screen Recorder Indepth Review</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-reimagine-your-visuals-three-effective-techniques-for-backdrop-alteration-on-tiktok/"><u>[New] Reimagine Your Visuals Three Effective Techniques for Backdrop Alteration on TikTok</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-renowned-makers-exquisite-insta-hlv-designers-online/"><u>[Updated] 2024 Approved Renowned Makers Exquisite Insta HLV Designers Online</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-surgical-switch-mastering-the-process-of-changing-your-tiktok-username/"><u>[Updated] In 2024, Surgical Switch Mastering the Process of Changing Your TikTok Username</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-ultra-hd-playback-best-ps5-and-hdmi-21-compatible-monitors/"><u>[Updated] In 2024, Ultra HD Playback Best PS5 & HDMI 2.1 Compatible Monitors</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-prime-selection-of-tiktok-to-gif-converters-reviewed-and-rated/"><u>[Updated] Prime Selection of TikTok-to-GIF Converters Reviewed and Rated</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-reign-at-the-top-the-best-tiktok-typography-for-maximum-engagement/"><u>[Updated] Reign at the Top The Best TikTok Typography for Maximum Engagement</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-stealthy-techniques-to-skip-online-classroom-vids/"><u>[Updated] Stealthy Techniques to Skip Online Classroom Vids</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-expert-insights-selecting-superior-4k-camera-stands/"><u>2024 Approved Expert Insights Selecting Superior 4K Camera Stands</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/4k-clarity-comes-closer-with-asuss-innovative-mg28uq-display-for-2024/"><u>4K Clarity Comes Closer with ASUS's Innovative MG28UQ Display for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/conquer-the-financial-frontier-of-tiktok-with-these-8-money-making-techniques-for-2024/"><u>Conquer the Financial Frontier of TikTok with These 8 Money-Making Techniques for 2024</u></a></li>
-<li><a href="https://techtrends.techidaily.com/game-changing-experience-riding-with-photochromic-glasses-and-advanced-hud-features/"><u>Game-Changing Experience: Riding with Photochromic Glasses & Advanced HUD Features</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/how-to-change-your-tiktok-username-for-2024/"><u>How to Change Your TikTok Username for 2024</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/how-to-successfully-patch-your-system-fixing-the-windows-10-0x80nf0922-setback/"><u>How To Successfully Patch Your System: Fixing The Windows 10 0X80nf0922 Setback</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-insta-tiktik-mastery-uniting-two-social-giants/"><u>In 2024, Insta-TikTik Mastery Uniting Two Social Giants</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/jump-into-action-how-to-start-someones-tiktok-session/"><u>Jump Into Action How To Start Someone's TikTok Session</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-audiovisual-innovators-best-portable-devices-for-editors/"><u>[New] 2024 Approved Audiovisual Innovators Best Portable Devices for Editors</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-elevate-your-tiktok-content-with-voice-overlay/"><u>[New] 2024 Approved Elevate Your TikTok Content with Voice Overlay</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ree-mcb-theme-images-templates-and-more/"><u>[New] Free MCB Theme Images, Templates & More</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-your-guide-to-top-6-free-online-video-downloads/"><u>[Updated] In 2024, Your Guide to Top 6 Free, Online Video Downloads</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-lens-legends-choice-the-finest-6-4k-dslr-cameras/"><u>[Updated] Lens Legends Choice The Finest 6 4K DSLR Cameras</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/15-must-see-latest-trends-in-the-world-of-tiktok-for-2024/"><u>15 Must-See Latest Trends in the World of TikTok for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-slipping-into-the-social-scene-of-online-tiktok-gigs/"><u>2024 Approved Slipping Into the Social Scene of Online TikTok Gigs</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-the-most-efficient-analytics-instruments-for-your-tiktok-success/"><u>2024 Approved The Most Efficient Analytics Instruments for Your TikTok Success</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/breakdown-of-ultimate-chapter-addition-methods-for-youtube-experts-for-2024/"><u>Breakdown of Ultimate Chapter Addition Methods for YouTube Experts for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/choreographing-a-stellar-tiktok-wrap-up/"><u>Choreographing a Stellar TikTok Wrap-Up</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/enhance-video-speed-in-minutes-on-tiktok-filming/"><u>Enhance Video Speed in Minutes on TikTok Filming</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/from-average-to-astounding-tiktoks-best-image-tweaks-for-2024/"><u>From Average to Astounding TikTok's Best Image Tweaks for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/full-guide-to-fix-itoolab-anygo-not-working-on-vivo-v30-pro-drfone-by-drfone-virtual-android/"><u>Full Guide to Fix iToolab AnyGO Not Working On Vivo V30 Pro | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-realme-narzo-n53-location-without-installing-software-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Realme Narzo N53 Location without Installing Software? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-to-use-pokemon-emerald-master-ball-cheat-on-apple-iphone-11-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Use Pokémon Emerald Master Ball Cheat On Apple iPhone 11 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/jujutsu-kaisens-universe-on-your-tiktok-feed-for-2024/"><u>Jujutsu Kaisen’s Universe on Your TikTok Feed for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/liberating-your-account-beyond-the-shadowban/"><u>Liberating Your Account Beyond the Shadowban</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/the-ultimate-checklist-for-professional-macro-videographers/"><u>The Ultimate Checklist for Professional Macro Videographers</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/trouble-playing-star-wars-jedi-fallen-order-on-pc-heres-how-to-resolve-it/"><u>Trouble Playing Star Wars Jedi: Fallen Order on PC? Here's How to Resolve It</u></a></li>
 </ul></div>
 

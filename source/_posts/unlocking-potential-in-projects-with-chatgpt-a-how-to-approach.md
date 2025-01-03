@@ -1,7 +1,7 @@
 ---
 title: Unlocking Potential in Projects with ChatGPT - A How-To Approach
-date: 2024-12-20T18:13:31.553Z
-updated: 2024-12-25T04:41:20.831Z
+date: 2025-01-01T16:29:04.479Z
+updated: 2025-01-03T16:03:11.074Z
 tags:
   - chatgpt
   - open-ai
@@ -20,7 +20,7 @@ thumbnail: https://thmb.techidaily.com/2546a6e6db1c838a1a7b59103067ea8f9dccc09f3
  While some of the extensions improve the ChatGPT app, others use the AI's abilities in other webapps (such as Gmail) to improve the experience there. Do note that all but of one of these extensions require you to have a registered free account on OpenAI's ChatGPT portal.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 1\. WebChatGPT
@@ -38,6 +38,10 @@ thumbnail: https://thmb.techidaily.com/2546a6e6db1c838a1a7b59103067ea8f9dccc09f3
  You can customize the default revised prompt that WebChatGPT uses, but as a new user, we wouldn't suggest that. Once you're more accustomed to using this extension, feel free to look into options that improve your queries
 
 **Download:** WebChatGPT for[Chrome](https://chrome.google.com/webstore/detail/chatgpt-advanced/lpfemeioodjbpieminkklglpmhlngfcn) |[Firefox](https://addons.mozilla.org/en-US/firefox/addon/web-chatgpt/) (Free)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 2\. ChatGPT Prompt Genius
 
@@ -63,15 +67,15 @@ thumbnail: https://thmb.techidaily.com/2546a6e6db1c838a1a7b59103067ea8f9dccc09f3
 
 ![an email reply using chatgpt writer](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/chatgpt-writer-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  ChatGPT Writer will take a few seconds and then compose a long, professional message along those lines. You can change or edit any words within the box, or redo your prompt if it's not satisfactory. When you're happy with the result, insert it directly into the**Reply** box, and you're ready to send it.
 
  The first time you use ChatpGPT Writer, you'll need to log in to your OpenAI account with it. The extension works with any Chromium browser such as Chrome, Brave, or Edge. While it's currently best for replying to professional emails, you can also give it non-work prompts to write casual and personal email messages.
 
 **Download:** ChatGPT Writer for[Chrome](https://chrome.google.com/webstore/detail/chatgpt-writer-write-mail/pdnenlnelpdomajfejgapbdpmjkfpjkp/) (Free)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 4\. YouTube Summary With ChatGPT
 
@@ -88,10 +92,6 @@ thumbnail: https://thmb.techidaily.com/2546a6e6db1c838a1a7b59103067ea8f9dccc09f3
  You can also add further prompts for more details regarding specific parts of the video without having to watch the full thing.
 
 **Download:** YouTube Summary With ChatGPT for[Chrome](https://chrome.google.com/webstore/detail/youtube-summary-with-chat/nmmicjeknamkfloonkhhcjmomieiodli) |[Safari](https://apps.apple.com/us/app/glasp-social-web-highlighter/id1605690124) (Free)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 5\. Talk-to-ChatGPT
 
@@ -112,7 +112,7 @@ thumbnail: https://thmb.techidaily.com/2546a6e6db1c838a1a7b59103067ea8f9dccc09f3
 **Download:** ChatGPT for Search Engines for[Chrome](https://chrome.google.com/webstore/detail/chatgpt-for-search-engine/feeonheemodpkdckaljcjogdncpiiban/) |[Firefox](https://addons.mozilla.org/en-US/firefox/addon/chatgpt-for-search-engines/) |[Edge](https://microsoftedge.microsoft.com/addons/detail/chatgpt-for-search-engine/pnglghgjhaklojnjpkhcdidgalehmkbn) (Free)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 7\. Perplexity AI
@@ -120,7 +120,7 @@ thumbnail: https://thmb.techidaily.com/2546a6e6db1c838a1a7b59103067ea8f9dccc09f3
 ![query answers by perplexity ai extension](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/perplexity-ai.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  The decentralization of information and knowledge has done much good in recent years. But, like anything in tech, it carries an ugly side to it, too. The rise of fake news and misinformation, for instance, is one of its biggest unwanted by-products.
@@ -152,22 +152,21 @@ thumbnail: https://thmb.techidaily.com/2546a6e6db1c838a1a7b59103067ea8f9dccc09f3
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-direct.techidaily.com/new-2024-approved-elite-silent-input-transcription-suites/"><u>[New] 2024 Approved Elite Silent Input Transcription Suites</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-from-watcher-to-participant-tiktok-live-integration/"><u>[New] 2024 Approved From Watcher to Participant TikTok Live Integration</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-accidental-tiktok-reset-how-to-restore-content-for-2024/"><u>[New] Accidental TikTok Reset How to Restore Content for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-gastronomic-gala-top-food-videos-sweeping-social-media-for-2024/"><u>[New] Gastronomic Gala Top Food Videos Sweeping Social Media for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-top-performing-tiktok-metrics-for-account-growth-analysis-for-2024/"><u>[New] Top Performing TikTok Metrics for Account Growth Analysis for 2024</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-a-step-by-step-approach-for-thumbnail-creation-professionals/"><u>[Updated] A Step-By-Step Approach for Thumbnail Creation Professionals</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-how-to-speed-up-video-on-tiktok/"><u>[Updated] How to Speed Up Video on TikTok?</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-sharp-smudge-free-shooting-with-gopro/"><u>[Updated] Sharp, Smudge-Free Shooting with GoPro</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-the-essentials-of-creating-a-personalized-twitter-account-for-2024/"><u>[Updated] The Essentials of Creating a Personalized Twitter Account for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-secrets-of-bulk-downloads-maximizing-your-tiktok-video-collection/"><u>2024 Approved Secrets of Bulk Downloads Maximizing Your TikTok Video Collection</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/crafters-guide-to-crafting-a-unique-tiktok-keyphrase/"><u>Crafters' Guide to Crafting a Unique TikTok Keyphrase</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/discover-the-most-popular-ios-apps-based-on-apples-rankings-explore-with-zdnet/"><u>Discover the Most Popular iOS Apps Based on Apple's Rankings - Explore with ZDNet</u></a></li>
-<li><a href="https://win-best.techidaily.com/high-definition-red-rose-wallpaper-hd-graphics-and-backgrounds-quality-visual-content-by-yl-computing/"><u>High-Definition Red Rose Wallpaper HD Graphics & Backgrounds - Quality Visual Content by YL Computing</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/how-to-save-tiktok-video-in-gallery-3-proven-ways-androidandiphone/"><u>How to Save TikTok Video in Gallery-3 Proven Ways [Android&iPhone]</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-unlock-vivo-s17-phone-without-pin-by-drfone-android/"><u>How to Unlock Vivo S17 Phone without PIN</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/jujutsu-kaisen-in-action-making-memorable-tiktok-videos-for-2024/"><u>Jujutsu Kaisen in Action Making Memorable TikTok Videos for 2024</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/solutions-for-resolving-windows-preparation-phase-freezes/"><u>Solutions for Resolving 'Windows Preparation Phase' Freezes</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/0-online-tools-to-retrieve-youtube-graphics/"><u>[New] 10 Online Tools to Retrieve YouTube Graphics</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-conquer-all-platforms-your-key-to-recording-hulu-effortlessly/"><u>[New] Conquer All Platforms - Your Key to Recording Hulu Effortlessly</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-eagle-eye-recorder-insights-software/"><u>[New] In 2024, Eagle Eye Recorder Insights Software</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-quick-tips-to-resurrect-windows-photo-viewer-on-windows-11/"><u>[New] Quick Tips to Resurrect Windows Photo Viewer on Windows 11</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-streamline-your-gameplay-professional-ps4-recording-tips/"><u>[Updated] 2024 Approved Streamline Your Gameplay Professional PS4 Recording Tips</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-the-top-ten-ways-to-propel-your-tiktok-campaigns-forward/"><u>[Updated] In 2024, The Top Ten Ways to Propel Your TikTok Campaigns Forward</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-mastering-the-art-of-speech-on-tiktok/"><u>[Updated] Mastering the Art of Speech on TikTok</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-meme-mayhem-meets-madness-top-10-craziest-tiktok-game-screencaps-for-2024/"><u>[Updated] Meme Mayhem Meets Madness Top 10 Craziest TikTok Game Screencaps for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-soothing-country-beats-20-must-hear-songs-to-unwind-for-2024/"><u>[Updated] Soothing Country Beats 20 Must-Hear Songs to Unwind for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-the-essential-guide-to-expanding-your-tiktok-reach-and-interactions/"><u>[Updated] The Essential Guide to Expanding Your TikTok Reach & Interactions</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-top-7-affordable-tiktok-video-editing-software-mac/"><u>[Updated] Top 7 Affordable TikTok Video Editing Software (Mac)</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-top-strategies-for-exceptional-tiktok-beginnings-with-macos/"><u>[Updated] Top Strategies For Exceptional TikTok Beginnings With MacOS</u></a></li>
+<li><a href="https://location-social.techidaily.com/change-location-on-yik-yak-for-your-oppo-a38-to-enjoy-more-fun-drfone-by-drfone-virtual-android/"><u>Change Location on Yik Yak For your Oppo A38 to Enjoy More Fun | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/easiest-guide-how-to-clone-nokia-c32-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Easiest Guide How to Clone Nokia C32 Phone? | Dr.fone</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/green-screen-mastery-essential-free-lessons-from-youtubes-best-4-channels-for-2024/"><u>Green Screen Mastery Essential Free Lessons From YouTube's Best 4 Channels for 2024</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-complete-guide-on-unlocking-apple-iphone-8-plus-with-a-broken-screen-by-drfone-ios/"><u>In 2024, Complete Guide on Unlocking Apple iPhone 8 Plus with a Broken Screen?</u></a></li>
 </ul></div>
 

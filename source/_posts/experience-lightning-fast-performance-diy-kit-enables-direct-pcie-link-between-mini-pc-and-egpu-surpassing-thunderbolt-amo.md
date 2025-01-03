@@ -1,7 +1,7 @@
 ---
 title: "Experience Lightning-Fast Performance: DIY Kit Enables Direct PCIe Link Between Mini PC and eGPU Surpassing Thunderbolt Amo"
-date: 2024-12-23T22:54:41.204Z
-updated: 2024-12-24T17:01:20.228Z
+date: 2024-12-27T16:48:25.294Z
+updated: 2025-01-03T16:31:29.049Z
 tags:
   - desktop
 categories:
@@ -36,7 +36,7 @@ Over on Chinese videosharing platform Bilibili, user 苏打baka uploaded a lengt
  So, what happened? Did the static buildup short out the PC or something? Fortunately, nothing so mundane. Instead, the fan PC was tested at increasingly higher speeds until the[weighty cooler](https://www.tomshardware.com/news/noctua-fanless-cooler-enters-production) was violently flung from the PC in the last moments of the original video. No wonder Sodabaka hid behind a riot shield for much of the video demo.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -62,18 +62,20 @@ Over on Chinese videosharing platform Bilibili, user 苏打baka uploaded a lengt
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-clips.techidaily.com/new-choreographed-vocal-harmony-on-tiktok-for-2024/"><u>[New] Choreographed Vocal Harmony on TikTok for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-immerse-in-tiktok-entertainment-with-ease-and-grace/"><u>[New] Immerse in TikTok Entertainment with Ease and Grace</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-top-5-factors-to-master-when-using-tiktok-web-mac/"><u>[New] In 2024, Top 5 Factors to Master When Using TikTok Web (Mac)</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-choreographing-the-finale-for-your-tiktok-story/"><u>[Updated] In 2024, Choreographing the Finale for Your TikTok Story</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/8-youtube-marketing-apps-and-solutions/"><u>Best 8 YouTube Marketing Apps & Solutions</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/1721938799969-best-large-language-model-showdown-googles-bard-vs-microsofts-chatgpt-vs-solo-alpaca/"><u>Best Large Language Model Showdown: Google's Bard vs Microsoft's ChatGPT vs Solo Alpaca</u></a></li>
-<li><a href="https://solve-info.techidaily.com/boosting-robotic-automation-through-an-integrated-business-process-insight-platform/"><u>Boosting Robotic Automation Through an Integrated Business Process Insight Platform</u></a></li>
-<li><a href="https://facebook.techidaily.com/breaking-down-facebooks-subscription-tactics-that-overtake-apples-model/"><u>Breaking Down Facebook's Subscription Tactics That Overtake Apple’s Model</u></a></li>
-<li><a href="https://common-error.techidaily.com/fixing-windows-11-how-to-eliminate-persistent-keyboard-lag/"><u>Fixing Windows 11: How to Eliminate Persistent Keyboard Lag</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-unlocking-the-secrets-of-google-podcast-uploads/"><u>In 2024, Unlocking the Secrets of Google Podcast Uploads</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/lenovos-easy-pathway-to-screen-recording-for-2024/"><u>Lenovo's Easy Pathway to Screen Recording for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/safe-sharing-starts-here-the-copyright-check-for-tiktok-videos/"><u>Safe Sharing Starts Here The Copyright Check for TikTok Videos</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/secrets-to-joining-friends-tiktok-live-events/"><u>Secrets to Joining Friends' TikTok Live Events</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-exemplary-melodies-set-for-visual-narratives/"><u>[New] 2024 Approved Exemplary Melodies Set for Visual Narratives</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-top-9-ways-to-skyrocket-your-tiktok-audience-growth/"><u>[New] 2024 Approved Top 9 Ways to Skyrocket Your TikTok Audience Growth</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-beats-beyond-boundaries-the-top-ten-unforgettable-tiktok-songs-of-the-year-for-2024/"><u>[New] Beats Beyond Boundaries The Top Ten Unforgettable TikTok Songs of the Year for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/oost-your-content-access-free-vocal-sfx/"><u>[New] Boost Your Content Access Free Vocal SFX!</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-the-ultimate-tutorial-for-adding-gifs-and-emojis-in-instagram-stories-for-2024/"><u>[New] The Ultimate Tutorial for Adding GIFs & Emojis in Instagram Stories for 2024</u></a></li>
+<li><a href="https://win-tips.techidaily.com/2024-gmail/"><u>2024 Gmail當選最好的備份工具排行榜前六位</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/audio-addition-for-snapchat-videos/"><u>Audio Addition for Snapchat Videos</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/automate-your-snapshot-backup-from-snapchat-app/"><u>Automate Your Snapshot Backup From Snapchat App</u></a></li>
+<li><a href="https://driver-download.techidaily.com/complete-guide-finding-and-installing-your-epson-xp-830-drivers-with-ease/"><u>Complete Guide: Finding and Installing Your Epson XP-830 Drivers with Ease</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-proven-ways-in-how-to-hide-location-on-life360-for-oppo-a58-4g-drfone-by-drfone-virtual-android/"><u>In 2024, Proven Ways in How To Hide Location on Life360 For Oppo A58 4G | Dr.fone</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/in-2024-syncing-your-presence-in-real-time-tiktoks/"><u>In 2024, Syncing Your Presence in Real-Time TikToks</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/navigating-tiktok-web-efficiently-as-a-mac-user-for-2024/"><u>Navigating TikTok Web Efficiently as a Mac User for 2024</u></a></li>
+<li><a href="https://program-issues.techidaily.com/sewer-line-damage/"><u>Sewer Line Damage:</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/the-10-best-tools-to-bypass-icloud-activation-lock-from-apple-iphone-6s-you-should-try-out-by-drfone-ios/"><u>The 10 Best Tools to Bypass iCloud Activation Lock From Apple iPhone 6s You Should Try Out</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/what-we-know-about-sonys-upcoming-afeela-vehicle-price-predictions-and-expected-debut/"><u>What We Know About Sony's Upcoming Afeela Vehicle: Price Predictions & Expected Debut</u></a></li>
 </ul></div>
 

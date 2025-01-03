@@ -1,7 +1,7 @@
 ---
 title: Interactive Learning Zone Opens for Youth in Japan - 'Build Your Own Computer' Experience with Actual Components
-date: 2024-12-24T00:24:23.161Z
-updated: 2024-12-25T07:39:29.813Z
+date: 2024-12-29T16:15:24.441Z
+updated: 2025-01-03T16:39:32.149Z
 tags:
   - desktop
 categories:
@@ -50,7 +50,7 @@ One-Netbook, the team behind the OneXPlayer handheld console and the OneXGPU GPU
  Pre-orders for a 32 GB RAM / 1 TB SSD OneXPlayer M1 are already in Japan at JPY142,310 (or around $900). But if you bundle it with the OneXGPU, you get a 10% discount on the eGPU. So, if you’re looking for a small PC you can quickly move around but don’t sacrifice performance and graphical power, you should watch out for the OneXPlayer M1 mini-PC.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -76,14 +76,22 @@ One-Netbook, the team behind the OneXPlayer handheld console and the OneXGPU GPU
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-top-20-country-anthems-from-tiktoks-chillest-stations/"><u>[New] 2024 Approved Top 20 Country Anthems From TikTok's Chillest Stations</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-in-2024-master-facebook-seo-essential-techniques-to-skyrocket-engagement/"><u>[New] In 2024, Master Facebook SEO Essential Techniques to Skyrocket Engagement</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-flip-the-script-accelerating-tiktok-video-creation/"><u>[Updated] 2024 Approved Flip-the-Script Accelerating TikTok Video Creation</u></a></li>
-<li><a href="https://win11.techidaily.com/command-center-camouflage-win-1011-guidebook/"><u>Command Center Camouflage: Win 10/11 Guidebook</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-change-gps-location-on-apple-iphone-se-2020-easily-and-safely-drfone-by-drfone-virtual-ios/"><u>How to Change GPS Location on Apple iPhone SE (2020) Easily & Safely | Dr.fone</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/professional-tactics-for-youtube-video-logging-for-2024/"><u>Professional Tactics for YouTube Video Logging for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/step-by-step-tutorial-engaging-in-a-call-on-snapchat/"><u>Step-By-Step Tutorial Engaging in a Call on Snapchat</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/times-up-rapid-tiktok-video-extraction-techniques/"><u>Time's Up Rapid TikTok Video Extraction Techniques</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/top-ten-ios-slideshow-creation-software/"><u>Top Ten iOS Slideshow Creation Software</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-cracking-the-code-of-viral-success-with-tiktoks-top-strategies/"><u>[New] 2024 Approved Cracking the Code of Viral Success with TikTok's Top Strategies</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-how-to-make-jujutsu-kaisen-tiktok-video/"><u>[New] 2024 Approved How to Make Jujutsu Kaisen Tiktok Video?</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-pitch-perfect-productions-integrating-songs-in-tiktok-vids/"><u>[New] 2024 Approved Pitch-Perfect Productions Integrating Songs in TikTok Vids</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-illuminating-images-techniques-in-color-science/"><u>[New] Illuminating Images Techniques in Color Science</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-virtual-tournament-gear-showcase-series/"><u>[Updated] In 2024, Virtual Tournament Gear Showcase Series</u></a></li>
+<li><a href="https://some-tips.techidaily.com/2024-approved-top-starter-gear-for-gopro-cameras/"><u>2024 Approved Top Starter Gear for GoPro Cameras</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-ultimate-list-top-10-stand-out-tikfilters-for-creators/"><u>2024 Approved Ultimate List Top 10 Stand-Out TikFilters for Creators</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-unleash-creativity-a-comprehensive-guide-to-instagram-video-upload-via-desktop/"><u>2024 Approved Unleash Creativity A Comprehensive Guide to Instagram Video Upload via Desktop</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/catchy-cadences-in-creative-snaps-and-videos/"><u>Catchy Cadences in Creative Snaps and Videos</u></a></li>
+<li><a href="https://fake-location.techidaily.com/does-life360-notify-when-you-log-out-on-motorola-moto-e13-drfone-by-drfone-virtual-android/"><u>Does Life360 Notify When You Log Out On Motorola Moto E13? | Dr.fone</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/ensuring-tiktok-authenticity-pre-upload-rights-confirmation/"><u>Ensuring TikTok Authenticity Pre-Upload Rights Confirmation</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-remove-google-frp-lock-on-honor-x50-gt-by-drfone-android-unlock-remove-google-frp/"><u>How to remove Google FRP Lock on Honor X50 GT</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-can-life360-track-or-see-text-messages-what-can-you-do-with-life360-on-infinix-hot-40-drfone-by-drfone-virtual-android/"><u>In 2024, Can Life360 Track Or See Text Messages? What Can You Do with Life360 On Infinix Hot 40? | Dr.fone</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/in-2024-challenge-accepted-top-10-tiktok-trends-you-should-try/"><u>In 2024, Challenge Accepted Top 10 TikTok Trends You Should Try</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/mastering-complete-tiktok-deletion-process/"><u>Mastering Complete TikTok Deletion Process</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/maximize-online-engagement-through-cookiebot-seo-solutions/"><u>Maximize Online Engagement Through Cookiebot SEO Solutions</u></a></li>
+<li><a href="https://article-posts.techidaily.com/proven-audacity-strategies-for-top-quality-recordings-for-2024/"><u>Proven Audacity Strategies for Top-Quality Recordings for 2024</u></a></li>
 </ul></div>
 
