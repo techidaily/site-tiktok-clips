@@ -1,7 +1,7 @@
 ---
 title: "Carry Unprecedented Storage Power Anywhere: Discover the Briefcase Housing 368TB of NVMe SSDs and Advanced Tech Specs"
-date: 2024-12-28T17:03:17.490Z
-updated: 2025-01-03T16:28:17.297Z
+date: 2025-01-07T02:52:43.532Z
+updated: 2025-01-10T10:28:48.357Z
 tags:
   - desktop
 categories:
@@ -48,7 +48,7 @@ Ordinary canned air products shoot out jets of gas with a surprising amount of v
  In tests, the canned air soon ran out of pressure between bursts, but more consistent shock diamonds were pictured from the nozzle of an air compressor (90 PSI). However, the YouTuber's favorite demo was delivered using the ball pump nozzle on the air compressor hose. Have a look through the gallery above for some of the great shock diamonds emitted from the canned air and various nozzles attached to a shop compressor.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -74,22 +74,18 @@ Ordinary canned air products shoot out jets of gas with a surprising amount of v
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-breaking-free-from-the-old-a-complete-step-by-step-guide-to-updating-your-tiktok-avatar/"><u>[New] 2024 Approved Breaking Free From the Old A Complete, Step-By-Step Guide to Updating Your TikTok Avatar</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-captivating-crowds-essential-biographical-elements-boosting-follower-count-on-tiktok-filmora/"><u>[New] 2024 Approved Captivating Crowds Essential Biographical Elements Boosting Follower Count on TikTok-Filmora</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-strategic-steps-to-leading-the-top-tiktok-marketing-moves/"><u>[New] 2024 Approved Strategic Steps to Leading the Top TikTok Marketing Moves</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-the-complete-tiktok-user-manual-for-pc-and-apple-devices/"><u>[New] 2024 Approved The Complete TikTok User Manual for PC & Apple Devices</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-the-ultimate-guide-to-creating-a-powerful-tiktok-advertising-strategy/"><u>[New] 2024 Approved The Ultimate Guide to Creating a Powerful TikTok Advertising Strategy</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-30-hot-tiktok-amazon-finds-you-must-know-for-2024/"><u>[New] 30 Hot TikTok Amazon Finds You Must Know for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-instantly-purging-unwanted-youtube-comments-made-simple/"><u>[New] Instantly Purging Unwanted YouTube Comments Made Simple</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-15-youtube-starter-templates-a-guide-to-popularity/"><u>[Updated] In 2024, 15 YouTube Starter Templates A Guide to Popularity</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-unlocking-student-engagement-using-youtube-as-a-teaching-tool/"><u>[Updated] Unlocking Student Engagement Using YouTube as a Teaching Tool</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/winx-dvd-ripper-platinum-32xwindows-11-dvd/"><u>官方 WinX DVD Ripper Platinum 32X加速技术，无上限Windows 11 DVD数字内容提取</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/how-to-fix-iphone-xs-max-unavailable-issue-with-ease-by-drfone-ios/"><u>How To Fix iPhone XS Max Unavailable Issue With Ease</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/in-2024-jumpstart-your-journey-to-tiktok-fame-with-these-hits/"><u>In 2024, Jumpstart Your Journey to TikTok Fame with These Hits</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-list-of-pokemon-go-joysticks-on-apple-iphone-12-drfone-by-drfone-virtual-ios/"><u>In 2024, List of Pokémon Go Joysticks On Apple iPhone 12 | Dr.fone</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/in-2024-speeding-up-tiktoks-simple-techniques-for-faster-videos/"><u>In 2024, Speeding Up TikToks Simple Techniques for Faster Videos</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/launching-the-system-level-driver-monitor-w11/"><u>Launching the System-Level Driver Monitor W11</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/the-ultimate-technique-for-creating-an-uneasy-potion-in-minecraft-realms/"><u>The Ultimate Technique for Creating an Uneasy Potion in Minecraft Realms</u></a></li>
-<li><a href="https://android-frp.techidaily.com/ultimate-guide-on-lava-yuva-2-pro-frp-bypass-by-drfone-android/"><u>Ultimate Guide on Lava Yuva 2 Pro FRP Bypass</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-a-swift-guide-to-faster-more-engaging-tiktoks/"><u>[New] 2024 Approved A Swift Guide to Faster, More Engaging TikToks</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-convenient-techniques-for-customizing-your-own-short-videos/"><u>[New] 2024 Approved Convenient Techniques for Customizing Your Own Short Videos</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-the-tasty-trail-10-viral-eats-on-social-media-for-2024/"><u>[New] The Tasty Trail 10 Viral Eats on Social Media for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-mastering-pc-tiktok-live-streams-a-step-by-step-guide/"><u>[Updated] 2024 Approved Mastering PC TikTok Live Streams A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-leading-linux-editors-top-8-video-cutters/"><u>[Updated] Leading Linux Editors Top 8 Video Cutters</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/accessing-live-spaces-on-tiktok-your-pathway/"><u>Accessing Live Spaces on TikTok Your Pathway</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/essential-strategies-safeguarding-your-data-with-these-five-techniques/"><u>Essential Strategies: Safeguarding Your Data with These Five Techniques</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/in-2024-the-elite-circle-unveiling-top-10-gamers-on-tiktok/"><u>In 2024, The Elite Circle Unveiling Top 10 Gamers on TikTok</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/introducing-the-new-era-for-gamers-maingear-unveils-improved-north-xl-tower-edition/"><u>Introducing the New Era for Gamers: Maingear Unveils Improved North XL Tower Edition</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/the-best-of-breed-top-10-tiktok-reactions-for-2024/"><u>The Best of Breed Top 10 TikTok Reactions for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-imei-unlokers-for-your-itel-a60s-phone-by-drfone-android/"><u>Top IMEI Unlokers for Your Itel A60s Phone</u></a></li>
+<li><a href="https://games-able.techidaily.com/1719170335503-what-is-the-essence-of-meta-in-video-games-compliance-matters/"><u>What Is the Essence of Meta in Video Games? Compliance Matters!</u></a></li>
+<li><a href="https://common-error.techidaily.com/1723209710703-windows-10-not-turning-off-heres-how-to-resolve-the-issue/"><u>Windows 10 Not Turning Off? Here’s How to Resolve the Issue</u></a></li>
 </ul></div>
 

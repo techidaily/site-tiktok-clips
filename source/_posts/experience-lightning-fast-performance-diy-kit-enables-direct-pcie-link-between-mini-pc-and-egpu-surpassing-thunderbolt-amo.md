@@ -1,7 +1,7 @@
 ---
 title: "Experience Lightning-Fast Performance: DIY Kit Enables Direct PCIe Link Between Mini PC and eGPU Surpassing Thunderbolt Amo"
-date: 2024-12-27T16:48:25.294Z
-updated: 2025-01-03T16:31:29.049Z
+date: 2025-01-04T11:07:07.150Z
+updated: 2025-01-10T04:05:39.911Z
 tags:
   - desktop
 categories:
@@ -36,7 +36,7 @@ Over on Chinese videosharing platform Bilibili, user 苏打baka uploaded a lengt
  So, what happened? Did the static buildup short out the PC or something? Fortunately, nothing so mundane. Instead, the fan PC was tested at increasingly higher speeds until the[weighty cooler](https://www.tomshardware.com/news/noctua-fanless-cooler-enters-production) was violently flung from the PC in the last moments of the original video. No wonder Sodabaka hid behind a riot shield for much of the video demo.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -62,20 +62,20 @@ Over on Chinese videosharing platform Bilibili, user 苏打baka uploaded a lengt
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-exemplary-melodies-set-for-visual-narratives/"><u>[New] 2024 Approved Exemplary Melodies Set for Visual Narratives</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-top-9-ways-to-skyrocket-your-tiktok-audience-growth/"><u>[New] 2024 Approved Top 9 Ways to Skyrocket Your TikTok Audience Growth</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-beats-beyond-boundaries-the-top-ten-unforgettable-tiktok-songs-of-the-year-for-2024/"><u>[New] Beats Beyond Boundaries The Top Ten Unforgettable TikTok Songs of the Year for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/oost-your-content-access-free-vocal-sfx/"><u>[New] Boost Your Content Access Free Vocal SFX!</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-the-ultimate-tutorial-for-adding-gifs-and-emojis-in-instagram-stories-for-2024/"><u>[New] The Ultimate Tutorial for Adding GIFs & Emojis in Instagram Stories for 2024</u></a></li>
-<li><a href="https://win-tips.techidaily.com/2024-gmail/"><u>2024 Gmail當選最好的備份工具排行榜前六位</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/audio-addition-for-snapchat-videos/"><u>Audio Addition for Snapchat Videos</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/automate-your-snapshot-backup-from-snapchat-app/"><u>Automate Your Snapshot Backup From Snapchat App</u></a></li>
-<li><a href="https://driver-download.techidaily.com/complete-guide-finding-and-installing-your-epson-xp-830-drivers-with-ease/"><u>Complete Guide: Finding and Installing Your Epson XP-830 Drivers with Ease</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-proven-ways-in-how-to-hide-location-on-life360-for-oppo-a58-4g-drfone-by-drfone-virtual-android/"><u>In 2024, Proven Ways in How To Hide Location on Life360 For Oppo A58 4G | Dr.fone</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/in-2024-syncing-your-presence-in-real-time-tiktoks/"><u>In 2024, Syncing Your Presence in Real-Time TikToks</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/navigating-tiktok-web-efficiently-as-a-mac-user-for-2024/"><u>Navigating TikTok Web Efficiently as a Mac User for 2024</u></a></li>
-<li><a href="https://program-issues.techidaily.com/sewer-line-damage/"><u>Sewer Line Damage:</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/the-10-best-tools-to-bypass-icloud-activation-lock-from-apple-iphone-6s-you-should-try-out-by-drfone-ios/"><u>The 10 Best Tools to Bypass iCloud Activation Lock From Apple iPhone 6s You Should Try Out</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/what-we-know-about-sonys-upcoming-afeela-vehicle-price-predictions-and-expected-debut/"><u>What We Know About Sony's Upcoming Afeela Vehicle: Price Predictions & Expected Debut</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-upload-wisdom-tiktok-video-rights-and-compliance-guide/"><u>[New] In 2024, Upload Wisdom TikTok Video Rights & Compliance Guide</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-streamlining-screen-recording/"><u>[Updated] In 2024, Streamlining Screen Recording</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-transforming-tiktok-to-pop-with-top-gif-tools/"><u>[Updated] In 2024, Transforming TikTok to Pop with Top GIF Tools</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-viral-anime-themed-videos-for-tiktok-success/"><u>[Updated] In 2024, Viral Anime-Themed Videos for TikTok Success</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-visual-impact-discover-these-essential-font-tools-for-tiktoks-2023/"><u>[Updated] In 2024, Visual Impact Discover These Essential Font Tools for TikTok's 2023</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-pros-of-posting-to-tiktok-from-your-personal-computer-or-mac/"><u>2024 Approved Pros of Posting to TikTok From Your Personal Computer or MAC</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-refining-your-tiktok-end-screen-elements/"><u>2024 Approved Refining Your TikTok End Screen Elements</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/1722184024863-checkmarks-cleared-on-tweet-linus-hacks-revealed-trojans-deciphered-and-ai-conundrums-in-chatgpt/"><u>Checkmarks Cleared on Tweet, Linus Hacks Revealed, Trojans Deciphered, & AI Conundrums in ChatGPT</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/explore-these-10-affordable-substitutes-for-netflixs-entertainment/"><u>Explore These 10 Affordable Substitutes For Netflix's Entertainment</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-13-mini-to-other-iphone-12-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone 13 mini To Other iPhone 12 devices? | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-elite-10-sound-enhancers-across-os-platforms/"><u>In 2024, Elite 10 Sound Enhancers Across OS Platforms</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-list-of-pokemon-go-joysticks-on-samsung-galaxy-s23plus-drfone-by-drfone-virtual-android/"><u>In 2024, List of Pokémon Go Joysticks On Samsung Galaxy S23+ | Dr.fone</u></a></li>
+<li><a href="https://driver-error.techidaily.com/invalid-inf-alert-installation-fixed/"><u>Invalid INF Alert: Installation Fixed</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/machine-mentors-ais-ethical-boundaries/"><u>Machine Mentors: AI's Ethical Boundaries</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/tune-the-frame-diy-music-video-production-with-iphone/"><u>Tune the Frame DIY Music Video Production with iPhone</u></a></li>
 </ul></div>
 

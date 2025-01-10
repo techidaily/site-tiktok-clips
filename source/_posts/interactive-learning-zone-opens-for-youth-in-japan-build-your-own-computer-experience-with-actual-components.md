@@ -1,7 +1,7 @@
 ---
 title: Interactive Learning Zone Opens for Youth in Japan - 'Build Your Own Computer' Experience with Actual Components
-date: 2024-12-29T16:15:24.441Z
-updated: 2025-01-03T16:39:32.149Z
+date: 2025-01-04T11:37:55.798Z
+updated: 2025-01-10T11:44:30.518Z
 tags:
   - desktop
 categories:
@@ -50,7 +50,7 @@ One-Netbook, the team behind the OneXPlayer handheld console and the OneXGPU GPU
  Pre-orders for a 32 GB RAM / 1 TB SSD OneXPlayer M1 are already in Japan at JPY142,310 (or around $900). But if you bundle it with the OneXGPU, you get a 10% discount on the eGPU. So, if you’re looking for a small PC you can quickly move around but don’t sacrifice performance and graphical power, you should watch out for the OneXPlayer M1 mini-PC.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -76,22 +76,22 @@ One-Netbook, the team behind the OneXPlayer handheld console and the OneXGPU GPU
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-cracking-the-code-of-viral-success-with-tiktoks-top-strategies/"><u>[New] 2024 Approved Cracking the Code of Viral Success with TikTok's Top Strategies</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-how-to-make-jujutsu-kaisen-tiktok-video/"><u>[New] 2024 Approved How to Make Jujutsu Kaisen Tiktok Video?</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-pitch-perfect-productions-integrating-songs-in-tiktok-vids/"><u>[New] 2024 Approved Pitch-Perfect Productions Integrating Songs in TikTok Vids</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/new-illuminating-images-techniques-in-color-science/"><u>[New] Illuminating Images Techniques in Color Science</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-virtual-tournament-gear-showcase-series/"><u>[Updated] In 2024, Virtual Tournament Gear Showcase Series</u></a></li>
-<li><a href="https://some-tips.techidaily.com/2024-approved-top-starter-gear-for-gopro-cameras/"><u>2024 Approved Top Starter Gear for GoPro Cameras</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/2024-approved-ultimate-list-top-10-stand-out-tikfilters-for-creators/"><u>2024 Approved Ultimate List Top 10 Stand-Out TikFilters for Creators</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/2024-approved-unleash-creativity-a-comprehensive-guide-to-instagram-video-upload-via-desktop/"><u>2024 Approved Unleash Creativity A Comprehensive Guide to Instagram Video Upload via Desktop</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/catchy-cadences-in-creative-snaps-and-videos/"><u>Catchy Cadences in Creative Snaps and Videos</u></a></li>
-<li><a href="https://fake-location.techidaily.com/does-life360-notify-when-you-log-out-on-motorola-moto-e13-drfone-by-drfone-virtual-android/"><u>Does Life360 Notify When You Log Out On Motorola Moto E13? | Dr.fone</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/ensuring-tiktok-authenticity-pre-upload-rights-confirmation/"><u>Ensuring TikTok Authenticity Pre-Upload Rights Confirmation</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-remove-google-frp-lock-on-honor-x50-gt-by-drfone-android-unlock-remove-google-frp/"><u>How to remove Google FRP Lock on Honor X50 GT</u></a></li>
-<li><a href="https://fake-location.techidaily.com/in-2024-can-life360-track-or-see-text-messages-what-can-you-do-with-life360-on-infinix-hot-40-drfone-by-drfone-virtual-android/"><u>In 2024, Can Life360 Track Or See Text Messages? What Can You Do with Life360 On Infinix Hot 40? | Dr.fone</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/in-2024-challenge-accepted-top-10-tiktok-trends-you-should-try/"><u>In 2024, Challenge Accepted Top 10 TikTok Trends You Should Try</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/mastering-complete-tiktok-deletion-process/"><u>Mastering Complete TikTok Deletion Process</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/maximize-online-engagement-through-cookiebot-seo-solutions/"><u>Maximize Online Engagement Through Cookiebot SEO Solutions</u></a></li>
-<li><a href="https://article-posts.techidaily.com/proven-audacity-strategies-for-top-quality-recordings-for-2024/"><u>Proven Audacity Strategies for Top-Quality Recordings for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-discover-the-best-unboxing-experience-on-youtube-for-2024/"><u>[New] Discover the Best Unboxing Experience on YouTube for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-frenzied-fun-top-10-outrageous-tiktok-gaming-quests/"><u>[New] Frenzied Fun Top 10 Outrageous TikTok Gaming Quests</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-unlock-the-full-power-of-apples-siri-with-integrated-voice-control-on-tiktok/"><u>[New] In 2024, Unlock the Full Power of Apple's Siri with Integrated Voice Control on TikTok</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-enhance-creativity-top-50plus-inspirational-tiktok-quotes-for-2024/"><u>[Updated] Enhance Creativity Top 50+ Inspirational TikTok Quotes for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-enhancing-visibility-and-following-on-instagram-for-2024/"><u>[Updated] Enhancing Visibility & Following on Instagram for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-cutting-edge-gifs-from-tiktok-a-guide-for-creators/"><u>[Updated] In 2024, Cutting-Edge GIFs From TikTok A Guide for Creators</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-step-up-your-game-on-tiktok-top-50-trending-tags/"><u>[Updated] In 2024, Step Up Your Game on TikTok Top 50 Trending Tags</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-tiktoks-pfp-explained-a-complete-and-concise-guide/"><u>[Updated] TikTok's PFP Explained A Complete and Concise Guide</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-digital-dance-of-popularity-alike-or-likeit-more-who-wins-over-tiktok/"><u>2024 Approved Digital Dance of Popularity Alike or LikeIt More, Who Wins Over TikTok?</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-effortless-youtube-playback-downloading-content-to-idevices/"><u>2024 Approved Effortless Youtube Playback Downloading Content to iDevices</u></a></li>
+<li><a href="https://howto.techidaily.com/8-ultimate-fixes-for-google-play-your-oppo-reno-11-5g-isnt-compatible-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Ultimate Fixes for Google Play Your Oppo Reno 11 5G Isnt Compatible | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/beginner-friendly-approach-embracing-video-chats-on-insta/"><u>Beginner-Friendly Approach Embracing Video Chats on Insta</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-can-i-screen-mirroring-apple-iphone-xr-to-tvlaptop-drfone-by-drfone-ios/"><u>How Can I Screen Mirroring Apple iPhone XR to TV/Laptop? | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-change-xiaomi-redmi-k70e-lock-screen-clock-in-seconds-by-drfone-android/"><u>How To Change Xiaomi Redmi K70E Lock Screen Clock in Seconds</u></a></li>
+<li><a href="https://win11.techidaily.com/navigating-to-windows-11-credential-manager/"><u>Navigating to Windows 11 Credential Manager</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/the-ultimate-tutorial-crafting-magnetic-tiktok-openers-with-macos/"><u>The Ultimate Tutorial Crafting Magnetic TikTok Openers with MacOS</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/update-or-download-epson-l3150-printer-software-for-various-windows-os-win-111087/"><u>Update or Download Epson L3150 Printer Software for Various Windows OS (Win 11/10/8/7)</u></a></li>
 </ul></div>
 
