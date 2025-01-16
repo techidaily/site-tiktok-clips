@@ -1,7 +1,7 @@
 ---
 title: "Experience Lightning-Fast Performance: DIY Kit Enables Direct PCIe Link Between Mini PC and eGPU Surpassing Thunderbolt Amo"
-date: 2025-01-04T11:07:07.150Z
-updated: 2025-01-10T04:05:39.911Z
+date: 2025-01-14T05:47:09.900Z
+updated: 2025-01-16T01:04:47.977Z
 tags:
   - desktop
 categories:
@@ -36,7 +36,7 @@ Over on Chinese videosharing platform Bilibili, user 苏打baka uploaded a lengt
  So, what happened? Did the static buildup short out the PC or something? Fortunately, nothing so mundane. Instead, the fan PC was tested at increasingly higher speeds until the[weighty cooler](https://www.tomshardware.com/news/noctua-fanless-cooler-enters-production) was violently flung from the PC in the last moments of the original video. No wonder Sodabaka hid behind a riot shield for much of the video demo.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -62,20 +62,18 @@ Over on Chinese videosharing platform Bilibili, user 苏打baka uploaded a lengt
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-upload-wisdom-tiktok-video-rights-and-compliance-guide/"><u>[New] In 2024, Upload Wisdom TikTok Video Rights & Compliance Guide</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-streamlining-screen-recording/"><u>[Updated] In 2024, Streamlining Screen Recording</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-transforming-tiktok-to-pop-with-top-gif-tools/"><u>[Updated] In 2024, Transforming TikTok to Pop with Top GIF Tools</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-viral-anime-themed-videos-for-tiktok-success/"><u>[Updated] In 2024, Viral Anime-Themed Videos for TikTok Success</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-visual-impact-discover-these-essential-font-tools-for-tiktoks-2023/"><u>[Updated] In 2024, Visual Impact Discover These Essential Font Tools for TikTok's 2023</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/2024-approved-pros-of-posting-to-tiktok-from-your-personal-computer-or-mac/"><u>2024 Approved Pros of Posting to TikTok From Your Personal Computer or MAC</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/2024-approved-refining-your-tiktok-end-screen-elements/"><u>2024 Approved Refining Your TikTok End Screen Elements</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/1722184024863-checkmarks-cleared-on-tweet-linus-hacks-revealed-trojans-deciphered-and-ai-conundrums-in-chatgpt/"><u>Checkmarks Cleared on Tweet, Linus Hacks Revealed, Trojans Deciphered, & AI Conundrums in ChatGPT</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/explore-these-10-affordable-substitutes-for-netflixs-entertainment/"><u>Explore These 10 Affordable Substitutes For Netflix's Entertainment</u></a></li>
-<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-13-mini-to-other-iphone-12-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone 13 mini To Other iPhone 12 devices? | Dr.fone</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-elite-10-sound-enhancers-across-os-platforms/"><u>In 2024, Elite 10 Sound Enhancers Across OS Platforms</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-list-of-pokemon-go-joysticks-on-samsung-galaxy-s23plus-drfone-by-drfone-virtual-android/"><u>In 2024, List of Pokémon Go Joysticks On Samsung Galaxy S23+ | Dr.fone</u></a></li>
-<li><a href="https://driver-error.techidaily.com/invalid-inf-alert-installation-fixed/"><u>Invalid INF Alert: Installation Fixed</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/machine-mentors-ais-ethical-boundaries/"><u>Machine Mentors: AI's Ethical Boundaries</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/tune-the-frame-diy-music-video-production-with-iphone/"><u>Tune the Frame DIY Music Video Production with iPhone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-how-vr-revolutionizes-movie-watching/"><u>[New] How VR Revolutionizes Movie-Watching</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-top-pfp-concepts-to-boost-your-tiktok-profiles-attractiveness/"><u>[Updated] 2024 Approved Top PFP Concepts to Boost Your TikTok Profile's Attractiveness</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-essential-techniques-for-splendid-lyric-videos-lyric-video-maker-edition/"><u>[Updated] In 2024, Essential Techniques for Splendid Lyric Videos, Lyric Video Maker Edition</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-story-syndicate-visionary-voyages-best/"><u>2024 Approved Story Syndicate – Visionary Voyage's Best</u></a></li>
+<li><a href="https://location-fake.techidaily.com/4-methods-to-turn-off-life-360-on-samsung-galaxy-s23-fe-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>4 Methods to Turn off Life 360 On Samsung Galaxy S23 FE without Anyone Knowing | Dr.fone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/exciting-update-microsoft-introduces-surface-devices-and-copilot-for-enterprise-customers-discover-the-latest-features-zdnet/"><u>Exciting Update: Microsoft Introduces Surface Devices & Copilot for Enterprise Customers - Discover the Latest Features! [ZDNet]</u></a></li>
+<li><a href="https://change-location.techidaily.com/guide-how-to-unbrick-a-bricked-itel-a60-phone-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Guide How To Unbrick a Bricked Itel A60 Phone | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-sign-out-of-apple-id-on-apple-iphone-se-2022-without-password-by-drfone-ios/"><u>How to Sign Out of Apple ID On Apple iPhone SE (2022) without Password?</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/in-2024-a-countdown-of-the-most-memorable-animated-tiktoks/"><u>In 2024, A Countdown of the Most Memorable Animated TikToks</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/innovative-ideas-for-dazzling-and-distinctive-tiktok-profiles-for-2024/"><u>Innovative Ideas for Dazzling and Distinctive TikTok Profiles for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/jumpstart-your-photo-editing-essential-pixlr-wisdoms-for-2024/"><u>Jumpstart Your Photo Editing Essential Pixlr Wisdoms for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/quick-and-easy-snapshot-sharing-a-step-by-point-guide/"><u>Quick and Easy Snapshot Sharing – A Step-By Point Guide</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/unveiling-captivating-content-the-ultimate-guide-to-tiktok-captions/"><u>Unveiling Captivating Content The Ultimate Guide to TikTok Captions</u></a></li>
 </ul></div>
 

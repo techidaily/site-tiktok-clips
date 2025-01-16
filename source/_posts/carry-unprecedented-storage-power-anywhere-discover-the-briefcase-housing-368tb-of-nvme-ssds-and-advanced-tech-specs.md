@@ -1,7 +1,7 @@
 ---
 title: "Carry Unprecedented Storage Power Anywhere: Discover the Briefcase Housing 368TB of NVMe SSDs and Advanced Tech Specs"
-date: 2025-01-07T02:52:43.532Z
-updated: 2025-01-10T10:28:48.357Z
+date: 2025-01-13T23:07:13.609Z
+updated: 2025-01-16T05:06:15.123Z
 tags:
   - desktop
 categories:
@@ -48,7 +48,7 @@ Ordinary canned air products shoot out jets of gas with a surprising amount of v
  In tests, the canned air soon ran out of pressure between bursts, but more consistent shock diamonds were pictured from the nozzle of an air compressor (90 PSI). However, the YouTuber's favorite demo was delivered using the ball pump nozzle on the air compressor hose. Have a look through the gallery above for some of the great shock diamonds emitted from the canned air and various nozzles attached to a shop compressor.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -74,18 +74,19 @@ Ordinary canned air products shoot out jets of gas with a surprising amount of v
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-a-swift-guide-to-faster-more-engaging-tiktoks/"><u>[New] 2024 Approved A Swift Guide to Faster, More Engaging TikToks</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/024-approved-convenient-techniques-for-customizing-your-own-short-videos/"><u>[New] 2024 Approved Convenient Techniques for Customizing Your Own Short Videos</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-the-tasty-trail-10-viral-eats-on-social-media-for-2024/"><u>[New] The Tasty Trail 10 Viral Eats on Social Media for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-mastering-pc-tiktok-live-streams-a-step-by-step-guide/"><u>[Updated] 2024 Approved Mastering PC TikTok Live Streams A Step-by-Step Guide</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-leading-linux-editors-top-8-video-cutters/"><u>[Updated] Leading Linux Editors Top 8 Video Cutters</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/accessing-live-spaces-on-tiktok-your-pathway/"><u>Accessing Live Spaces on TikTok Your Pathway</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/essential-strategies-safeguarding-your-data-with-these-five-techniques/"><u>Essential Strategies: Safeguarding Your Data with These Five Techniques</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/in-2024-the-elite-circle-unveiling-top-10-gamers-on-tiktok/"><u>In 2024, The Elite Circle Unveiling Top 10 Gamers on TikTok</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/introducing-the-new-era-for-gamers-maingear-unveils-improved-north-xl-tower-edition/"><u>Introducing the New Era for Gamers: Maingear Unveils Improved North XL Tower Edition</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/the-best-of-breed-top-10-tiktok-reactions-for-2024/"><u>The Best of Breed Top 10 TikTok Reactions for 2024</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/top-imei-unlokers-for-your-itel-a60s-phone-by-drfone-android/"><u>Top IMEI Unlokers for Your Itel A60s Phone</u></a></li>
-<li><a href="https://games-able.techidaily.com/1719170335503-what-is-the-essence-of-meta-in-video-games-compliance-matters/"><u>What Is the Essence of Meta in Video Games? Compliance Matters!</u></a></li>
-<li><a href="https://common-error.techidaily.com/1723209710703-windows-10-not-turning-off-heres-how-to-resolve-the-issue/"><u>Windows 10 Not Turning Off? Here’s How to Resolve the Issue</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-top-10-gamer-vloggers-on-tiktok-today/"><u>[New] In 2024, Top 10 Gamer Vloggers on TikTok Today</u></a></li>
+<li><a href="https://some-tips.techidaily.com/new-metaverse-frontier-gear-guide-select-8-headsets/"><u>[New] Metaverse Frontier Gear Guide Select 8 Headsets</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-boosting-snapchat-vibes-with-smart-editing-tricks-for-2024/"><u>[Updated] Boosting Snapchat Vibes with Smart Editing Tricks for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-explore-the-journey-creating-a-one-of-a-kind-tiktok-hash/"><u>[Updated] Explore the Journey Creating a One-of-a-Kind TikTok Hash</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-precision-audio-picks-top-10-video-to-mp3-convertors-for-2024/"><u>[Updated] Precision Audio Picks Top 10 Video-to-Mp3 Convertors for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-trending-10-tiktok-effects-to-dominate-social-media/"><u>2024 Approved Trending 10 TikTok Effects to Dominate Social Media</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/can-i-bypass-a-forgotten-phone-password-of-oppo-a1-5g-by-drfone-android/"><u>Can I Bypass a Forgotten Phone Password Of Oppo A1 5G?</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/il-tuo-guida-completa-ai-migliori-5-player-multimedia-4k-recensioni-downloads-e-suggerimenti-duso-pcmac/"><u>Il Tuo Guida Completa Ai Migliori 5 Player Multimedia 4K: Recensioni, Downloads E Suggerimenti D'Uso PC/Mac</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/in-2024-copyright-clarity-how-to-verify-video-rights-pre-upload/"><u>In 2024, Copyright Clarity How to Verify Video Rights Pre-Upload</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-unlocking-made-easy-the-best-10-apps-for-unlocking-your-tecno-spark-go-2023-device-by-drfone-android/"><u>In 2024, Unlocking Made Easy The Best 10 Apps for Unlocking Your Tecno Spark Go (2023) Device</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/mastering-the-art-of-tiktok-top-20-engaging-caption-ideas/"><u>Mastering the Art of TikTok Top 20 Engaging Caption Ideas</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/minds-eye-marvels-da-vinci-3s-top-30-ai-image-ideas/"><u>Mind’s Eye Marvels: Da Vinci 3'S Top 30 AI Image Ideas</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/snapchat-screen-recording-mobile-tips-and-tricks/"><u>Snapchat Screen Recording Mobile Tips and Tricks</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-10-motorola-moto-e13-android-sim-unlock-apk-by-drfone-android/"><u>Top 10 Motorola Moto E13 Android SIM Unlock APK</u></a></li>
 </ul></div>
 

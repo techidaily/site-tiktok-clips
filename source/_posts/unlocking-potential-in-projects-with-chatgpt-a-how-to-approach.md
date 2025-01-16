@@ -1,7 +1,7 @@
 ---
 title: Unlocking Potential in Projects with ChatGPT - A How-To Approach
-date: 2025-01-04T22:55:59.450Z
-updated: 2025-01-10T06:54:23.217Z
+date: 2025-01-12T18:53:08.449Z
+updated: 2025-01-15T23:48:52.318Z
 tags:
   - chatgpt
   - open-ai
@@ -19,17 +19,9 @@ thumbnail: https://thmb.techidaily.com/2546a6e6db1c838a1a7b59103067ea8f9dccc09f3
 
  While some of the extensions improve the ChatGPT app, others use the AI's abilities in other webapps (such as Gmail) to improve the experience there. Do note that all but of one of these extensions require you to have a registered free account on OpenAI's ChatGPT portal.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 1\. WebChatGPT
 
 ![WebChatGPT takes your ChatGPT prompt and performs a search query with it first, and then instructs ChatGPT to use those search results while answering your query so that its data is more updated](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/best-chatgpt-browser-extensions-chrome-webchatgpt.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  As impressive as ChatGPT's answers are, it's still limited. If you know[how ChatGPT works](https://www.makeuseof.com/how-does-chatgpt-work/) , you'll know that it isn't scraping the internet for the latest information about any topic or news. The AI works on older data and doesn't search the internet. WebChatGPT is an innovative workaround for this problem that adds web search results to ChatGPT.
 
@@ -42,10 +34,6 @@ thumbnail: https://thmb.techidaily.com/2546a6e6db1c838a1a7b59103067ea8f9dccc09f3
  You can customize the default revised prompt that WebChatGPT uses, but as a new user, we wouldn't suggest that. Once you're more accustomed to using this extension, feel free to look into options that improve your queries
 
 **Download:** WebChatGPT for[Chrome](https://chrome.google.com/webstore/detail/chatgpt-advanced/lpfemeioodjbpieminkklglpmhlngfcn) |[Firefox](https://addons.mozilla.org/en-US/firefox/addon/web-chatgpt/) (Free)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 2\. ChatGPT Prompt Genius
 
@@ -60,6 +48,10 @@ thumbnail: https://thmb.techidaily.com/2546a6e6db1c838a1a7b59103067ea8f9dccc09f3
  You can curate and save your recently used prompts if you want to reuse them later. The extension lets you save entire chats with the ChatGPT AI as a PDF, PNG, or Markdown HTML file directly from the browser. You can also use custom themes for the chat interface, but that's more about looks than function.
 
 **Download:** ChatGPT Prompt Genius for[Chrome](https://chrome.google.com/webstore/detail/chatgpt-history/jjdnakkfjnnbbckhifcfchagnpofjffo/) |[Firefox](https://addons.mozilla.org/en-US/firefox/addon/chatgpt-history/) (Free)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 3\. ChatGPT Writer
 
@@ -76,6 +68,10 @@ thumbnail: https://thmb.techidaily.com/2546a6e6db1c838a1a7b59103067ea8f9dccc09f3
  The first time you use ChatpGPT Writer, you'll need to log in to your OpenAI account with it. The extension works with any Chromium browser such as Chrome, Brave, or Edge. While it's currently best for replying to professional emails, you can also give it non-work prompts to write casual and personal email messages.
 
 **Download:** ChatGPT Writer for[Chrome](https://chrome.google.com/webstore/detail/chatgpt-writer-write-mail/pdnenlnelpdomajfejgapbdpmjkfpjkp/) (Free)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 4\. YouTube Summary With ChatGPT
 
@@ -104,7 +100,7 @@ thumbnail: https://thmb.techidaily.com/2546a6e6db1c838a1a7b59103067ea8f9dccc09f3
 **Download:** Talk-to-ChatGPT for[Chrome](https://chrome.google.com/webstore/detail/talk-to-chatgpt/hodadfhfagpiemkeoliaelelfbboamlk) (Free)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 6\. ChatGPT for Search Engines
@@ -115,12 +111,16 @@ thumbnail: https://thmb.techidaily.com/2546a6e6db1c838a1a7b59103067ea8f9dccc09f3
 
 **Download:** ChatGPT for Search Engines for[Chrome](https://chrome.google.com/webstore/detail/chatgpt-for-search-engine/feeonheemodpkdckaljcjogdncpiiban/) |[Firefox](https://addons.mozilla.org/en-US/firefox/addon/chatgpt-for-search-engines/) |[Edge](https://microsoftedge.microsoft.com/addons/detail/chatgpt-for-search-engine/pnglghgjhaklojnjpkhcdidgalehmkbn) (Free)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 7\. Perplexity AI
 
 ![query answers by perplexity ai extension](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/perplexity-ai.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  The decentralization of information and knowledge has done much good in recent years. But, like anything in tech, it carries an ugly side to it, too. The rise of fake news and misinformation, for instance, is one of its biggest unwanted by-products.
@@ -152,20 +152,22 @@ thumbnail: https://thmb.techidaily.com/2546a6e6db1c838a1a7b59103067ea8f9dccc09f3
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-videos.techidaily.com/new-2024-approved-funniest-tiktok-videos-latest-trends-and-stars/"><u>[New] 2024 Approved Funniest TikTok Videos Latest Trends & Stars</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-explore-tiktoks-1-game-bloggers-list-for-2024/"><u>[New] Explore TikTok's #1 Game Bloggers List for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-transform-your-tiktok-footage-with-enlarged-characters/"><u>[New] In 2024, Transform Your TikTok Footage with Enlarged Characters</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-swiftly-convert-creepy-slow-videos-with-best-apps/"><u>[New] Swiftly Convert Creepy-Slow Videos with Best Apps</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-the-commerce-catalyst-strategic-growth-on-tiktok-platforms/"><u>[New] The Commerce Catalyst Strategic Growth on TikTok Platforms</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-top-5-factors-to-master-when-using-tiktok-web-mac/"><u>[New] Top 5 Factors to Master When Using TikTok Web (Mac)</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-unleash-creativity-with-these-5-advanced-tiktok-captioning-techniques/"><u>[New] Unleash Creativity with These 5 Advanced TikTok Captioning Techniques</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-from-instagram-video-to-mp3-sound/"><u>[Updated] From Instagram Video to Mp3 Sound</u></a></li>
-<li><a href="https://android-frp.techidaily.com/about-motorola-moto-g34-5g-frp-bypass-by-drfone-android/"><u>About Motorola Moto G34 5G FRP Bypass</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/in-2024-azure-speech-to-text-your-ultimate-development-toolkit/"><u>In 2024, Azure Speech-to-Text Your Ultimate Development Toolkit</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/reliable-sources-for-secure-tiktok-bots/"><u>Reliable Sources for Secure TikTok Bots</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/speedy-repairs-expert-advice-on-restoring-audio-in-the-oculus-rift-s-for-a-better-vr-experience-new-strategies/"><u>Speedy Repairs: Expert Advice on Restoring Audio in the Oculus Rift S for a Better VR Experience - New Strategies</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/step-by-step-solution-for-windows-reboot-and-choose-boot-device-problem/"><u>Step-by-Step Solution for Windows Reboot and Choose Boot Device Problem</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/this-gives-us/"><u>This Gives Us:</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/unwind-yourself-with-these-20-best-country-songs-on-tiktok/"><u>Unwind Yourself with These 20 Best Country Songs on TikTok</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-10-spectacularly-free-luts-elevate-with-exclusive-purchase-options/"><u>[New] 10 Spectacularly Free LUTs; Elevate with Exclusive Purchase Options</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-top-9-ways-to-skyrocket-your-tiktok-audience-growth/"><u>[New] 2024 Approved Top 9 Ways to Skyrocket Your TikTok Audience Growth</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-beats-beyond-boundaries-the-top-ten-unforgettable-tiktok-songs-of-the-year-for-2024/"><u>[New] Beats Beyond Boundaries The Top Ten Unforgettable TikTok Songs of the Year for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-seamless-video-production-leveraging-windows-movie-maker-on-windows-8/"><u>[New] In 2024, Seamless Video Production Leveraging Windows Movie Maker on Windows 8</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-the-ultimate-guide-to-choosing-a-screen-for-superior-4k-video/"><u>2024 Approved The Ultimate Guide to Choosing a Screen for Superior 4K Video</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/audio-addition-for-snapchat-videos/"><u>Audio Addition for Snapchat Videos</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/automate-your-snapshot-backup-from-snapchat-app/"><u>Automate Your Snapshot Backup From Snapchat App</u></a></li>
+<li><a href="https://apple-account.techidaily.com/detailed-guide-on-removing-apple-iphone-6-plus-activation-lock-without-previous-owner-by-drfone-ios/"><u>Detailed Guide on Removing Apple iPhone 6 Plus Activation Lock without Previous Owner?</u></a></li>
+<li><a href="https://win-able.techidaily.com/diagnosing-and-repairing-farming-simulator-22-not-starting-dilemma/"><u>Diagnosing and Repairing 'Farming Simulator 22' Not Starting Dilemma</u></a></li>
+<li><a href="https://win-help.techidaily.com/enregistrer-des-e-mails-outlook-deux-methodes-de-sauvegarde-vers-un-disque-dur-externe/"><u>Enregistrer Des E-Mails Outlook : Deux Méthodes De Sauvegarde Vers Un Disque Dur Externe</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/eye-catching-snaps-made-simple-the-20-must-try-filters-and-lenses/"><u>Eye-Catching Snaps Made Simple The 20 Must-Try Filters & Lenses</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-elevate-social-media-content-to-hd-clarity-on-facebook/"><u>In 2024, Elevate Social Media Content to HD Clarity on Facebook</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-samsung-galaxy-xcover-7-location-without-installing-software-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Samsung Galaxy XCover 7 Location without Installing Software? | Dr.fone</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/in-2024-mastering-tiktok-crafting-high-impact-marketing-moves/"><u>In 2024, Mastering TikTok Crafting High-Impact Marketing Moves</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-perfect-video-title-generators-for-youtube/"><u>In 2024, Perfect Video Title Generators for YouTube</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/in-2024-syncing-your-presence-in-real-time-tiktoks/"><u>In 2024, Syncing Your Presence in Real-Time TikToks</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/jujutsu-kaisen-in-action-making-memorable-tiktok-videos/"><u>Jujutsu Kaisen in Action Making Memorable TikTok Videos</u></a></li>
 </ul></div>
 

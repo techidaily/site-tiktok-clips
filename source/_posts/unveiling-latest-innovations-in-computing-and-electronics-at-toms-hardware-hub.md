@@ -1,7 +1,7 @@
 ---
 title: Unveiling Latest Innovations in Computing & Electronics at Tom's Hardware Hub
-date: 2025-01-06T16:09:16.426Z
-updated: 2025-01-09T16:11:49.413Z
+date: 2025-01-10T18:32:58.015Z
+updated: 2025-01-15T19:10:36.725Z
 tags:
   - desktop
 categories:
@@ -14,7 +14,7 @@ thumbnail: https://cdn.mos.cms.futurecdn.net/LCbG8RwNDZHdVnhQuwPna5-320-80.jpg
 [Hewlett Packard](https://www.tomshardware.com/tag/hewlett-packard) [Enterprise](https://www.tomshardware.com/tag/enterprise) (HPE), one of the world's largest makers of servers, has initiated a legal battle against Inspur Group, China's largest server maker, and its affiliates, alleging server patent infringements. HPE accuses Inspur of engaging in deceptive practices and renaming its subsidiaries in the U.S. to continue its business with American companies despite being included into the Entity List.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## HPE: Inspur infringes our patents
@@ -28,7 +28,7 @@ thumbnail: https://cdn.mos.cms.futurecdn.net/LCbG8RwNDZHdVnhQuwPna5-320-80.jpg
  LATEST VIDEOS FROM tomshardware Tom's Hardware
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Despite being on the Entity List, Inspur continues operations in the U.S
@@ -38,7 +38,7 @@ thumbnail: https://cdn.mos.cms.futurecdn.net/LCbG8RwNDZHdVnhQuwPna5-320-80.jpg
  The complaint claims that Inspur that inspur continues its operations in the United States under Aivres Systems and Betapex. Inspur allegedly removed its branding from products sold in the U.S. and continues to sell them. For example, Inspur's IR5280M6 server is Aivres's 5280M6 machine, it has the same specification and design, according to HPE's complaint. Meanwhile, Inspur has also worked as a contract maker of servers, according to The Register. Yet, if a U.S. entity plans to work with Inspur (or any other party from the Entity List), it has to get a special license from the U.S. government.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -64,24 +64,24 @@ thumbnail: https://cdn.mos.cms.futurecdn.net/LCbG8RwNDZHdVnhQuwPna5-320-80.jpg
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-a-friendly-how-to-participating-in-tiktok-livestreams/"><u>[New] 2024 Approved A Friendly How-To Participating in TikTok Livestreams</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-redefining-creativity-the-most-popular-anime-concepts-on-tiktok/"><u>[New] 2024 Approved Redefining Creativity The Most Popular Anime Concepts on TikTok</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-acid-pro-evaluation-finding-reliable-counterparts-for-2024/"><u>[New] ACID Pro Evaluation Finding Reliable Counterparts for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-dive-deep-into-tiktok-lives-how-to-engage-effectively/"><u>[New] Dive Deep Into TikTok Lives How to Engage Effectively</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-slipping-into-the-social-scene-of-online-tiktok-gigs/"><u>[New] In 2024, Slipping Into the Social Scene of Online TikTok Gigs</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/evisiting-youtubes-archive-two-proven-watch-strategies/"><u>[New] Revisiting Youtube's Archive Two Proven Watch Strategies</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-simplifying-tasks-with-ez-grabber-techniques/"><u>[New] Simplifying Tasks with EZ Grabber Techniques</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-unveiling-the-secrets-to-viral-tiktok-with-these-best-captions-for-2024/"><u>[New] Unveiling the Secrets to Viral TikTok with These Best Captions for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-ensuring-authenticity-and-compliance-in-your-tiktoks/"><u>[Updated] 2024 Approved Ensuring Authenticity & Compliance in Your TikToks</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-sharing-wisdom-the-art-of-insta-duplication/"><u>[Updated] 2024 Approved Sharing Wisdom The Art of Insta Duplication</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-how-to-engage-listeners-through-instagram-and-podcasts/"><u>2024 Approved How To Engage Listeners Through Instagram & Podcasts</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/2024-approved-revolutionize-your-tiktok-experience-50plus-impressive-name-ideas/"><u>2024 Approved Revolutionize Your TikTok Experience - 50+ Impressive Name Ideas</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/2024-approved-the-ultimate-guide-to-stellar-tiktok-content-through-template-utilization/"><u>2024 Approved The Ultimate Guide to Stellar TikTok Content Through Template Utilization</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/apple-takes-on-spotify-revolutionary-update-allows-seamless-transfer-of-playlists-insights-from-zdnet/"><u>Apple Takes On Spotify: Revolutionary Update Allows Seamless Transfer of Playlists - Insights From ZDNet</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/free-security-camera-software-reviews-top-10-options-for-2024/"><u>Free Security Camera Software Reviews Top 10 Options for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/in-2024-becoming-an-exclusive-guest-on-tiktok-live/"><u>In 2024, Becoming an Exclusive Guest on TikTok Live</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/in-2024-behind-the-lens-detailed-evaluation-of-sj-cam-s6/"><u>In 2024, Behind the Lens Detailed Evaluation of SJ-CAM S6</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/understanding-and-fixing-a-401-authentication-failure-online/"><u>Understanding and Fixing a 401 Authentication Failure Online</u></a></li>
-<li><a href="https://win-updates.techidaily.com/understanding-the-dangers-how-editing-windows-registry-can-affect-your-system-insights-from-yl-computing/"><u>Understanding the Dangers: How Editing Windows Registry Can Affect Your System - Insights From YL Computing</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-evaluating-djis-phantom-3-features/"><u>[New] Evaluating DJI's Phantom 3 Features</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-cutting-edge-techniques-for-ios-users-uploading-videos-to-youtube/"><u>[New] In 2024, Cutting-Edge Techniques for iOS Users Uploading Videos to YouTube</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-mastering-the-art-of-tiktok-closing-scenes/"><u>[New] Mastering the Art of TikTok Closing Scenes</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-hot-dish-discoveries-on-tiktok-for-2024/"><u>[Updated] Hot Dish Discoveries on TikTok for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-discover-top-6-free-web-apps-for-transforming-tiktok-into-mp3/"><u>[Updated] In 2024, Discover Top 6 Free Web Apps for Transforming TikTok Into MP3</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-steps-to-clear-out-your-youtube-watch-later-collection/"><u>[Updated] Steps to Clear Out Your YouTube Watch Later Collection</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-unpacking-video-editing-excellence-is-inshot-at-the-top/"><u>[Updated] Unpacking Video Editing Excellence Is InShot at the Top?</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-20-funny-tiktok-jokes-and-riddles-to-make-you-laugh-out/"><u>2024 Approved 20 Funny TikTok Jokes and Riddles to Make You Laugh Out</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-blueprinting-a-dynamic-tiktok-end-credits-rollout/"><u>2024 Approved Blueprinting a Dynamic TikTok End-Credits Rollout</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-the-essential-guide-to-aspect-ratio-standards-on-yt/"><u>2024 Approved The Essential Guide to Aspect Ratio Standards on YT</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/avoiding-escalation-stealthy-yet-effective-techniques-to-address-grievances-on-discord/"><u>Avoiding Escalation Stealthy Yet Effective Techniques to Address Grievances on Discord</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/best-flv-editor-software-top-7-picks-and-free-trials/"><u>Best Flv Editor Software: Top 7 Picks & Free Trials</u></a></li>
+<li><a href="https://fox-sure.techidaily.com/effortless-trick-how-to-quickly-save-google-drive-videos-on-your-iphone/"><u>Effortless Trick: How to Quickly Save Google Drive Videos on Your iPhone</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/hidden-screenshotters-concealed-photography-on-the-snapchat-app/"><u>Hidden ScreenShotters Concealed Photography on the Snapchat App</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-a-oppo-a78-easily-by-drfone-android/"><u>How To Unlock a Oppo A78 Easily?</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/in-2024-from-wardrobe-to-webcam-your-macootd-tiktok-adventure/"><u>In 2024, From Wardrobe to Webcam Your MacOOTD TikTok Adventure</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/showcase-a-dialogue-in-one-instagram-post-for-2024/"><u>Showcase a Dialogue in One Instagram Post for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/transformative-pfps-that-define-your-tiktok-identity/"><u>Transformative PFPs that Define Your TikTok Identity</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/unveiling-apples-strongest-iphone-protection-with-an-innovative-safety-edge-a-comprehensive-review-by-your-name/"><u>Unveiling Apple's Strongest iPhone Protection with an Innovative Safety Edge - A Comprehensive Review by [Your Name]</u></a></li>
 </ul></div>
 
