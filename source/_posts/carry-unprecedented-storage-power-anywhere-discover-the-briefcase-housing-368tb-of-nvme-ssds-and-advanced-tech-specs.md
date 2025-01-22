@@ -1,7 +1,7 @@
 ---
 title: "Carry Unprecedented Storage Power Anywhere: Discover the Briefcase Housing 368TB of NVMe SSDs and Advanced Tech Specs"
-date: 2025-01-13T23:07:13.609Z
-updated: 2025-01-16T05:06:15.123Z
+date: 2025-01-21T04:07:18.872Z
+updated: 2025-01-21T21:03:03.487Z
 tags:
   - desktop
 categories:
@@ -48,7 +48,7 @@ Ordinary canned air products shoot out jets of gas with a surprising amount of v
  In tests, the canned air soon ran out of pressure between bursts, but more consistent shock diamonds were pictured from the nozzle of an air compressor (90 PSI). However, the YouTuber's favorite demo was delivered using the ball pump nozzle on the air compressor hose. Have a look through the gallery above for some of the great shock diamonds emitted from the canned air and various nozzles attached to a shop compressor.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -74,19 +74,22 @@ Ordinary canned air products shoot out jets of gas with a surprising amount of v
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-top-10-gamer-vloggers-on-tiktok-today/"><u>[New] In 2024, Top 10 Gamer Vloggers on TikTok Today</u></a></li>
-<li><a href="https://some-tips.techidaily.com/new-metaverse-frontier-gear-guide-select-8-headsets/"><u>[New] Metaverse Frontier Gear Guide Select 8 Headsets</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-boosting-snapchat-vibes-with-smart-editing-tricks-for-2024/"><u>[Updated] Boosting Snapchat Vibes with Smart Editing Tricks for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-explore-the-journey-creating-a-one-of-a-kind-tiktok-hash/"><u>[Updated] Explore the Journey Creating a One-of-a-Kind TikTok Hash</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-precision-audio-picks-top-10-video-to-mp3-convertors-for-2024/"><u>[Updated] Precision Audio Picks Top 10 Video-to-Mp3 Convertors for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/2024-approved-trending-10-tiktok-effects-to-dominate-social-media/"><u>2024 Approved Trending 10 TikTok Effects to Dominate Social Media</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/can-i-bypass-a-forgotten-phone-password-of-oppo-a1-5g-by-drfone-android/"><u>Can I Bypass a Forgotten Phone Password Of Oppo A1 5G?</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/il-tuo-guida-completa-ai-migliori-5-player-multimedia-4k-recensioni-downloads-e-suggerimenti-duso-pcmac/"><u>Il Tuo Guida Completa Ai Migliori 5 Player Multimedia 4K: Recensioni, Downloads E Suggerimenti D'Uso PC/Mac</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/in-2024-copyright-clarity-how-to-verify-video-rights-pre-upload/"><u>In 2024, Copyright Clarity How to Verify Video Rights Pre-Upload</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-unlocking-made-easy-the-best-10-apps-for-unlocking-your-tecno-spark-go-2023-device-by-drfone-android/"><u>In 2024, Unlocking Made Easy The Best 10 Apps for Unlocking Your Tecno Spark Go (2023) Device</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/mastering-the-art-of-tiktok-top-20-engaging-caption-ideas/"><u>Mastering the Art of TikTok Top 20 Engaging Caption Ideas</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/minds-eye-marvels-da-vinci-3s-top-30-ai-image-ideas/"><u>Mind’s Eye Marvels: Da Vinci 3'S Top 30 AI Image Ideas</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/snapchat-screen-recording-mobile-tips-and-tricks/"><u>Snapchat Screen Recording Mobile Tips and Tricks</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/top-10-motorola-moto-e13-android-sim-unlock-apk-by-drfone-android/"><u>Top 10 Motorola Moto E13 Android SIM Unlock APK</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-enhancing-video-performance-on-the-social-platform/"><u>[New] In 2024, Enhancing Video Performance on the Social Platform</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-understanding-luts-transforming-images-magic/"><u>[New] Understanding LUTs Transforming Images Magic</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-craft-a-captivating-story-integrating-images-on-instagram/"><u>[Updated] 2024 Approved Craft a Captivating Story Integrating Images on Instagram</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-expressive-photography-techniques-applying-motion-blur-to-faces/"><u>[Updated] In 2024, Expressive Photography Techniques Applying Motion Blur to Faces</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-mastering-hue-shifts-a-guide-to-efficient-photoshop-corrections/"><u>[Updated] Mastering Hue Shifts A Guide to Efficient Photoshop Corrections</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/breaking-the-sound-barrier-the-astonishing-supersonic-journey-of-a-simple-canned-air-jet-as-revealed-by-an-eagle-eyed-engineer/"><u>Breaking the Sound Barrier: The Astonishing Supersonic Journey of a Simple Canned Air Jet, as Revealed by an Eagle-Eyed Engineer</u></a></li>
+<li><a href="https://fake-location.techidaily.com/can-life360-track-you-when-your-tecno-phantom-v-fold-is-off-drfone-by-drfone-virtual-android/"><u>Can Life360 Track You When Your Tecno Phantom V Fold is off? | Dr.fone</u></a></li>
+<li><a href="https://windows11.techidaily.com/clearing-up-the-confusion-of-microsoft-store-error-0x80072efd/"><u>Clearing Up the Confusion of Microsoft Store Error 0X80072EFD</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/discover-unmatched-performance-with-geekoms-ax8-mini-pc-supporting-13th-gen-intel-and-ryzen-8000-cpu-series/"><u>Discover Unmatched Performance with GeekOm's AX8 Mini PC Supporting 13Th Gen Intel and Ryzen 8000 CPU Series</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/discovering-an-uncommon-combo-displayport-and-hdmi-integrated-in-the-infamous-piston-xi3-from-steam-box-series/"><u>Discovering an Uncommon Combo! DisplayPort and HDMI Integrated in the Infamous Piston Xi3 From Steam Box Series</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/elevate-performance-microns-newest-mrdimms-hit-the-market-compatible-with-intel-xeon-systems/"><u>Elevate Performance: Micron's Newest MRDIMMs Hit the Market, Compatible with Intel Xeon Systems</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-7-phone-number-locators-to-track-samsung-galaxy-z-fold-5-location-drfone-by-drfone-virtual-android/"><u>In 2024, Top 7 Phone Number Locators To Track Samsung Galaxy Z Fold 5 Location | Dr.fone</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/mastertech-analysis-reliable-hardware-guides-and-tech-breakdowns-toms-perspective/"><u>MasterTech Analysis: Reliable Hardware Guides & Tech Breakdowns - Tom's Perspective</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/navigating-the-world-of-hard-drives-with-toms-guide/"><u>Navigating the World of Hard Drives with Tom’s Guide</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/the-essence-of-huggingchat-open-source-and-affordable-conversation-model/"><u>The Essence of HuggingChat: Open-Source and Affordable Conversation Model</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/the-winning-combination-why-nintendos-wii-u-became-a-hit/"><u>The Winning Combination: Why Nintendo's Wii U Became a Hit</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/unveiling-latest-innovations-in-computing-and-electronics-at-toms-hardware-hub/"><u>Unveiling Latest Innovations in Computing & Electronics at Tom's Hardware Hub</u></a></li>
 </ul></div>
 

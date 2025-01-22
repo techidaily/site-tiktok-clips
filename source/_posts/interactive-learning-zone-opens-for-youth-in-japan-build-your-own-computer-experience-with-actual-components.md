@@ -1,7 +1,7 @@
 ---
 title: Interactive Learning Zone Opens for Youth in Japan - 'Build Your Own Computer' Experience with Actual Components
-date: 2025-01-14T16:57:07.970Z
-updated: 2025-01-15T17:55:10.158Z
+date: 2025-01-18T02:02:02.845Z
+updated: 2025-01-22T01:45:53.264Z
 tags:
   - desktop
 categories:
@@ -50,7 +50,7 @@ One-Netbook, the team behind the OneXPlayer handheld console and the OneXGPU GPU
  Pre-orders for a 32 GB RAM / 1 TB SSD OneXPlayer M1 are already in Japan at JPY142,310 (or around $900). But if you bundle it with the OneXGPU, you get a 10% discount on the eGPU. So, if you’re looking for a small PC you can quickly move around but don’t sacrifice performance and graphical power, you should watch out for the OneXPlayer M1 mini-PC.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -76,20 +76,18 @@ One-Netbook, the team behind the OneXPlayer handheld console and the OneXGPU GPU
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-clips.techidaily.com/new-becoming-an-exclusive-guest-on-tiktok-live/"><u>[New] Becoming an Exclusive Guest on TikTok Live</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-how-to-integrate-siri-on-tiktok-a-comprehensive-guidebook-for-2024/"><u>[New] How to Integrate Siri on TikTok - A Comprehensive Guidebook for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/n-2024-crafting-classic-cinematography-step-by-step-guide/"><u>[New] In 2024, Crafting Classic Cinematography Step-by-Step Guide</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-virtual-performances-on-kuaishou/"><u>[New] In 2024, Virtual Performances on Kuaishou</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-recovering-from-a-mistaken-tiktok-reload-for-2024/"><u>[New] Recovering From a Mistaken TikTok Reload for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-10-best-tiktok-filters-to-make-your-videos-stand-out/"><u>[Updated] 2024 Approved 10 Best TikTok Filters to Make Your Videos Stand Out</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-seeking-access-to-all-mutually-shared-media-in-chats/"><u>[Updated] Seeking Access to All Mutually-Shared Media in Chats</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-spiritual-soundtracks-finding-and-tuning-for-ringtones/"><u>[Updated] Spiritual Soundtracks Finding & Tuning for Ringtones</u></a></li>
-<li><a href="https://fox-ssl.techidaily.com/1728491054213-aomei-backup/"><u>AOMEI Backup软件错误处理指南：针对性问题及其解决方案</u></a></li>
-<li><a href="https://win-dash.techidaily.com/complete-instructions-downloading-and-implementing-the-newest-soundmax-drivers-in-windows-environments/"><u>Complete Instructions: Downloading & Implementing the Newest SoundMAX Drivers in Windows Environments</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/expert-evaluation-of-the-halo-bolt-mobile-battery-booster-kit/"><u>Expert Evaluation of the Halo Bolt Mobile Battery Booster Kit</u></a></li>
-<li><a href="https://fake-location.techidaily.com/in-2024-11-best-location-changers-for-realme-12plus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 11 Best Location Changers for Realme 12+ 5G | Dr.fone</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/in-2024-captivate-audiences-with-these-top-20-tiktok-captions/"><u>In 2024, Captivate Audiences with These Top 20 TikTok Captions</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-unleash-creativity-inshot-video-editing-on-your-pc/"><u>In 2024, Unleash Creativity Inshot Video Editing on Your PC</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/recognizing-unseen-snaps-on-social-network/"><u>Recognizing Unseen Snaps on Social Network</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/outube-playlist-turnaround-a-simple-4-step-plan-for-2024/"><u>[New] YouTube Playlist Turnaround A Simple 4-Step Plan for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-unveiling-hidden-tiktok-ban-criteria/"><u>[Updated] In 2024, Unveiling Hidden TikTok Ban Criteria</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-initiatives-for-reclaiming-your-tiktok-presence-for-2024/"><u>[Updated] Initiatives for Reclaiming Your TikTok Presence for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-on-demand-rhythm-sharing-on-xigua-video-for-2024/"><u>[Updated] On-Demand Rhythm Sharing on Xigua Video for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-premium-mac-edition-screens-and-sound-syncing-for-2024/"><u>[Updated] Premium Mac Edition Screens and Sound Syncing for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-unlocking-tiktoks-top-tricks-to-go-viral/"><u>[Updated] Unlocking TikTok's Top Tricks to Go Viral</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-elevate-your-media-projects-utilizing-story-remix-in-windows-photos/"><u>2024 Approved Elevate Your Media Projects Utilizing Story Remix in Windows Photos</u></a></li>
+<li><a href="https://win-dash.techidaily.com/effortless-setup-how-to-get-samsung-c460-drivers-in-a-flash/"><u>Effortless Setup: How To Get Samsung C460 Drivers in a Flash</u></a></li>
+<li><a href="https://fox-that.techidaily.com/fixing-a-broken-iphone-mute-function-a-guide-to-solving-silentring-mode-issues-without-the-switch/"><u>Fixing a Broken iPhone Mute Function: A Guide to Solving Silent/Ring Mode Issues Without The Switch</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-on-htc-u23-prowithwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock on HTC U23 Prowith/without a PC</u></a></li>
+<li><a href="https://fox-where.techidaily.com/is-the-escalation-of-israel-palestine-conflict-indicative-of-golds-bullish-trend-in-futures-prices-experts-at-yl-computing-and-yl-software-weigh-in/"><u>Is the Escalation of Israel-Palestine Conflict Indicative of Gold's Bullish Trend in Futures Prices? Experts at YL Computing and YL Software Weigh In</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/prime-enterprise-sky-space-hoarder/"><u>Prime Enterprise Sky Space Hoarder</u></a></li>
+<li><a href="https://common-error.techidaily.com/solving-the-dilemma-of-malfunctioning-usb-input-devices-in-windows-7-systems/"><u>Solving the Dilemma of Malfunctioning USB Input Devices in Windows 7 Systems</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Experience Lightning-Fast Performance: DIY Kit Enables Direct PCIe Link Between Mini PC and eGPU Surpassing Thunderbolt Amo"
-date: 2025-01-14T05:47:09.900Z
-updated: 2025-01-16T01:04:47.977Z
+date: 2025-01-15T00:00:06.728Z
+updated: 2025-01-22T05:05:13.038Z
 tags:
   - desktop
 categories:
@@ -36,7 +36,7 @@ Over on Chinese videosharing platform Bilibili, user 苏打baka uploaded a lengt
  So, what happened? Did the static buildup short out the PC or something? Fortunately, nothing so mundane. Instead, the fan PC was tested at increasingly higher speeds until the[weighty cooler](https://www.tomshardware.com/news/noctua-fanless-cooler-enters-production) was violently flung from the PC in the last moments of the original video. No wonder Sodabaka hid behind a riot shield for much of the video demo.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -62,18 +62,15 @@ Over on Chinese videosharing platform Bilibili, user 苏打baka uploaded a lengt
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-how-vr-revolutionizes-movie-watching/"><u>[New] How VR Revolutionizes Movie-Watching</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-top-pfp-concepts-to-boost-your-tiktok-profiles-attractiveness/"><u>[Updated] 2024 Approved Top PFP Concepts to Boost Your TikTok Profile's Attractiveness</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-essential-techniques-for-splendid-lyric-videos-lyric-video-maker-edition/"><u>[Updated] In 2024, Essential Techniques for Splendid Lyric Videos, Lyric Video Maker Edition</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-story-syndicate-visionary-voyages-best/"><u>2024 Approved Story Syndicate – Visionary Voyage's Best</u></a></li>
-<li><a href="https://location-fake.techidaily.com/4-methods-to-turn-off-life-360-on-samsung-galaxy-s23-fe-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>4 Methods to Turn off Life 360 On Samsung Galaxy S23 FE without Anyone Knowing | Dr.fone</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/exciting-update-microsoft-introduces-surface-devices-and-copilot-for-enterprise-customers-discover-the-latest-features-zdnet/"><u>Exciting Update: Microsoft Introduces Surface Devices & Copilot for Enterprise Customers - Discover the Latest Features! [ZDNet]</u></a></li>
-<li><a href="https://change-location.techidaily.com/guide-how-to-unbrick-a-bricked-itel-a60-phone-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Guide How To Unbrick a Bricked Itel A60 Phone | Dr.fone</u></a></li>
-<li><a href="https://apple-account.techidaily.com/how-to-sign-out-of-apple-id-on-apple-iphone-se-2022-without-password-by-drfone-ios/"><u>How to Sign Out of Apple ID On Apple iPhone SE (2022) without Password?</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/in-2024-a-countdown-of-the-most-memorable-animated-tiktoks/"><u>In 2024, A Countdown of the Most Memorable Animated TikToks</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/innovative-ideas-for-dazzling-and-distinctive-tiktok-profiles-for-2024/"><u>Innovative Ideas for Dazzling and Distinctive TikTok Profiles for 2024</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/jumpstart-your-photo-editing-essential-pixlr-wisdoms-for-2024/"><u>Jumpstart Your Photo Editing Essential Pixlr Wisdoms for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/quick-and-easy-snapshot-sharing-a-step-by-point-guide/"><u>Quick and Easy Snapshot Sharing – A Step-By Point Guide</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/unveiling-captivating-content-the-ultimate-guide-to-tiktok-captions/"><u>Unveiling Captivating Content The Ultimate Guide to TikTok Captions</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-comprehensive-app-audit-by-az-recorder-for-2024/"><u>[Updated] Comprehensive App Audit by AZ Recorder for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-exclusive-mac-high-res-screen-and-audio-recorder-for-2024/"><u>[Updated] Exclusive Mac High-Res Screen & Audio Recorder for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-unbroken-dance-broadcasts-on-xigua-video/"><u>[Updated] In 2024, Unbroken Dance Broadcasts on Xigua Video</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-jive-into-action-creating-engaging-tiktok-dances-on-a-mac-for-2024/"><u>[Updated] Jive Into Action Creating Engaging TikTok Dances on a Mac for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-the-art-of-capturing-flawless-ootd-tiktoks-on-a-mac-for-2024/"><u>[Updated] The Art of Capturing Flawless OOTD TikToks on a Mac for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-tiktok-prosperity-program-entry-guide-and-earn-with-filmora-for-2024/"><u>[Updated] TikTok Prosperity Program Entry Guide & Earn with Filmora for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/elite-arena-showdown-best-of-the-royales-for-2024/"><u>Elite Arena Showdown Best of the Royales for 2024</u></a></li>
+<li><a href="https://solve-outstanding.techidaily.com/ensure-compatibility-convert-drm-free-pdfs-before-transferring-to-your-pc/"><u>Ensure Compatibility: Convert DRM-Free PDFs Before Transferring to Your PC</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-simple-steps-to-master-no-cost-time-tracking/"><u>In 2024, Simple Steps to Master No-Cost Time Tracking</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/updated-2024-approved-how-to-make-stunning-glitch-effect-in-photoshop/"><u>Updated 2024 Approved How to Make Stunning Glitch Effect in Photoshop?</u></a></li>
 </ul></div>
 
