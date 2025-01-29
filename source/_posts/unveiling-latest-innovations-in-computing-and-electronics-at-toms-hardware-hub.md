@@ -1,7 +1,7 @@
 ---
 title: Unveiling Latest Innovations in Computing & Electronics at Tom's Hardware Hub
-date: 2025-01-21T01:46:44.827Z
-updated: 2025-01-21T22:46:40.165Z
+date: 2025-01-23T17:02:47.025Z
+updated: 2025-01-29T17:19:32.078Z
 tags:
   - desktop
 categories:
@@ -14,7 +14,7 @@ thumbnail: https://cdn.mos.cms.futurecdn.net/LCbG8RwNDZHdVnhQuwPna5-320-80.jpg
 [Hewlett Packard](https://www.tomshardware.com/tag/hewlett-packard) [Enterprise](https://www.tomshardware.com/tag/enterprise) (HPE), one of the world's largest makers of servers, has initiated a legal battle against Inspur Group, China's largest server maker, and its affiliates, alleging server patent infringements. HPE accuses Inspur of engaging in deceptive practices and renaming its subsidiaries in the U.S. to continue its business with American companies despite being included into the Entity List.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## HPE: Inspur infringes our patents
@@ -28,7 +28,7 @@ thumbnail: https://cdn.mos.cms.futurecdn.net/LCbG8RwNDZHdVnhQuwPna5-320-80.jpg
  LATEST VIDEOS FROM tomshardware Tom's Hardware
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Despite being on the Entity List, Inspur continues operations in the U.S
@@ -38,7 +38,7 @@ thumbnail: https://cdn.mos.cms.futurecdn.net/LCbG8RwNDZHdVnhQuwPna5-320-80.jpg
  The complaint claims that Inspur that inspur continues its operations in the United States under Aivres Systems and Betapex. Inspur allegedly removed its branding from products sold in the U.S. and continues to sell them. For example, Inspur's IR5280M6 server is Aivres's 5280M6 machine, it has the same specification and design, according to HPE's complaint. Meanwhile, Inspur has also worked as a contract maker of servers, according to The Register. Yet, if a U.S. entity plans to work with Inspur (or any other party from the Entity List), it has to get a special license from the U.S. government.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -64,21 +64,22 @@ thumbnail: https://cdn.mos.cms.futurecdn.net/LCbG8RwNDZHdVnhQuwPna5-320-80.jpg
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-tips-and-tricks-for-efficient-twitch-stream-recordings/"><u>[New] 2024 Approved Tips and Tricks for Efficient Twitch Stream Recordings</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-how-to-make-tiktok-reaction-videos-in-2-proven-ways-filmora/"><u>[New] How to Make TikTok Reaction Videos in 2 Proven Ways - Filmora</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-speedy-tiktok-video-performance-a-step-by-step-plan/"><u>[New] In 2024, Speedy TikTok Video Performance A Step-by-Step Plan</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/he-future-of-youtube-naming-trendsetting-tips-for-video-blogging-and-filmmaking-max-156-characters/"><u>[New] The Future of YouTube Naming Trendsetting Tips for Video Blogging & Filmmaking (Max 156 Characters)</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-decoding-successful-tiktok-advertising-plans/"><u>[Updated] 2024 Approved Decoding Successful TikTok Advertising Plans</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-propel-your-passion-profits-joining-the-elite-of-tiktok-creators/"><u>[Updated] 2024 Approved Propel Your Passion Profits Joining the Elite of TikTok Creators</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-conquer-tiktok-installation-made-simple-for-macbook-users-for-2024/"><u>[Updated] Conquer TikTok Installation Made Simple for MacBook Users for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-guide-to-large-prop-integration-in-tiktok-productions/"><u>[Updated] Guide to Large Prop Integration in TikTok Productions</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-accelerate-your-income-on-tiktok-with-these-8-profitable-methods/"><u>[Updated] In 2024, Accelerate Your Income on TikTok with These 8 Profitable Methods</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-unlock-mysteries-select-top-puzzle-houses/"><u>2024 Approved Unlock Mysteries Select Top Puzzle Houses</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210847281-9781841815527-find-your-power-crystals/"><u>Find Your Power: Crystals | Free Book</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-unlock-samsung-galaxy-s24-pin-codepattern-lockpassword-by-drfone-android/"><u>How to Unlock Samsung Galaxy S24 PIN Code/Pattern Lock/Password</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-tips-and-tricks-for-setting-up-your-xiaomi-13-ultra-phone-pattern-lock-by-drfone-android/"><u>In 2024, Tips and Tricks for Setting Up your Xiaomi 13 Ultra Phone Pattern Lock</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ultimate-guide-to-catch-the-regional-located-pokemon-for-realme-c55-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate Guide to Catch the Regional-Located Pokemon For Realme C55 | Dr.fone</u></a></li>
-<li><a href="https://win-blog.techidaily.com/overcoming-phasmophobia-crash-bugs-with-proven-techniques/"><u>Overcoming Phasmophobia Crash Bugs with Proven Techniques</u></a></li>
-<li><a href="https://win11.techidaily.com/solve-defective-windows-keys-a-quick-guide/"><u>Solve Defective Windows Keys: A Quick Guide</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-reworking-your-online-identity-comprehensive-tiktok-username-change-protocols/"><u>[New] 2024 Approved Reworking Your Online Identity Comprehensive TikTok Username Change Protocols</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-embrace-freedom-with-easy-watermark-free-tiktok-videos-for-2024/"><u>[New] Embrace Freedom with Easy, Watermark-Free TikTok Videos for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-quick-route-downloading-and-launching-tiktok-app-in-macbook/"><u>[New] In 2024, Quick Route Downloading and Launching TikTok App in MacBook</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-steps-to-confirm-video-compliance-before-tiktok-posting/"><u>[New] Steps to Confirm Video Compliance Before TikTok Posting</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-engaging-audiences-with-jujutsu-kaisen-tiktok-content/"><u>[Updated] 2024 Approved Engaging Audiences with Jujutsu Kaisen TikTok Content</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-enhance-browsing-performance-unlocking-the-power-of-picture-in-picture/"><u>[Updated] 2024 Approved Enhance Browsing Performance Unlocking the Power of Picture-in-Picture</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-how-to-choose-the-right-thumbnail-size-for-impact/"><u>[Updated] In 2024, How to Choose the Right Thumbnail Size for Impact</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-15-groundbreayer-tiktok-challenges-to-master-now/"><u>2024 Approved 15 Groundbreayer TikTok Challenges to Master Now</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-mastering-the-art-of-imitation-for-a-unique-and-authentic-tiktok-presence/"><u>2024 Approved Mastering the Art of Imitation for a Unique and Authentic TikTok Presence</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/a-perfect-guide-to-remove-or-disable-google-smart-lock-on-oppo-a56s-5g-by-drfone-android/"><u>A Perfect Guide To Remove or Disable Google Smart Lock On Oppo A56s 5G</u></a></li>
+<li><a href="https://app-tips.techidaily.com/discover-the-best-ipad-video-players-for-2n4-a-guide-to-downloading-reliable-solutions/"><u>Discover the Best iPad Video Players for 2N4: A Guide to Downloading Reliable Solutions</u></a></li>
+<li><a href="https://video-capture.techidaily.com/essential-steps-for-logging-virtual-exchanges/"><u>Essential Steps for Logging Virtual Exchanges</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-unlock-your-infinix-note-30-vip-phone-with-ease-the-3-best-lock-screen-removal-tools-by-drfone-android/"><u>In 2024, Unlock Your Infinix Note 30 VIP Phone with Ease The 3 Best Lock Screen Removal Tools</u></a></li>
+<li><a href="https://common-error.techidaily.com/navigating-windows-10s-file-explorer-with-ease-helpful-hints-inside/"><u>Navigating Windows 10'S File Explorer with Ease – Helpful Hints Inside!</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/steps-for-a-never-to-return-from-tiktok-space/"><u>Steps for a Never-to-Return From TikTok Space</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/unlocking-fortnite-in-educational-settings-a-comprehensive-guide/"><u>Unlocking Fortnite in Educational Settings: A Comprehensive Guide</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/your-smart-tvs-secret-beyond-entertainment-it-monitors-all-you-do/"><u>Your Smart TV's Secret: Beyond Entertainment, It Monitors All You Do</u></a></li>
 </ul></div>
 

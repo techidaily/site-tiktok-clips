@@ -1,7 +1,7 @@
 ---
 title: Interactive Learning Zone Opens for Youth in Japan - 'Build Your Own Computer' Experience with Actual Components
-date: 2025-01-18T02:02:02.845Z
-updated: 2025-01-22T01:45:53.264Z
+date: 2025-01-24T21:49:50.292Z
+updated: 2025-01-29T20:24:50.134Z
 tags:
   - desktop
 categories:
@@ -50,7 +50,7 @@ One-Netbook, the team behind the OneXPlayer handheld console and the OneXGPU GPU
  Pre-orders for a 32 GB RAM / 1 TB SSD OneXPlayer M1 are already in Japan at JPY142,310 (or around $900). But if you bundle it with the OneXGPU, you get a 10% discount on the eGPU. So, if you’re looking for a small PC you can quickly move around but don’t sacrifice performance and graphical power, you should watch out for the OneXPlayer M1 mini-PC.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -76,18 +76,18 @@ One-Netbook, the team behind the OneXPlayer handheld console and the OneXGPU GPU
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/outube-playlist-turnaround-a-simple-4-step-plan-for-2024/"><u>[New] YouTube Playlist Turnaround A Simple 4-Step Plan for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-unveiling-hidden-tiktok-ban-criteria/"><u>[Updated] In 2024, Unveiling Hidden TikTok Ban Criteria</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-initiatives-for-reclaiming-your-tiktok-presence-for-2024/"><u>[Updated] Initiatives for Reclaiming Your TikTok Presence for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-on-demand-rhythm-sharing-on-xigua-video-for-2024/"><u>[Updated] On-Demand Rhythm Sharing on Xigua Video for 2024</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-premium-mac-edition-screens-and-sound-syncing-for-2024/"><u>[Updated] Premium Mac Edition Screens and Sound Syncing for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-unlocking-tiktoks-top-tricks-to-go-viral/"><u>[Updated] Unlocking TikTok's Top Tricks to Go Viral</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/2024-approved-elevate-your-media-projects-utilizing-story-remix-in-windows-photos/"><u>2024 Approved Elevate Your Media Projects Utilizing Story Remix in Windows Photos</u></a></li>
-<li><a href="https://win-dash.techidaily.com/effortless-setup-how-to-get-samsung-c460-drivers-in-a-flash/"><u>Effortless Setup: How To Get Samsung C460 Drivers in a Flash</u></a></li>
-<li><a href="https://fox-that.techidaily.com/fixing-a-broken-iphone-mute-function-a-guide-to-solving-silentring-mode-issues-without-the-switch/"><u>Fixing a Broken iPhone Mute Function: A Guide to Solving Silent/Ring Mode Issues Without The Switch</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-on-htc-u23-prowithwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock on HTC U23 Prowith/without a PC</u></a></li>
-<li><a href="https://fox-where.techidaily.com/is-the-escalation-of-israel-palestine-conflict-indicative-of-golds-bullish-trend-in-futures-prices-experts-at-yl-computing-and-yl-software-weigh-in/"><u>Is the Escalation of Israel-Palestine Conflict Indicative of Gold's Bullish Trend in Futures Prices? Experts at YL Computing and YL Software Weigh In</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/prime-enterprise-sky-space-hoarder/"><u>Prime Enterprise Sky Space Hoarder</u></a></li>
-<li><a href="https://common-error.techidaily.com/solving-the-dilemma-of-malfunctioning-usb-input-devices-in-windows-7-systems/"><u>Solving the Dilemma of Malfunctioning USB Input Devices in Windows 7 Systems</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-get-free-stock-footage-from-these-4-youtube-channels/"><u>[New] 2024 Approved Get Free Stock Footage From These 4 YouTube Channels</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-replicating-your-presence-the-essential-tiktok-clone-blueprint/"><u>[New] 2024 Approved Replicating Your Presence The Essential TikTok Clone Blueprint</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-the-ultimate-selection-identifying-best-12-vloggers-camera-choices/"><u>[New] 2024 Approved The Ultimate Selection Identifying Best 12 Vloggers' Camera Choices</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-securely-amplifying-your-tiktok-presence-wisely/"><u>[New] In 2024, Securely Amplifying Your TikTok Presence Wisely</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-direct-mac-pics-to-a-new-saving-area/"><u>[Updated] Direct Mac Pics to a New Saving Area</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-spinning-jujutsu-kaisen-stories-on-tiktok/"><u>[Updated] In 2024, Spinning Jujutsu Kaisen Stories on TikTok</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-instant-charm-iphones-extended-shutter-showcase/"><u>[Updated] Instant Charm IPhone’s Extended Shutter Showcase</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/10-vital-tiktok-analytics-for-cutting-edge-content-strategy-for-2024/"><u>10 Vital TikTok Analytics for Cutting-Edge Content Strategy for 2024</u></a></li>
+<li><a href="https://fox-sure.techidaily.com/aomei-backupper-step-by-step-guide-to-professional-disk-backup-with-aomei-backupper/"><u>AOMEI Backupper:專業硬碟備份步驟解析 - Step-by-Step Guide to Professional Disk Backup with AOMEI Backupper</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/in-2024-from-concept-to-cinematic-the-art-of-creating-memorable-tiktoks-with-templates/"><u>In 2024, From Concept to Cinematic The Art of Creating Memorable TikToks with Templates</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-the-updated-method-to-bypass-infinix-gt-10-pro-frp-by-drfone-android/"><u>In 2024, The Updated Method to Bypass Infinix GT 10 Pro FRP</u></a></li>
+<li><a href="https://techtrends.techidaily.com/overcoming-dvd-playback-errors-on-mactv-common-problems-and-proven-resolution-strategies/"><u>Overcoming DVD Playback Errors on Mac/TV - Common Problems and Proven Resolution Strategies</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/streamline-your-tiktok-lives-4-essential-desktop-practices/"><u>Streamline Your TikTok Lives 4 Essential Desktop Practices</u></a></li>
 </ul></div>
 

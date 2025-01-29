@@ -1,7 +1,7 @@
 ---
 title: "Compact Power Surge: AMD Ryzen NUC with a 4K Flip-Up Screen, Hexa-Core CPU & Up To 32GB RAM for Ultimate Productivity and Gaming Performance"
-date: 2025-01-15T22:30:14.889Z
-updated: 2025-01-21T17:14:54.779Z
+date: 2025-01-26T21:59:23.536Z
+updated: 2025-01-29T18:31:44.710Z
 tags:
   - desktop
 categories:
@@ -46,7 +46,7 @@ The Xyber Team launched its Xyber XPC Mini Desktop Computer campaign on[Indiegog
  We don’t have pricing information yet about the Xyber XPC, though, as it’s still in the campaign pre-launch stage. But the team behind the mini-PC Cybertruck says that they’re optimizing the BIOS and OS to get the best performance out of this small desktop computer.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -74,21 +74,24 @@ The Xyber Team launched its Xyber XPC Mini Desktop Computer campaign on[Indiegog
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-boost-your-creative-output-mastering-template-centric-video-making-for-tiktok/"><u>[New] 2024 Approved Boost Your Creative Output Mastering Template-Centric Video Making for TikTok</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-elite-watchlist-top-10-advanced-video-capture-programs-for-2024/"><u>[New] Elite Watchlist Top 10 Advanced Video Capture Programs for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-reviving-unresponsive-obs-camera-integration-for-2024/"><u>[New] Reviving Unresponsive OBS Camera Integration for 2024</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-streaming-platforms-battle-evaluating-streamlabs-and-obs-features-for-2024/"><u>[New] Streaming Platforms Battle Evaluating Streamlabs & OBS Features for 2024</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-from-views-to-revenue-simplifying-the-process-with-a-3-step-framework-for-monitoring-youtube-income/"><u>[Updated] 2024 Approved From Views to Revenue Simplifying the Process with a 3-Step Framework for Monitoring YouTube Income</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-discovering-the-creme-de-la-gaming-crowd-on-tiktok-for-2024/"><u>[Updated] Discovering the Crème De La Gaming Crowd on TikTok for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-pixels-and-power-revisiting-magix-manager-for-2024/"><u>[Updated] Pixels and Power Revisiting MAGIX Manager for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-the-rhythm-revolution-crafting-mesmerizing-tiktok-dances-with-mac/"><u>[Updated] The Rhythm Revolution Crafting Mesmerizing TikTok Dances with Mac</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/1716469713481-2024-approved-how-to-join-someones-live-on-tiktok-as-a-guest/"><u>2024 Approved How to Join Someone’s Live on TikTok as a Guest</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-the-guide-to-sharing-your-tiktok-content-on-twitter/"><u>2024 Approved The Guide to Sharing Your TikTok Content on Twitter</u></a></li>
-<li><a href="https://location-social.techidaily.com/4-feasible-ways-to-fake-location-on-facebook-for-your-lava-blaze-2-pro-drfone-by-drfone-virtual-android/"><u>4 Feasible Ways to Fake Location on Facebook For your Lava Blaze 2 Pro | Dr.fone</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/crossing-the-line-free-verifying-video-rights-on-tiktok/"><u>Crossing the Line-Free Verifying Video Rights on TikTok</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/in-2024-capture-attention-with-influential-tags-on-social-medias-tiktok/"><u>In 2024, Capture Attention with Influential Tags on Social Media's TikTok</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/in-2024-enhance-tiktok-authenticity-changing-your-digital-vocal-trail/"><u>In 2024, Enhance TikTok Authenticity Changing Your Digital Vocal Trail</u></a></li>
-<li><a href="https://win11.techidaily.com/the-ultimate-tricks-for-mass-folder-creation-at-a-click-in-windows-oses/"><u>The Ultimate Tricks for Mass Folder Creation at a Click in Windows OSes</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/youtubers-picks-on-anti-shake-gear-for-professional-videos/"><u>YouTubers’ Picks on Anti-Shake Gear for Professional Videos</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-decoding-the-usage-of-pfp-across-social-networks-including-tiktok/"><u>[New] 2024 Approved Decoding the Usage of 'PFP' Across Social Networks, Including TikTok</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-dont-miss-out-this-weeks-tiktok-trials/"><u>[New] 2024 Approved Don't Miss Out This Week’s TikTok Trials</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-elevating-your-business-navigating-tiktok-trends-and-techniques/"><u>[New] 2024 Approved Elevating Your Business Navigating TikTok Trends & Techniques</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-jujutsu-kaisen-tiktok-a-step-by-step-guide/"><u>[New] 2024 Approved Jujutsu Kaisen TikTok A Step-by-Step Guide</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-masterful-instagram-reel-editors-the-ultimate-top-10-list/"><u>[New] 2024 Approved Masterful Instagram Reel Editors The Ultimate Top 10 List</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-clear-up-creations-leading-emblem-eraser-tools/"><u>[Updated] Clear Up Creations Leading Emblem Eraser Tools</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-direct-engagement-broadcasting-from-your-xbox-to-fb-for-2024/"><u>[Updated] Direct Engagement Broadcasting From Your Xbox to FB for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-country-grooves-for-calmness-top-20-tiktok-anthems/"><u>2024 Approved Country Grooves for Calmness Top 20 TikTok Anthems</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-crafting-social-stardom-30-ingenious-tiktok-nicknames-to-consider/"><u>2024 Approved Crafting Social Stardom 30 Ingenious TikTok Nicknames to Consider</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/breaking-free-from-the-old-a-complete-step-by-step-guide-to-updating-your-tiktok-avatar/"><u>Breaking Free From the Old A Complete, Step-By-Step Guide to Updating Your TikTok Avatar</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/bridging-the-gap-between-standard-and-superior-video-quality-techniques-for-2024/"><u>Bridging the Gap Between Standard and Superior Video Quality Techniques for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/choosing-the-right-partners-for-a-safer-tiktok-expansion-for-2024/"><u>Choosing the Right Partners for a Safer TikTok Expansion for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/comprehensive-step-by-step-for-youtube-chapters-the-complete-guide/"><u>Comprehensive Step-by-Step for YouTube Chapters The Complete Guide</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/dynamic-dimensions-designing-text-in-three-dimension/"><u>Dynamic Dimensions Designing Text in Three-Dimension</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-prolific-iphone-photography-cutting-edge-app-selection-guide/"><u>In 2024, Prolific iPhone Photography Cutting-Edge App Selection Guide</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/the-funniest-in-the-business-5-reaction-video-makers-youll-love/"><u>The Funniest in the Business 5 Reaction Video Makers Youll Love</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/the-ultimate-iphone-guide-to-slow-motion-magic/"><u>The Ultimate iPhone Guide to Slow-Motion Magic</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/ultimate-solution-30-usb-hub-saves-the-day-for-macbook-users-discover-more-on-zdnet/"><u>Ultimate Solution: $30 USB Hub Saves the Day for MacBook Users - Discover More on ZDNet!</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/unleashing-the-power-of-tales-complimentary-apps-galore-for-2024/"><u>Unleashing the Power of Tales Complimentary Apps Galore for 2024</u></a></li>
 </ul></div>
 
