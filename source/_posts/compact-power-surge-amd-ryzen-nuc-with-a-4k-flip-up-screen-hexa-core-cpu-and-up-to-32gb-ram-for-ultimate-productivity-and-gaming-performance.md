@@ -1,7 +1,7 @@
 ---
 title: "Compact Power Surge: AMD Ryzen NUC with a 4K Flip-Up Screen, Hexa-Core CPU & Up To 32GB RAM for Ultimate Productivity and Gaming Performance"
-date: 2025-01-26T21:59:23.536Z
-updated: 2025-01-29T18:31:44.710Z
+date: 2025-02-02T20:03:19.107Z
+updated: 2025-02-10T05:33:19.074Z
 tags:
   - desktop
 categories:
@@ -46,7 +46,7 @@ The Xyber Team launched its Xyber XPC Mini Desktop Computer campaign on[Indiegog
  We don’t have pricing information yet about the Xyber XPC, though, as it’s still in the campaign pre-launch stage. But the team behind the mini-PC Cybertruck says that they’re optimizing the BIOS and OS to get the best performance out of this small desktop computer.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -74,24 +74,19 @@ The Xyber Team launched its Xyber XPC Mini Desktop Computer campaign on[Indiegog
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-decoding-the-usage-of-pfp-across-social-networks-including-tiktok/"><u>[New] 2024 Approved Decoding the Usage of 'PFP' Across Social Networks, Including TikTok</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-dont-miss-out-this-weeks-tiktok-trials/"><u>[New] 2024 Approved Don't Miss Out This Week’s TikTok Trials</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-elevating-your-business-navigating-tiktok-trends-and-techniques/"><u>[New] 2024 Approved Elevating Your Business Navigating TikTok Trends & Techniques</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-jujutsu-kaisen-tiktok-a-step-by-step-guide/"><u>[New] 2024 Approved Jujutsu Kaisen TikTok A Step-by-Step Guide</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-masterful-instagram-reel-editors-the-ultimate-top-10-list/"><u>[New] 2024 Approved Masterful Instagram Reel Editors The Ultimate Top 10 List</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-clear-up-creations-leading-emblem-eraser-tools/"><u>[Updated] Clear Up Creations Leading Emblem Eraser Tools</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-direct-engagement-broadcasting-from-your-xbox-to-fb-for-2024/"><u>[Updated] Direct Engagement Broadcasting From Your Xbox to FB for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/2024-approved-country-grooves-for-calmness-top-20-tiktok-anthems/"><u>2024 Approved Country Grooves for Calmness Top 20 TikTok Anthems</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/2024-approved-crafting-social-stardom-30-ingenious-tiktok-nicknames-to-consider/"><u>2024 Approved Crafting Social Stardom 30 Ingenious TikTok Nicknames to Consider</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/breaking-free-from-the-old-a-complete-step-by-step-guide-to-updating-your-tiktok-avatar/"><u>Breaking Free From the Old A Complete, Step-By-Step Guide to Updating Your TikTok Avatar</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/bridging-the-gap-between-standard-and-superior-video-quality-techniques-for-2024/"><u>Bridging the Gap Between Standard and Superior Video Quality Techniques for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/choosing-the-right-partners-for-a-safer-tiktok-expansion-for-2024/"><u>Choosing the Right Partners for a Safer TikTok Expansion for 2024</u></a></li>
-<li><a href="https://extra-information.techidaily.com/comprehensive-step-by-step-for-youtube-chapters-the-complete-guide/"><u>Comprehensive Step-by-Step for YouTube Chapters The Complete Guide</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/dynamic-dimensions-designing-text-in-three-dimension/"><u>Dynamic Dimensions Designing Text in Three-Dimension</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-prolific-iphone-photography-cutting-edge-app-selection-guide/"><u>In 2024, Prolific iPhone Photography Cutting-Edge App Selection Guide</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/the-funniest-in-the-business-5-reaction-video-makers-youll-love/"><u>The Funniest in the Business 5 Reaction Video Makers Youll Love</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/the-ultimate-iphone-guide-to-slow-motion-magic/"><u>The Ultimate iPhone Guide to Slow-Motion Magic</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/ultimate-solution-30-usb-hub-saves-the-day-for-macbook-users-discover-more-on-zdnet/"><u>Ultimate Solution: $30 USB Hub Saves the Day for MacBook Users - Discover More on ZDNet!</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/unleashing-the-power-of-tales-complimentary-apps-galore-for-2024/"><u>Unleashing the Power of Tales Complimentary Apps Galore for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-the-finest-webcam-tech-for-next-gen-windows-11-users-for-2024/"><u>[New] The Finest Webcam Tech for Next-Gen Windows 11 Users for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-jumpstart-your-journey-to-tiktok-fame-with-these-hits/"><u>[Updated] Jumpstart Your Journey to TikTok Fame with These Hits</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-leveraging-content-for-maximum-impact-growing-view-count-on-tiktok-for-2024/"><u>[Updated] Leveraging Content for Maximum Impact Growing View Count on TikTok for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-masterclass-guide-to-excellent-pcmac-recorders-for-2024/"><u>[Updated] Masterclass Guide to Excellent PC/Mac Recorders for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-quick-and-effective-ways-to-expand-your-tiktok-clan-for-2024/"><u>[Updated] Quick and Effective Ways to Expand Your TikTok Clan for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-quickstart-guide-key-elements-of-tiktok-macos/"><u>[Updated] Quickstart Guide Key Elements of TikTok (macOS)</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-securely-boost-your-tiktok-engagement-and-reach/"><u>[Updated] Securely Boost Your TikTok Engagement & Reach</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/fixing-call-of-duty-wwii-error-4220-heres-your-complete-troubleshooting-solution/"><u>Fixing Call of Duty WWII Error 4220? Here's Your Complete Troubleshooting Solution</u></a></li>
+<li><a href="https://article-helps.techidaily.com/in-2024-harmonizing-sounds-seamless-transitions-in-ableton-live/"><u>In 2024, Harmonizing Sounds Seamless Transitions in Ableton Live</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-network-locked-sim-card-inserted-on-your-oneplus-ace-2-phone-unlock-it-now-by-drfone-android/"><u>In 2024, Network Locked SIM Card Inserted On Your OnePlus Ace 2 Phone? Unlock It Now</u></a></li>
+<li><a href="https://program-issues.techidaily.com/pc-gaming-alert-solving-hell-let-loose-continuous-crash-problems/"><u>PC Gaming Alert: Solving 'Hell Let Loose' Continuous Crash Problems</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/reinstating-default-view-configurations-in-windows/"><u>Reinstating Default View Configurations in Windows</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/resolving-an-alone-earpiece-dilemma-for-2024/"><u>Resolving an Alone Earpiece Dilemma for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/struggling-with-game-installs-xbox-app-solutions/"><u>Struggling with Game Installs: Xbox App Solutions</u></a></li>
 </ul></div>
 

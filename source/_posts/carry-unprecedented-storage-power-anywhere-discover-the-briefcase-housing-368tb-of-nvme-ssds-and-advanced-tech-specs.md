@@ -1,7 +1,7 @@
 ---
 title: "Carry Unprecedented Storage Power Anywhere: Discover the Briefcase Housing 368TB of NVMe SSDs and Advanced Tech Specs"
-date: 2025-01-25T18:13:40.514Z
-updated: 2025-01-29T22:25:58.789Z
+date: 2025-02-04T20:28:48.001Z
+updated: 2025-02-10T07:47:55.701Z
 tags:
   - desktop
 categories:
@@ -48,7 +48,7 @@ Ordinary canned air products shoot out jets of gas with a surprising amount of v
  In tests, the canned air soon ran out of pressure between bursts, but more consistent shock diamonds were pictured from the nozzle of an air compressor (90 PSI). However, the YouTuber's favorite demo was delivered using the ball pump nozzle on the air compressor hose. Have a look through the gallery above for some of the great shock diamonds emitted from the canned air and various nozzles attached to a shop compressor.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -74,24 +74,24 @@ Ordinary canned air products shoot out jets of gas with a surprising amount of v
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-epic-prank-ideas-with-a-twist-of-anime-on-tiktok/"><u>[New] 2024 Approved Epic Prank Ideas with a Twist of Anime on TikTok</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/fficient-mac-video-resizing-to-fixed-ratio/"><u>[New] Efficient Mac Video Resizing to Fixed Ratio</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-elevate-your-tiktok-videos-with-compelling-captions-for-2024/"><u>[New] Elevate Your TikTok Videos with Compelling Captions for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-interactive-therapy-in-the-virtual-world/"><u>[New] Interactive Therapy in the Virtual World</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-pulse-pounding-perfection-create-compelling-tiktok-videos-with-templates-for-2024/"><u>[New] Pulse-Pounding Perfection Create Compelling TikTok Videos with Templates for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-tips-for-entering-a-friends-tiktok-live-stream/"><u>[New] Tips for Entering a Friend's TikTok Live Stream</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-dividing-opinions-is-mirrorless-better-than-dslr-for-vids/"><u>[Updated] 2024 Approved Dividing Opinions Is Mirrorless Better than DSLR for Vids?</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-creative-edge-ideas-to-make-your-tiktok-fp-memorable/"><u>[Updated] In 2024, Creative Edge Ideas to Make Your TikTok FP Memorable</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-in-2024-high-fidelity-mobile-sound-selector/"><u>[Updated] In 2024, High Fidelity Mobile Sound Selector</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-how-to-simplify-tiktok-video-creation-using-siri-commands-and-features/"><u>[Updated] In 2024, How to Simplify TikTok Video Creation Using Siri Commands and Features</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-tiktoks-take-jujutsu-kaisen-challenges-and-laughs/"><u>[Updated] In 2024, TikTok's Take Jujutsu Kaisen Challenges and Laughs</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-unleash-your-creativity-innovative-online-crop-strategies/"><u>[Updated] Unleash Your Creativity - Innovative Online Crop Strategies</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-walkthrough-ending-your-tiktok-journey-forever-for-2024/"><u>[Updated] Walkthrough Ending Your TikTok Journey Forever for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/connect-and-conquer-tips-for-eternal-snapstreaks/"><u>Connect and Conquer Tips for Eternal Snapstreaks</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-change-gps-location-on-samsung-galaxy-f54-5g-easily-and-safely-drfone-by-drfone-virtual-android/"><u>How to Change GPS Location on Samsung Galaxy F54 5G Easily & Safely | Dr.fone</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/how-to-repair-a-malfunctioning-mic-for-windows-11-users-step-by-step/"><u>How to Repair a Malfunctioning Mic for Windows 11 Users - Step by Step</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-wondering-the-best-alternative-to-hola-on-honor-x50i-here-is-the-answer-drfone-by-drfone-virtual-android/"><u>In 2024, Wondering the Best Alternative to Hola On Honor X50i? Here Is the Answer | Dr.fone</u></a></li>
-<li><a href="https://common-error.techidaily.com/reappearance-of-lost-desktop-icons-for-windows-10-users-easy-fixes/"><u>Reappearance of Lost Desktop Icons for Windows 10 Users: Easy Fixes</u></a></li>
-<li><a href="https://games-able.techidaily.com/the-ultimate-guide-to-keeping-your-steam-deck-at-the-perfect-temperature/"><u>The Ultimate Guide to Keeping Your Steam Deck at the Perfect Temperature</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-find-the-optimal-screen-capture-solutions-in-linux/"><u>[New] 2024 Approved Find the Optimal Screen Capture Solutions in Linux</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-gentle-request-for-a-greater-genuine-community/"><u>[New] 2024 Approved Gentle Request for a Greater, Genuine Community</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-high-paying-creator-status-on-youtube/"><u>[New] 2024 Approved High-Paying Creator Status on YouTube</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-key-industry-figures-transforming-vr-gaming-for-2024/"><u>[New] Key Industry Figures Transforming VR Gaming for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-insightful-comparison-of-triller-and-tiktoks-content-models-max-156-chars/"><u>[Updated] Insightful Comparison of Triller and TikTok's Content Models (Max 156 Chars)</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-premier-tiktok-editing-apps-for-windows-users/"><u>[Updated] Premier TikTok Editing Apps for Windows Users</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-quick-and-effective-ways-to-expand-your-tiktok-clan/"><u>[Updated] Quick and Effective Ways to Expand Your TikTok Clan</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-stay-on-top-of-fashion-and-savings-amazons-essential-tiktok-finds-for-2024/"><u>[Updated] Stay on Top of Fashion & Savings - Amazon's Essential TikTok Finds for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-the-ultimate-hits-for-tiktok-stardom-for-2024/"><u>[Updated] The Ultimate Hits for TikTok Stardom for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-top-10-free-tiktok-video-editors-compatible-with-macos/"><u>[Updated] Top 10 FREE TikTok Video Editors Compatible with MacOS</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-top-3-approaches-to-big-head-makeover-in-tiktok-videos/"><u>[Updated] Top 3 Approaches to Big Head Makeover in TikTok Videos</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-top-8-proven-methods-for-earnings-on-tiktok/"><u>[Updated] Top 8 Proven Methods for Earnings on TikTok</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/get-the-latest-intel-centrino-n-6205-wifi-drivers-no-cost-installation-guide/"><u>Get the Latest: Intel Centrino N 6205 WiFi Drivers – No Cost Installation Guide</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-can-life360-track-or-see-text-messages-what-can-you-do-with-life360-on-infinix-gt-10-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Can Life360 Track Or See Text Messages? What Can You Do with Life360 On Infinix GT 10 Pro? | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-gateways-to-googles-advertising-on-youtube-platforms/"><u>In 2024, Gateways to Google's Advertising on YouTube Platforms</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/solutions-to-spy-on-honor-magic-6-lite-with-and-without-jailbreak-drfone-by-drfone-virtual-android/"><u>Solutions to Spy on Honor Magic 6 Lite with and without jailbreak | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/the-ultimate-expertise-in-expunging-stickers-from-videos/"><u>The Ultimate Expertise in Expunging Stickers From Videos</u></a></li>
+<li><a href="https://win-studio.techidaily.com/uberwindet-apple-itunes-schwierigkeiten-erfolgreiche-iphone-datenwiederherstellung-ohne-backup-mit-fonebackup/"><u>Überwindet Apple iTunes Schwierigkeiten: Erfolgreiche iPhone-Datenwiederherstellung Ohne Backup Mit FoneBackup</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/unlocking-potential-in-projects-with-chatgpt-a-how-to-approach/"><u>Unlocking Potential in Projects with ChatGPT - A How-To Approach</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Experience Lightning-Fast Performance: DIY Kit Enables Direct PCIe Link Between Mini PC and eGPU Surpassing Thunderbolt Amo"
-date: 2025-01-22T17:11:10.680Z
-updated: 2025-01-29T22:25:13.637Z
+date: 2025-02-05T07:53:28.356Z
+updated: 2025-02-10T05:02:19.624Z
 tags:
   - desktop
 categories:
@@ -36,7 +36,7 @@ Over on Chinese videosharing platform Bilibili, user 苏打baka uploaded a lengt
  So, what happened? Did the static buildup short out the PC or something? Fortunately, nothing so mundane. Instead, the fan PC was tested at increasingly higher speeds until the[weighty cooler](https://www.tomshardware.com/news/noctua-fanless-cooler-enters-production) was violently flung from the PC in the last moments of the original video. No wonder Sodabaka hid behind a riot shield for much of the video demo.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -62,21 +62,22 @@ Over on Chinese videosharing platform Bilibili, user 苏打baka uploaded a lengt
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-seamless-computer-based-tiktok-live-broadcast-setup/"><u>[New] 2024 Approved Seamless Computer-Based TikTok LIVE Broadcast Setup</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-striking-fp-designs-for-a-memorable-tiktok-identity/"><u>[New] 2024 Approved Striking FP Designs for a Memorable TikTok Identity</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-discover-tiktoks-10-best-gamers-now-for-2024/"><u>[New] Discover TikTok's 10 Best Gamers Now for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-camera-prospectus-ranking-the-top-5-superior-motion-cameras-for-2024/"><u>[Updated] Camera Prospectus Ranking the Top 5 Superior Motion Cameras for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-achieving-teleportation-magic-illusions/"><u>2024 Approved Achieving Teleportation Magic Illusions</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/chatgpt-personalization-tutorial-crafting-an-ai-that-writes-as-you-do/"><u>ChatGPT Personalization Tutorial: Crafting an AI that Writes as You Do</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/compact-tech-set-for-itinerant-filmmaking-for-2024/"><u>Compact Tech Set for Itinerant Filmmaking for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/dance-cook-and-eat-the-hottest-food-trends-on-tiktok-for-2024/"><u>Dance, Cook, and Eat The Hottest Food Trends on TikTok for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/deciphering-the-language-of-tiktok-a-deep-dive/"><u>Deciphering the Language of TikTok A Deep Dive</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/devising-a-personalized-tiktok-alphanumeric-marker-for-2024/"><u>Devising a Personalized TikTok Alphanumeric Marker for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/high-quality-tiktok-editors-ranked-1-10-on-windows/"><u>High-Quality TikTok Editors Ranked #1-10 on Windows</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-all-you-need-to-know-about-mega-greninja-for-motorola-moto-g13-drfone-by-drfone-virtual-android/"><u>In 2024, All You Need To Know About Mega Greninja For Motorola Moto G13 | Dr.fone</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/in-2024-memes-that-spark-global-conversation/"><u>In 2024, Memes that Spark Global Conversation</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-understanding-periscope-features-pricing-and-how-to-join/"><u>In 2024, Understanding Periscope Features, Pricing & How To Join</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/revolutionize-your-outdoor-adventures-with-romers-high-performance-rechargeable-spotlight/"><u>Revolutionize Your Outdoor Adventures with Romer's High-Performance Rechargeable Spotlight</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/understanding-the-latest-intel-chipset-flaw-affected-systems-patch-application-guide-and-in-depth-information/"><u>Understanding the Latest Intel Chipset Flaw – Affected Systems, Patch Application Guide & In-Depth Information</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-bring-your-text-to-life-techniques-for-3d-design-in-ps/"><u>[New] 2024 Approved Bring Your Text to Life Techniques for 3D Design in PS</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-enhance-video-speed-in-minutes-on-tiktok-filming/"><u>[New] Enhance Video Speed in Minutes on TikTok Filming</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-essential-free-mac-apps-to-perfect-your-tiktok-videos-for-2024/"><u>[New] Essential Free Mac Apps to Perfect Your TikTok Videos for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-navigating-the-landscape-post-vlc-dominance/"><u>[New] Navigating the Landscape Post-VLC Dominance</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-transforming-ordinary-to-extraordinary-edit-tiktok-vids-on-mac-for-2024/"><u>[New] Transforming Ordinary to Extraordinary Edit TikTok Vids on Mac for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-connect-to-a-real-time-tiktok-livestayers-world/"><u>[Updated] 2024 Approved Connect to a Real-Time TikTok Livestayer's World</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-key-steps-to-tag-your-youtube-video-effectively/"><u>[Updated] 2024 Approved Key Steps to Tag Your YouTube Video Effectively</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-beats-that-last-a-lifetime-top-tiktok-hits-of-2024-you-cant-forget/"><u>[Updated] Beats That Last a Lifetime Top TikTok Hits of 2024 You Can't Forget</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-how-to-use-text-to-speech-on-tiktok-a-complete-guide/"><u>[Updated] How to Use Text to Speech on TikTok - A Complete Guide</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-fabulous-critique-and-diverse-suggestions/"><u>2024 Approved Fabulous Critique & Diverse Suggestions</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-trailblazers-in-virtual-reality-experience/"><u>2024 Approved Trailblazers in Virtual Reality Experience</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-retrieve-lost-pictures-from-infinix-hot-40i-by-fonelab-android-recover-pictures/"><u>Best Android Data Recovery - Retrieve Lost Pictures from Infinix Hot 40i.</u></a></li>
+<li><a href="https://os-tips.techidaily.com/eat-healthy-foods-rich-in-omega-3-fatty-acids-foods-high-in-omega-3s-have-shown-promising-results-when-it-comes-to-reducing-depressive-symptoms-these-includ19/"><u>Eat Healthy Foods Rich in Omega-3 Fatty Acids: Foods High in Omega 3’S Have Shown Promising Results when It Comes to Reducing Depressive Symptoms. These Include Fish Oils (Salmon or Tuna), Flaxseed Oil Capsules, Walnuts & Soybeans Amongst Other Sources</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-image-innovation-for-windows-and-mac-photo-to-cartoon-software/"><u>In 2024, Image Innovation for Windows & Mac Photo-to-Cartoon Software</u></a></li>
+<li><a href="https://driver-error.techidaily.com/lenovo-plus-w11-bluetooth-sync-fixes-and-solutions/"><u>Lenovo + W11 Bluetooth Sync: Fixes & Solutions</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/strategies-to-differentiate-from-popular-tiktok-influencers-for-2024/"><u>Strategies to Differentiate From Popular TikTok Influencers for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/unmissable-fun-with-todays-viral-tiktok-trials-for-2024/"><u>Unmissable Fun with Today’s Viral TikTok Trials for 2024</u></a></li>
 </ul></div>
 
