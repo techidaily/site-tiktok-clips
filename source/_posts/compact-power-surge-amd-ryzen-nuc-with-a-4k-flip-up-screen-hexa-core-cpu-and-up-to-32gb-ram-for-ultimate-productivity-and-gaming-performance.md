@@ -1,7 +1,7 @@
 ---
 title: "Compact Power Surge: AMD Ryzen NUC with a 4K Flip-Up Screen, Hexa-Core CPU & Up To 32GB RAM for Ultimate Productivity and Gaming Performance"
-date: 2025-02-02T20:03:19.107Z
-updated: 2025-02-10T05:33:19.074Z
+date: 2025-02-18T04:29:41.958Z
+updated: 2025-02-20T09:12:21.808Z
 tags:
   - desktop
 categories:
@@ -46,7 +46,7 @@ The Xyber Team launched its Xyber XPC Mini Desktop Computer campaign on[Indiegog
  We don’t have pricing information yet about the Xyber XPC, though, as it’s still in the campaign pre-launch stage. But the team behind the mini-PC Cybertruck says that they’re optimizing the BIOS and OS to get the best performance out of this small desktop computer.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -74,19 +74,21 @@ The Xyber Team launched its Xyber XPC Mini Desktop Computer campaign on[Indiegog
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/new-the-finest-webcam-tech-for-next-gen-windows-11-users-for-2024/"><u>[New] The Finest Webcam Tech for Next-Gen Windows 11 Users for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-jumpstart-your-journey-to-tiktok-fame-with-these-hits/"><u>[Updated] Jumpstart Your Journey to TikTok Fame with These Hits</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-leveraging-content-for-maximum-impact-growing-view-count-on-tiktok-for-2024/"><u>[Updated] Leveraging Content for Maximum Impact Growing View Count on TikTok for 2024</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-masterclass-guide-to-excellent-pcmac-recorders-for-2024/"><u>[Updated] Masterclass Guide to Excellent PC/Mac Recorders for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-quick-and-effective-ways-to-expand-your-tiktok-clan-for-2024/"><u>[Updated] Quick and Effective Ways to Expand Your TikTok Clan for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-quickstart-guide-key-elements-of-tiktok-macos/"><u>[Updated] Quickstart Guide Key Elements of TikTok (macOS)</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-securely-boost-your-tiktok-engagement-and-reach/"><u>[Updated] Securely Boost Your TikTok Engagement & Reach</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/fixing-call-of-duty-wwii-error-4220-heres-your-complete-troubleshooting-solution/"><u>Fixing Call of Duty WWII Error 4220? Here's Your Complete Troubleshooting Solution</u></a></li>
-<li><a href="https://article-helps.techidaily.com/in-2024-harmonizing-sounds-seamless-transitions-in-ableton-live/"><u>In 2024, Harmonizing Sounds Seamless Transitions in Ableton Live</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-network-locked-sim-card-inserted-on-your-oneplus-ace-2-phone-unlock-it-now-by-drfone-android/"><u>In 2024, Network Locked SIM Card Inserted On Your OnePlus Ace 2 Phone? Unlock It Now</u></a></li>
-<li><a href="https://program-issues.techidaily.com/pc-gaming-alert-solving-hell-let-loose-continuous-crash-problems/"><u>PC Gaming Alert: Solving 'Hell Let Loose' Continuous Crash Problems</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/reinstating-default-view-configurations-in-windows/"><u>Reinstating Default View Configurations in Windows</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/resolving-an-alone-earpiece-dilemma-for-2024/"><u>Resolving an Alone Earpiece Dilemma for 2024</u></a></li>
-<li><a href="https://win11.techidaily.com/struggling-with-game-installs-xbox-app-solutions/"><u>Struggling with Game Installs: Xbox App Solutions</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/xplore-10-premier-historical-youtube-networks/"><u>[New] Explore 10 Premier Historical Youtube Networks</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-stop-the-frenzy-fixing-a-mistaken-tiktok-reload/"><u>[New] In 2024, Stop the Frenzy – Fixing a Mistaken TikTok Reload</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-quadcopters-unveiled-their-intricate-workings-revealed/"><u>[New] Quadcopters Unveiled Their Intricate Workings Revealed</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-elevate-your-expression-a-gallery-of-stunning-video-themes-for-tiktok/"><u>[Updated] 2024 Approved Elevate Your Expression A Gallery of Stunning Video Themes for TikTok</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-engineering-a-standout-tiktok-endcap-for-2024/"><u>[Updated] Engineering A Standout TikTok Endcap for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-copying-safely-on-tiktok-a-2023-guide-to-rights-checks/"><u>2024 Approved Copying Safely on TikTok A 2023 Guide to Rights Checks</u></a></li>
+<li><a href="https://howto.techidaily.com/9-quick-fixes-to-unfortunately-touchwiz-has-stopped-of-vivo-x100-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Quick Fixes to Unfortunately TouchWiz has stopped Of Vivo X100 Pro | Dr.fone</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/ensuring-tiktok-authenticity-pre-upload-rights-confirmation-for-2024/"><u>Ensuring TikTok Authenticity Pre-Upload Rights Confirmation for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/finding-the-key-personalized-tag-for-your-tiktok-stream-for-2024/"><u>Finding the Key Personalized Tag for Your TikTok Stream for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/in-2024-fostering-fandom-creating-jujutsu-kaisen-content-for-tiktok/"><u>In 2024, Fostering Fandom Creating Jujutsu Kaisen Content for TikTok</u></a></li>
+<li><a href="https://howto.techidaily.com/reliable-user-guide-to-fix-lava-blaze-pro-5g-running-slow-and-freezing-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reliable User Guide to Fix Lava Blaze Pro 5G Running Slow and Freezing | Dr.fone</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/step-by-step-tutorial-installing-latest-ati-radeon-driver-for-enhanced-windows-performance/"><u>Step-by-Step Tutorial: Installing Latest ATI Radeon Driver for Enhanced Windows Performance</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ltimate-guide-how-to-record-and-save-youtube-videos-without-spending-a-penny/"><u>The Ultimate Guide How To Record and Save YouTube Videos without Spending a Penny</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/top-15-augmented-reality-games-like-pokemon-go-to-play-on-apple-iphone-8-drfone-by-drfone-virtual-ios/"><u>Top 15 Augmented Reality Games Like Pokémon GO To Play On Apple iPhone 8 | Dr.fone</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/tre-metodi-ottimi-per-incorporare-suoni-in-una-registrazione-video/"><u>Tre Metodi Ottimi per Incorporare Suoni in Una Registrazione Video</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-rotate-your-videos-for-free-top-picks-for-windows-mac-android-and-iphone/"><u>Updated Rotate Your Videos for Free Top Picks for Windows, Mac, Android, and iPhone</u></a></li>
 </ul></div>
 

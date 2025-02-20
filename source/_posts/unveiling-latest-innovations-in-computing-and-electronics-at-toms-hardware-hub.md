@@ -1,7 +1,7 @@
 ---
 title: Unveiling Latest Innovations in Computing & Electronics at Tom's Hardware Hub
-date: 2025-02-08T02:19:13.136Z
-updated: 2025-02-09T16:34:58.935Z
+date: 2025-02-16T09:46:24.286Z
+updated: 2025-02-19T19:16:05.975Z
 tags:
   - desktop
 categories:
@@ -14,7 +14,7 @@ thumbnail: https://cdn.mos.cms.futurecdn.net/LCbG8RwNDZHdVnhQuwPna5-320-80.jpg
 [Hewlett Packard](https://www.tomshardware.com/tag/hewlett-packard) [Enterprise](https://www.tomshardware.com/tag/enterprise) (HPE), one of the world's largest makers of servers, has initiated a legal battle against Inspur Group, China's largest server maker, and its affiliates, alleging server patent infringements. HPE accuses Inspur of engaging in deceptive practices and renaming its subsidiaries in the U.S. to continue its business with American companies despite being included into the Entity List.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## HPE: Inspur infringes our patents
@@ -28,7 +28,7 @@ thumbnail: https://cdn.mos.cms.futurecdn.net/LCbG8RwNDZHdVnhQuwPna5-320-80.jpg
  LATEST VIDEOS FROM tomshardware Tom's Hardware
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Despite being on the Entity List, Inspur continues operations in the U.S
@@ -38,7 +38,7 @@ thumbnail: https://cdn.mos.cms.futurecdn.net/LCbG8RwNDZHdVnhQuwPna5-320-80.jpg
  The complaint claims that Inspur that inspur continues its operations in the United States under Aivres Systems and Betapex. Inspur allegedly removed its branding from products sold in the U.S. and continues to sell them. For example, Inspur's IR5280M6 server is Aivres's 5280M6 machine, it has the same specification and design, according to HPE's complaint. Meanwhile, Inspur has also worked as a contract maker of servers, according to The Register. Yet, if a U.S. entity plans to work with Inspur (or any other party from the Entity List), it has to get a special license from the U.S. government.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -64,20 +64,14 @@ thumbnail: https://cdn.mos.cms.futurecdn.net/LCbG8RwNDZHdVnhQuwPna5-320-80.jpg
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-elevate-your-biz-game-youtube-channels-that-succeeded/"><u>[New] 2024 Approved Elevate Your Biz Game YouTube Channels That Succeeded</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-echoing-social-engagement-transferring-tiktok-videos-on-facebook-for-2024/"><u>[New] Echoing Social Engagement Transferring TikTok Videos on Facebook for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-building-a-cohesive-tiktok-ending-spectacle/"><u>[New] In 2024, Building a Cohesive TikTok Ending Spectacle</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-strategies-to-overcome-unseen-tiktok-limitations/"><u>[New] Strategies to Overcome Unseen TikTok Limitations</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-tiktoks-enduring-melodies-top-10-of-the-year-2024/"><u>[New] TikTok's Enduring Melodies Top 10 of the Year 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-a-step-by-step-tutorial-to-monetize-product-videography/"><u>[Updated] 2024 Approved A Step-by-Step Tutorial to Monetize Product Videography</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-boost-your-tiktok-impact-2023s-leading-font-generators/"><u>[Updated] 2024 Approved Boost Your TikTok Impact 2023'S Leading Font Generators</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-a-beginners-guide-the-essentials-of-using-tiktok-macos-for-2024/"><u>[Updated] A Beginner's Guide The Essentials of Using TikTok (macOS) for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-best-3d-model-suites-for-animation-artists/"><u>[Updated] Best 3D Model Suites for Animation Artists</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/beginners-guide-capturing-youtube-videos-as-screencasts-without-payment/"><u>Beginner's Guide Capturing YouTube Videos as Screencasts Without Payment</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/1723808349928-how-to-pause-driver-upgrades-when-performing-windows-10-updates-effortlessly-resolve-the-issue/"><u>How to Pause Driver Upgrades When Performing Windows 10 Updates – Effortlessly Resolve the Issue</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-how-many-attempts-to-unlock-apple-iphone-11-pro-by-drfone-ios/"><u>In 2024, How Many Attempts To Unlock Apple iPhone 11 Pro</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/innovative-approaches-to-saving-your-instagram-highlights/"><u>Innovative Approaches to Saving Your Instagram Highlights</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/snapshot-preservation-android-and-mac-techniques/"><u>Snapshot Preservation Android & Mac Techniques</u></a></li>
-<li><a href="https://techidaily.com/undelete-lost-data-from-tecno-spark-20-pro-by-fonelab-android-recover-data/"><u>Undelete lost data from Tecno Spark 20 Pro</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-stitching-an-innovative-tiktok-closing-credits/"><u>[New] In 2024, Stitching An Innovative TikTok Closing Credits</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-trailblazing-tiktok-profile-features-to-become-iconic/"><u>[New] Trailblazing TikTok Profile Features to Become Iconic</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-comic-corner-tickling-fun-with-the-top-tiktok-jokes-and-pranks/"><u>[Updated] 2024 Approved Comic Corner Tickling Fun with the Top TikTok Jokes and Pranks</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-network-growth-strategy-share-twitch-live-links-on-fb/"><u>[Updated] 2024 Approved Network Growth Strategy Share Twitch Live Links on FB</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-playlist-retrieval-made-straightforward-your-compreenaside/"><u>[Updated] 2024 Approved Playlist Retrieval Made Straightforward - Your Compreenaside</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-sponsoring-made-simple-boosting-your-channel-budget-efficiently/"><u>[Updated] Sponsoring Made Simple Boosting Your Channel Budget Efficiently</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-the-next-frontier-of-classroom-technology-vr-for-2024/"><u>[Updated] The Next Frontier of Classroom Technology - VR for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-mastering-legal-compliance-in-your-tiktok-content-upload/"><u>2024 Approved Mastering Legal Compliance in Your TikTok Content Upload</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/unlock-seamless-iphone-searches-using-circle-through-an-ingenious-shortcut/"><u>Unlock Seamless iPhone Searches Using Circle Through an Ingenious Shortcut</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] How to Make TikTok Reaction Videos in 2 Proven Ways - Filmora\""
-date: 2025-02-07T01:09:45.090Z
-updated: 2025-02-09T20:42:48.363Z
+date: 2025-02-14T04:35:20.881Z
+updated: 2025-02-20T08:15:32.154Z
 tags:
   - ai video
   - ai tiktok
@@ -46,6 +46,10 @@ Want to read the texts instead of watching videos? Check the complete guide to [
 
 After being equipped with all the worldly knowledge about **TikTok reaction videos**, you can follow the steps given below to learn how to react to the footage created by other people:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1\. Tap Share and Record Your Reaction
 
 Start TikTok, play the video you want to react on, tap the **Share** icon from the lower-right area, and tap the **React** option from the **Share to** menu. Tap **Flip** from the top-right corner of the **Camera** screen to switch between the front and rear camera as needed, optionally tap the **Mic** icon to disable or enable voice and system audio capture, drag and reposition **React** window according to the source footage, and tap the **Record** button from the bottom to start shooting your **TikTok reaction**. Wait while the source clip and your recording process are complete successfully before moving forward to the next step.
@@ -53,7 +57,7 @@ Start TikTok, play the video you want to react on, tap the **Share** icon from t
 ![ Make reaction video in tiktok](https://images.wondershare.com/filmora/article-images/make-reaction-video-tiktok.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2\. Apply Filters
@@ -62,15 +66,15 @@ Tap the **Filters** icon from the top-right corner, tap to pick a filter from th
 
 ![Add Filters to TikTok Reaction Video](https://images.wondershare.com/filmora/article-images/apply-filters-tiktok-reaction-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 3\. Manage Audio
 
 Tap the **Mixer** icon from the upper-right corner of the screen, drag the **My Voice** and **Soundtrack Volume** sliders to manage your voice recording and the internal audio respectively, and tap **Done** to save the changes once you’re through with the modifications. Back on the previous window, tap **Next** from the bottom-right corner.
 
 ![ Add music to Tiktok Reaction video](https://images.wondershare.com/filmora/article-images/manage-audio-in-reaction-video-tiktok.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 4\. Publish the Video
 
@@ -79,10 +83,6 @@ Tap the **Who can view this video** option to manage your reaction’s visibilit
 ![Post TikTok Reaction Video](https://images.wondershare.com/filmora/article-images/post-reaction-video-tiktok.jpg)
 
 More creative tricks about TikTok video: [Clone Yourself in TikTok](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2: How to Make Reaction Videos with Filmora
 
@@ -94,10 +94,6 @@ You can learn how to make **TikTok reaction videos**  using Wondershare Filmora 
 
 **Note:**  Before proceeding, make sure that you have already copied the source (and the reaction) video(s) from your smartphone to your computer.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1\. Create New Project and Set Preferences
 
 Start Wondershare Filmora on your Windows or Mac PC, go to **File**  \> **New Project** and click **9:16 (Portrait)**  from the submenu that appears.
@@ -107,7 +103,11 @@ Click **Split Screen** from the standard toolbar at the top, hover mouse to the 
 ![Filmora9 portrait mode split screen presets](https://images.wondershare.com/filmora/article-images/portrait-mode-split-screen-presets.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2\. Import and Add Video(s) Preview/Timeline
@@ -116,22 +116,22 @@ Click the **Media** button from the standard toolbar, click anywhere inside the 
 
 Next, click and drag each of the imported videos to their corresponding screen sections in the **Preview** window in the upper-right area. Notice how the files are automatically added to the Timeline at the bottom.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 3\. Add Elements and Titles
 
 Click **Elements** from the standard toolbar, hover mouse to the element you want to add to the reaction, click the **\+**  icon that appears at the center of the thumbnail, and reposition the element in the Timeline to match the duration with that of the reaction you are creating.
 
 ![Filmora9 make reaction video with split screen presets and elements](https://images.wondershare.com/filmora/article-images/make-reaction-video-tiktok-with-element-titles.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 4\. Export the Reaction
 
 ![Filmora9  export options](https://images.wondershare.com/filmora/article-images/export-video.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Click **EXPORT**  from the top-middle section of the interface, go to the **Local** tab from the top of the **Export** box that appears next, select your preferred format from the left bar, optionally choose a destination folder from the right window, optionally click **SETTINGS**  to fine-tune the output preferences as needed, and click **EXPORT**  from the bottom-right corner to export the **TikTok reaction**. Or, you can save it in the settings perfect for iPhone or another device.
@@ -163,24 +163,17 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-aces-top-10-list-choosing-superior-capture-cards/"><u>[New] 2024 Approved Ace's Top 10 List Choosing Superior Capture Cards</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-breathing-new-life-into-anime-with-impactful-tiktoks/"><u>[New] Breathing New Life Into Anime with Impactful TikToks</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-legitimacy-in-the-limelight-copyright-verification-before-upload/"><u>[New] In 2024, Legitimacy in the Limelight Copyright Verification Before Upload</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-infiltrate-live-tips-for-guesting-on-tiktok-sessions/"><u>[New] Infiltrate Live Tips for Guesting on TikTok Sessions</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-seamless-mp4-to-fb-video-transfer-technology/"><u>[New] Seamless MP4-to-FB Video Transfer Technology</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-tiktok-and-beyond-unveiling-the-best-books-for-todays-reader-for-2024/"><u>[New] TikTok and Beyond Unveiling the Best Books for Today's Reader for 2024</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-free-youtube-thumbnails-saving-guide-for-2024/"><u>[Updated] Free YouTube Thumbnails Saving Guide for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-full-review-and-tutorial-s-video-show-app/"><u>[Updated] Full Review & Tutorial 'S Video Show App</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-harness-the-power-of-video-for-enhanced-facebook-traffic-for-2024/"><u>[Updated] Harness the Power of Video for Enhanced Facebook Traffic for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-how-to-safely-dissolve-an-inactive-linkedin-account-for-2024/"><u>[Updated] How to Safely Dissolve an Inactive LinkedIn Account for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-make-your-instagram-posts-pop-with-correct-video-dimensions/"><u>[Updated] In 2024, Make Your Instagram Posts Pop with Correct Video Dimensions</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-sizzling-snaps-from-tiktoks-culinary-kings-and-queens-for-2024/"><u>[Updated] Sizzling Snaps From TikTok’s Culinary Kings & Queens for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/discovering-facebooks-algorithmic-shift-toward-business-recommendations/"><u>Discovering Facebook's Algorithmic Shift Toward Business Recommendations</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/from-sketches-to-high-end-graphics-best-software-reviewed-for-2024/"><u>From Sketches to High-End Graphics Best Software Reviewed for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/in-2024-achieving-large-head-aesthetics-on-tiktok-step-by-step-3-techniques/"><u>In 2024, Achieving Large-Head Aesthetics on TikTok Step by Step (3 Techniques)</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/in-2024-crafting-a-distinctive-image-with-creative-personal-frames-on-tiktok/"><u>In 2024, Crafting a Distinctive Image with Creative Personal Frames on TikTok</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/in-2024-revolutionary-techniques-to-change-video-borders-in-tiktok/"><u>In 2024, Revolutionary Techniques to Change Video Borders in TikTok</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/mastering-access-to-exclusive-snapshots/"><u>Mastering Access to Exclusive Snapshots</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/sequencing-the-adventures-of-superman-the-perfect-watch-order-for-fans/"><u>Sequencing the Adventures of Superman: The Perfect Watch Order for Fans</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-cam-clash-sj6-legend-versus-yi-4k-visionary-for-2024/"><u>[New] Cam Clash SJ6 Legend Versus Yi 4K Visionary for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/nhancing-engagement-adding-text-and-links-to-youtube-content-for-2024/"><u>[New] Enhancing Engagement Adding Text and Links to YouTube Content for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-the-art-of-video-popularity-secrets-for-youtube-stardom/"><u>[New] In 2024, The Art of Video Popularity Secrets for YouTube Stardom</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-20-timeless-anime-themes-making-a-mark-on-tiktok/"><u>[Updated] 20 Timeless Anime Themes Making a Mark on TikTok</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-fuel-your-film-rate-with-these-easy-tiktok-tricks-for-2024/"><u>[Updated] Fuel Your Film Rate with These Easy TikTok Tricks for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-quick-guide-to-faster-tiktok-creation-for-2024/"><u>[Updated] Quick Guide to Faster TikTok Creation for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/binge-worthy-20-catchy-tiktok-songs-by-artists-for-2024/"><u>Binge-Worthy 20 Catchy TikTok Songs by Artists for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/guide-streaming-espnplus-live-sports-events-on-your-lg-smart-television/"><u>Guide: Streaming ESPN+ Live Sports Events on Your LG Smart Television</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-where-is-the-best-place-to-catch-dratini-on-samsung-galaxy-a05s-drfone-by-drfone-virtual-android/"><u>In 2024, Where Is the Best Place to Catch Dratini On Samsung Galaxy A05s | Dr.fone</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/pinpointing-the-perfect-stream-tagline-for-you-on-tiktok-for-2024/"><u>Pinpointing the Perfect Stream Tagline for You on TikTok for 2024</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/restore-missing-app-icon-on-oppo-reno-10-pro-5g-step-by-step-solutions-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Restore Missing App Icon on Oppo Reno 10 Pro 5G Step-by-Step Solutions | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/streamline-fun-best-free-media-tools-for-pcs/"><u>Streamline Fun: Best Free Media Tools for PCs</u></a></li>
 </ul></div>
 

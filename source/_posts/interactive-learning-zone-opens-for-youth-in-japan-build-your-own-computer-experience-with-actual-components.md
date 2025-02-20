@@ -1,7 +1,7 @@
 ---
 title: Interactive Learning Zone Opens for Youth in Japan - 'Build Your Own Computer' Experience with Actual Components
-date: 2025-02-05T18:08:23.761Z
-updated: 2025-02-09T16:51:09.898Z
+date: 2025-02-14T18:05:09.906Z
+updated: 2025-02-20T08:30:02.370Z
 tags:
   - desktop
 categories:
@@ -50,7 +50,7 @@ One-Netbook, the team behind the OneXPlayer handheld console and the OneXGPU GPU
  Pre-orders for a 32 GB RAM / 1 TB SSD OneXPlayer M1 are already in Japan at JPY142,310 (or around $900). But if you bundle it with the OneXGPU, you get a 10% discount on the eGPU. So, if you’re looking for a small PC you can quickly move around but don’t sacrifice performance and graphical power, you should watch out for the OneXPlayer M1 mini-PC.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -76,20 +76,19 @@ One-Netbook, the team behind the OneXPlayer handheld console and the OneXGPU GPU
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-clips.techidaily.com/new-how-to-simplify-tiktok-video-creation-using-siri-commands-and-features-for-2024/"><u>[New] How to Simplify TikTok Video Creation Using Siri Commands and Features for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-how-to-use-tiktok-on-mac-and-pc-computers-in-2024/"><u>[New] How to Use TikTok on Mac and PC Computers, In 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-microsofts-hololens-adventure-a-3d-visionary-experience/"><u>[New] Microsoft’s HoloLens Adventure – A 3D Visionary Experience</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-the-comprehensible-guide-to-mac-based-ootd-videography/"><u>[New] The Comprehensible Guide to Mac-Based OOTD Videography</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-unleash-the-power-of-optimization-5-secrets-to-skyrocket-your-audience/"><u>[Updated] 2024 Approved Unleash the Power of Optimization 5 Secrets to Skyrocket Your Audience</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-essential-camcorder-list-ultimate-expert-review-for-2024/"><u>[Updated] Essential Camcorder List – Ultimate Expert Review for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-expert-guide-to-a-lasting-goodbye-deleting-tiktok-effectively-for-2024/"><u>[Updated] Expert Guide to a Lasting Goodbye Deleting TikTok Effectively for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-how-to-seamlessly-blend-apples-siri-into-your-tiktok-content/"><u>[Updated] How to Seamlessly Blend Apple's Siri Into Your TikTok Content</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-jumpstart-high-res-webcam-filming-for-amazing-results/"><u>[Updated] Jumpstart High-Res WebCam Filming for Amazing Results</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-windows-movie-maker-your-gateway-into-the-world-of-digital-cartoons-for-2024/"><u>[Updated] Windows Movie Maker Your Gateway Into the World of Digital Cartoons for 2024</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/download-and-installation-guide-canon-printer-mg2520-drivers-for-windows/"><u>Download and Installation Guide: Canon Printer MG2520 Drivers for Windows</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-remove-or-bypass-knox-enrollment-service-on-vivo-v30-by-drfone-android/"><u>How To Remove or Bypass Knox Enrollment Service On Vivo V30</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-journey-through-the-metaverse-6-illustrative-examples/"><u>In 2024, Journey Through the Metaverse 6 Illustrative Examples</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-opening-and-playing-srt-files-in-different-oses/"><u>In 2024, Opening and Playing SRT Files in Different OSes</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/snapping-to-success-discover-the-coolest-filters-for-selfies/"><u>Snapping to Success Discover the Coolest Filters for Selfies</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-exploring-advanced-screen-recording-software/"><u>[New] 2024 Approved Exploring Advanced Screen Recording Software</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-skillful-conversion-of-youtube-videos-to-interactive-gif-artistry/"><u>[New] 2024 Approved Skillful Conversion of YouTube Videos to Interactive GIF Artistry</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-exploring-the-new-frontier-what-makes-triller-stand-out/"><u>[New] Exploring the New Frontier What Makes Triller Stand Out?</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-mastering-tiktoks-siri-speech-functionality/"><u>[New] In 2024, Mastering TikTok's Siri Speech Functionality</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-the-art-of-making-videos-go-viral-on-tiktok-with-these-quotes-for-2024/"><u>[New] The Art of Making Videos Go Viral on TikTok with These Quotes for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-prime-choices-webcams-on-windows-10/"><u>[Updated] Prime Choices Webcams on Windows 10</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/beginners-handbook-for-pc-users-initiating-a-tiktok-broadcast-for-2024/"><u>Beginner's Handbook for PC Users - Initiating a TikTok Broadcast for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/complete-tutorial-to-use-vpna-to-fake-gps-location-on-infinix-zero-30-5g-drfone-by-drfone-virtual-android/"><u>Complete Tutorial to Use VPNa to Fake GPS Location On Infinix Zero 30 5G | Dr.fone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/download-and-install-the-official-brother-mfc-l27nw-drivers-for-windows-easy-setup-guide-included/"><u>Download and Install the Official Brother MFC-L27nw Drivers for Windows - Easy Setup Guide Included</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/fixing-windows-10-usb-connectivity-problems-a-guide-to-handling-unknown-devices-and-failed-port-resets/"><u>Fixing Windows 10 USB Connectivity Problems: A Guide to Handling Unknown Devices & Failed Port Resets</u></a></li>
+<li><a href="https://techtrends.techidaily.com/how-to-resolve-the-critical-process-died-error-code-0xc0000185-on-your-pc/"><u>How to Resolve the Critical Process Died Error (Code 0xC0000185) on Your PC</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/in-2024-composing-an-emotive-tiktok-finale-statement/"><u>In 2024, Composing An Emotive TikTok Finale Statement</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/infiltrate-live-tips-for-guesting-on-tiktok-sessions-for-2024/"><u>Infiltrate Live Tips for Guesting on TikTok Sessions for 2024</u></a></li>
+<li><a href="https://fox-that.techidaily.com/unlock-the-power-of-your-iphones-microphone-solve-dictation-problems-with-these-5-strategies/"><u>Unlock the Power of Your iPhone’s Microphone: Solve Dictation Problems with These 5 Strategies</u></a></li>
 </ul></div>
 

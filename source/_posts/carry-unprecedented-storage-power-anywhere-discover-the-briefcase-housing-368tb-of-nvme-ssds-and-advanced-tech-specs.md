@@ -1,7 +1,7 @@
 ---
 title: "Carry Unprecedented Storage Power Anywhere: Discover the Briefcase Housing 368TB of NVMe SSDs and Advanced Tech Specs"
-date: 2025-02-04T20:28:48.001Z
-updated: 2025-02-10T07:47:55.701Z
+date: 2025-02-14T17:52:13.647Z
+updated: 2025-02-19T23:47:33.593Z
 tags:
   - desktop
 categories:
@@ -48,7 +48,7 @@ Ordinary canned air products shoot out jets of gas with a surprising amount of v
  In tests, the canned air soon ran out of pressure between bursts, but more consistent shock diamonds were pictured from the nozzle of an air compressor (90 PSI). However, the YouTuber's favorite demo was delivered using the ball pump nozzle on the air compressor hose. Have a look through the gallery above for some of the great shock diamonds emitted from the canned air and various nozzles attached to a shop compressor.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -74,24 +74,19 @@ Ordinary canned air products shoot out jets of gas with a surprising amount of v
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-find-the-optimal-screen-capture-solutions-in-linux/"><u>[New] 2024 Approved Find the Optimal Screen Capture Solutions in Linux</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-gentle-request-for-a-greater-genuine-community/"><u>[New] 2024 Approved Gentle Request for a Greater, Genuine Community</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-high-paying-creator-status-on-youtube/"><u>[New] 2024 Approved High-Paying Creator Status on YouTube</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-key-industry-figures-transforming-vr-gaming-for-2024/"><u>[New] Key Industry Figures Transforming VR Gaming for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-insightful-comparison-of-triller-and-tiktoks-content-models-max-156-chars/"><u>[Updated] Insightful Comparison of Triller and TikTok's Content Models (Max 156 Chars)</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-premier-tiktok-editing-apps-for-windows-users/"><u>[Updated] Premier TikTok Editing Apps for Windows Users</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-quick-and-effective-ways-to-expand-your-tiktok-clan/"><u>[Updated] Quick and Effective Ways to Expand Your TikTok Clan</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-stay-on-top-of-fashion-and-savings-amazons-essential-tiktok-finds-for-2024/"><u>[Updated] Stay on Top of Fashion & Savings - Amazon's Essential TikTok Finds for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-the-ultimate-hits-for-tiktok-stardom-for-2024/"><u>[Updated] The Ultimate Hits for TikTok Stardom for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-top-10-free-tiktok-video-editors-compatible-with-macos/"><u>[Updated] Top 10 FREE TikTok Video Editors Compatible with MacOS</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-top-3-approaches-to-big-head-makeover-in-tiktok-videos/"><u>[Updated] Top 3 Approaches to Big Head Makeover in TikTok Videos</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-top-8-proven-methods-for-earnings-on-tiktok/"><u>[Updated] Top 8 Proven Methods for Earnings on TikTok</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/get-the-latest-intel-centrino-n-6205-wifi-drivers-no-cost-installation-guide/"><u>Get the Latest: Intel Centrino N 6205 WiFi Drivers – No Cost Installation Guide</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-can-life360-track-or-see-text-messages-what-can-you-do-with-life360-on-infinix-gt-10-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Can Life360 Track Or See Text Messages? What Can You Do with Life360 On Infinix GT 10 Pro? | Dr.fone</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-gateways-to-googles-advertising-on-youtube-platforms/"><u>In 2024, Gateways to Google's Advertising on YouTube Platforms</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/solutions-to-spy-on-honor-magic-6-lite-with-and-without-jailbreak-drfone-by-drfone-virtual-android/"><u>Solutions to Spy on Honor Magic 6 Lite with and without jailbreak | Dr.fone</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/the-ultimate-expertise-in-expunging-stickers-from-videos/"><u>The Ultimate Expertise in Expunging Stickers From Videos</u></a></li>
-<li><a href="https://win-studio.techidaily.com/uberwindet-apple-itunes-schwierigkeiten-erfolgreiche-iphone-datenwiederherstellung-ohne-backup-mit-fonebackup/"><u>Überwindet Apple iTunes Schwierigkeiten: Erfolgreiche iPhone-Datenwiederherstellung Ohne Backup Mit FoneBackup</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/unlocking-potential-in-projects-with-chatgpt-a-how-to-approach/"><u>Unlocking Potential in Projects with ChatGPT - A How-To Approach</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-first-steps-to-enhanced-gopro-experience/"><u>[New] 2024 Approved First Steps to Enhanced GoPro Experience</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-weaving-worthy-movie-openings-for-2024/"><u>[New] Weaving Worthy Movie Openings for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-audacitys-guide-to-pristine-sound-by-removing-ambient-noise/"><u>[Updated] 2024 Approved Audacity's Guide to Pristine Sound by Removing Ambient Noise</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-illustrating-a-novel-tiktok-end-slide/"><u>[Updated] 2024 Approved Illustrating A Novel TikTok End Slide</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-focus-and-frame-essential-iphone-tools-for-cropping-photos/"><u>[Updated] Focus & Frame Essential iPhone Tools for Cropping Photos</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-visual-storytelling-of-pc-playtime-top-6-screenshot-secrets/"><u>[Updated] In 2024, Visual Storytelling of PC Playtime - Top 6 Screenshot Secrets</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-top-8-techniques-for-capturing-pc-audio-and-mic-sounds/"><u>2024 Approved Top 8 Techniques for Capturing PC Audio & Mic Sounds</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/easy-driver-refresh-techniques-for-microsofts-windows-os-version-781/"><u>Easy Driver Refresh Techniques for Microsoft's Windows OS (Version 7/8/1</u></a></li>
+<li><a href="https://techtrends.techidaily.com/effective-solutions-to-remove-crosswise-lines-showing-up-on-pc-displays/"><u>Effective Solutions to Remove Crosswise Lines Showing Up on PC Displays</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/ensuring-long-term-accessibility-transferring-photos-from-snapchat/"><u>Ensuring Long-Term Accessibility Transferring Photos From Snapchat</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/in-2024-harmonizing-in-tiktoks-duo-videos/"><u>In 2024, Harmonizing in TikTok's Duo Videos</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/in-2024-top-5-tips-for-tiktok-success-on-mac/"><u>In 2024, Top 5 Tips for TikTok Success on Mac</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/in-2024-trusty-tiktok-following-providers/"><u>In 2024, Trusty TikTok Following Providers</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/monetization-showdown-dailymotion-versus-youtube/"><u>Monetization Showdown Dailymotion Versus YouTube</u></a></li>
 </ul></div>
 
